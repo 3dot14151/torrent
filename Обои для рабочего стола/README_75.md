@@ -1,3 +1,29 @@
+###  Публикация: 1340436   (264001) от 23.11.2019
+
+Wallpapers Кошачьи #68 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B279C52A5748D2F56195255317D4D4295EECB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340433   (263999) от 23.11.2019
 
 Wallpapers Кошачьи #67 [JPG]
@@ -661,36 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:570B59956307EE72FE6B964AEFEA1F78095A79AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500131   (256941) от 22.05.2012
-
-[Wallpapers] Texture Desktop Wallpapers Pack 8
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256941.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Texture Desktop Wallpapers Pack 8
-Название: Texture Desktop Wallpapers Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3333х2500
-Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3894DC117FEC4C8B03075D14BAB828B27EDE54
 ```
 
 https://mybot314.ru/tekegram_catalog/

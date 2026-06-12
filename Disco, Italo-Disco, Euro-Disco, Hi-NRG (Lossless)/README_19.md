@@ -1,3 +1,38 @@
+###  Публикация: 261307   (328843) от 22.11.2010
+
+Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_328843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanova Action (Long & Hot-Version)
+02. Laser Light (Original Version)
+03. Dr.Love (Passion Mix)
+04. Laser Dance
+05. Laser Light (Remix '87)
+06. Casanova Action ('87 Re-Edit)
+07. Dr.Love (Dub Mix)
+08. Casanova's Dance (Insrtrumental)
+09. Megamix
+10. Laser Light (Chernobyl Mix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180704   (323617) от 07.11.2017
 
 Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco, EuroPop>
@@ -716,36 +751,6 @@ VA - Another Side of Mike Mareen Part Three (2016) Italo Box Music, 2019, Remast
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC948900FEA83F45B9694365581A9D30F97320B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311382   (270824) от 01.12.2018
-
-Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1977 году альбом был издан тиражом в 40 тыс экземпляров. Песня "Sing, Sing A Song" врывается в хит-парады Голландии, Бельгии, Швейцарии и Германии, весь первый тираж альбома расходится за 5 дней. После этого было принято решение выпустить еще 170 тыс. копий.
-Но Кену не суждено было об этом узнать, т.к. буквально через полтора месяца после выпуска альбома (   Читать дальше...   )01. You're Burning
-02. Ma Cherie, Mon Amour
-03. Don't Cry, My Baby
-04. Do It(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399025D0D9212E2E497447ECFC572101E78871B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

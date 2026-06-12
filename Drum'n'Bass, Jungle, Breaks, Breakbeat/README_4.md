@@ -1,3 +1,32 @@
+###  Публикация: 1177099   (360503) от 26.10.2017
+
+ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambient Just Think
+02. Voices
+03. Filling 1
+04. When the Head Grey Autumn(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, TrapapПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952138   (358097) от 31.10.2015
 
 Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
@@ -720,35 +749,6 @@ Various Artists - Ram Drum & Bass Annual 2012 (2012) [MP3|320 кб/с]<Drum & Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42093A667C75382B041056A17C9FD208D31BD831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965439   (226024) от 14.12.2015
-
-Colombo - Abandoned Factory II (2015) [MP3|320 кб/с] <Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy This Trip (Original Mix) (6:21)
-02. Hesitation (Original Mix) (5:10)
-03. Cuckoo (Original Mix) (6:16)
-04. Homesick (Original Mix) (6:01)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D95A56FFED1767203744E5373C98C1D35F367A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,127 @@
-###  Публикация: 1277690   (784992) от 21.01.2019
+###  Публикация: 1389045   (785080) от 08.06.2020
 
-FastStone Image Viewer 6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
+Проекты - VideoHive - Wedding Slideshow - 19677268 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785080.jpg" />
+</div>
+
+
+###  Подробнее
+
+При помощи проекта "Wedding Slideshow" сделайте свое элегантное романтическое слайд-шоу, историю любви или свадебное видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDF404405544A18677F7AFD6D9BACF8F8A3CFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389003   (785079) от 08.06.2020
+
+Мой папа – супергерой / Copperman (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия / Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Итальянские (Full)Продолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCD0C5102CCB8CBF37C4A04DF17E8583EF76CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388787   (785078) от 08.06.2020
+
+Леонардо да Винчи. Неизведанные миры / Io, Leonardo (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие в сознание Леонардо да Винчи, легенды мировой культуры, одного из самых удивительных гениев, каких знает история человечества, создателя «главной в мире картины» — «Моны Лизы». С помощью самых современных технологий в фильме воссоздаются великие произведения мастера.Производство: Италия / Progetto Immagine, Sky Arte HD, Comune di FirenzeЖанр: БиографияРежиссер: Хесус Гарсес ЛамбертАктеры: Лука Арджентеро, Анджела Фонтана, Массимо Де Лоренцо, Matt DeLuise, Франческо ПаннофиноПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские форсированныеПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325CDCA189D375C62B5DBF9AA579E51709797CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388862   (785077) от 08.06.2020
+
+Футажи - Bounce Color - Aura Lens Flares 4K [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блики Aura могут использоваться на последовательностях титров, в качестве переходов и могут работать поверх любого видео. Цвет также можно отрегулировать с помощью встроенного цветового инструмента. Есть много способов использовать данные световые эффекты, вы просто должны проявить творческий подход!
+Все блики сняты в разрешении 3840 x 2160 с использованием реальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DD9F5A0D5A1E5CE36BFB301A016EE7D5786574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352324   (785076) от 08.06.2020
+
+VIP Notes 9.9.28 (Paid) [RU]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Защищенный блокнот с вложениями.Тип издания: ПираткаРелиз состоялся: 08.06.2020Разработчик: Oleg RomantsevПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7442CE0B369433FD62860924B6A44E0FBC3EEE15
+magnet:?xt=urn:btih:6F93978DED96DF3FB64551912738E4D905BF54DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277578   (784991) от 21.01.2019
+###  Публикация: 1277667   (785075) от 21.01.2019
 
-Dashcam Viewer 3.1.8 (Repack & Portable) by elchupacabra [Multi/Ru]
+Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dashcam Viewer - это современный и продвинутый менеджер видеозаписей, адаптированный под экшн-камеры или автомобильные видеорегистраторы.
-С помощью программы пользователь получает возможность не только просмотреть сами файлы со съемкой, но также получить целый перечень дополнительной информации, «зашитой» в ролики.Язык интерфейса: Русский, Английский и другие
+01. Blood Feast Ripping Putrescent (3:57)
+ 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:126BCCFD3A6D5EDA6E94419FA2487929A5551F0C
+magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,28 +156,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204396   (784990) от 05.02.2018
+###  Публикация: 1277674   (785074) от 21.01.2019
 
-VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
+Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thomas Lemmer - Dive (feat Naemi Joy - Seenay remix)
-02. Jacob Singer - Tiahuanaco Returns
-03. Carter & Funk - Make Some Noise (Vince Tayler remix edit)
-04. Jericho Frequency - Vegas(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:44
+01. Agonized Display (3:46)
+ 02. A Thousand Years of Anguish (3:12)
+ 03. Cannibal Autopsy (3:40)
+ 04. Devoured (2:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
+magnet:?xt=urn:btih:EE3E967C64DBAB0C448612294769FCB8E5896D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +185,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204363   (784989) от 05.02.2018
+###  Публикация: 1277673   (785073) от 21.01.2019
 
-VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
+Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gai Barone – Tanita (Intro Mix) (06:32)
-02. Tannura – Halfway (07:54)
-03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
-04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
+01. Embodiment of a Failed Brood (3:52)
+ 02. Fucked (5:00)
+ 03. 9mm Headfuck (4:27)
+ 04. God on Acid (4:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D035FC7092744EA435C279F9E39D37A1720BF4
+magnet:?xt=urn:btih:B726B4FCB7B201112E8E9DE30A6F1D1F6E01157E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +214,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204184   (784988) от 05.02.2018
+###  Публикация: 1277662   (785072) от 21.01.2019
 
-В. В. Маевский | Сражения мирных дней (1975) [DJVU]
+Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Разное (категория книг)
->>Публицистика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга адресована массовому читателю. Ее автор В. Маевский - политический обозреватель газеты «Правда» - рассказывает об идеологических сражениях наших дней. Многие страницы книги посвящены полемике с буржуазными деятелями США, Англии, Японии но вопросам войны и мира, национально-освободительной борьбы, демократии, сосуществования государств с различным социальным (   Читать дальше...   )Жанр: История, политология, экономика, журналистикаФормат: DJVU
+01. Debridement (2:06)
+ 02. Writhing in Psychotic Hysteria (2:30)
+ 03. Fourth Blessed Gorge (2:59)
+ 04. Procreate to Eviscerate (2:46)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:27:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
+magnet:?xt=urn:btih:BAFCB8B17DF28EDE0BBC3F91A0F1449DC482899C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +243,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204303   (784987) от 05.02.2018
+###  Публикация: 1277573   (785071) от 21.01.2019
 
-The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
+Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Really True Blues [05:22]
-02. The Cylinder [05:08]
-03. Midsommer [04:58]
-04. Summertime [06:37](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:05
+01. Power Play [5:40]
+02. Loco Motive [3:54]
+03. Spanish Flower [5:16]
+04. Mel [5:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F006D607F6A4645D5E62CFEFAFACF72F145F540
+magnet:?xt=urn:btih:21FEB9744C41D6B4E6DEE5EE3BD150B0BB3249A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,80 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204069   (784986) от 05.02.2018
+###  Публикация: 1277575   (785070) от 21.01.2019
 
-Laura Branigan (Лора Брэниган) - Memories (1978) 7", Single, Not On Label [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Memories 3:12Жанр: PopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05E6CE5E6C625689B94DB956724E6B0991EBEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277100   (784985) от 21.01.2019
-
-Донато Карризи | Девушка в тумане (2019) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Затерянный в Альпах сонный городок, рождественский вечер, туман. От дома, где сияют огни елки и лежат подарки, до празднично украшенной местной церкви всего триста метров, но в церкви юная Анна Лу так и не появилась… Вездесущие журналисты, фоторепортеры и телевизионщики осаждают городок. Каждый из них жаждет первым сообщить сенсационные новости о ходе расследования. (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 12:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9502B815C27625B2CFEE69CF8700D0FDF87AEF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204265   (784984) от 05.02.2018
-
-Blindstone - Manifesto (2003) 2008, Grooveyard Records [MP3|320 Kbps] <Blues Rock>
+Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Wasted Days 4:24
-02. Temple Trippin' 3:33
-03. Somewhere 4:43
-04. Say It Ain't So 4:57(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:46
+CD1:
+01. European Echoes [14:20]
+02. Unnamed [13:54]
+03. Unnamed [17:21]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547F41845EB3D4CE5C0B6041C815551E7FF4C6A3
+magnet:?xt=urn:btih:5D0DCF3CC4C89A3FC16EC2B5007161E004001908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277683   (784983) от 21.01.2019
+###  Публикация: 1277675   (785069) от 21.01.2019
 
-Андрей Синицын (сост.) | 2084.ru [сборник] (2018) [FB2]
+Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что день грядущий нам готовит?
-Как отличить звон колокольчиков от первых звуков колокола, что «звонит по тебе»?
-Как отличить полет фантазии от предсказания?
-Антиутопия – жанр, получивший в последнее время невероятную популярность. И, вероятно, не в последнюю очередь благодаря тому, что самые мрачные предсказания фантастов имеют обыкновение исполняться. Иногда – почти (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастика, Социальная фантастикаФормат: FB2
+01. The Senectuous Entrance (2:53)
+ 02. In the Presence of Eurus (3:55)
+ 03. Xipe Totec (3:15)
+ 04. Stealing Strength From the Ivory Boar (3:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC52AFD8A805A2DD4BF83384EAD110295D80DD7A
+magnet:?xt=urn:btih:57221767CB27F99AC4F98B5F0F9DB7C5D882950B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +330,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204260   (784982) от 05.02.2018
+###  Публикация: 1277684   (785068) от 21.01.2019
 
-Blindstone - Freedom's Calling (2008) Grooveyard Records, GYR043 [MP3|320 Kbps] <Blues Rock, Funk>
+Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Freedom's Calling 3:16
-02. Can't Be With You 3:49
-03. Fear 3:55
-04. Good Time 4:56(   Читать дальше...   )Жанр: Blues Rock, FunkПродолжительность: 00:59:01
+01. Asphyxiation Through Human Arteries (3:42)
+ 02. Fermented Intestine Warfare (3:52)Жанр: Death MetalПродолжительность: 00:07:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6221A16647A409B18A3027FA1A9EE98825C1B101
+magnet:?xt=urn:btih:6B9456082F60FA1604C63433D92363D45091EBD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,25 +357,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277443   (784981) от 21.01.2019
+###  Публикация: 1277676   (785067) от 21.01.2019
 
-Андрей Иванов | Обитатели потешного кладбища (2019) [FB2]
+Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Художественная литература
->>Современная поэзия и проза
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая книга Андрея Иванова погружает читателя в послевоенный Париж, в мир русской эмиграции. Сопротивление и коллаборационисты, знаменитые философы и художники, разведка и убийства, … Но перед нами не историческое повествование. Это роман, такой же, как "Роман с кокаином", "Дар" или "Улисс" (только русский), рассказывающий о неизбежности (   Читать дальше...   )Жанр: Современная русская литератураФормат: FB2
+01. Oozing Vaginal Discharge (3:53)
+ 02. The Urge to Splurge (1:38)
+ 03. Chamber of Bone (4:28)
+ 04. Anal Action Wife (4:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0489698BCDC258C4DE4CAB14B9B24B879E5A6B14
+magnet:?xt=urn:btih:33F3D01BE79BDD586300876DA087204AAE035BC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,28 +386,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204355   (784980) от 05.02.2018
+###  Публикация: 1277665   (785066) от 21.01.2019
 
-Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
+Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rise Above 5:12
-02. Power Man 3:11
-03. Keep The Rock Alive 3:37
-04. Climbing The Ladder 6:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:41
+01. Beyond Cops (3:56)
+ 02. Reign Supreme (3:09)
+ 03. Sadistic Tortures (5:02)
+ 04. Made in Hell (3:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
+magnet:?xt=urn:btih:A4DB30FB134DCC6955B9B7978A69336057BECA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,28 +415,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277249   (784979) от 21.01.2019
+###  Публикация: 1277669   (785065) от 21.01.2019
 
-Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|320 Kbps] <Indie, Alternative>
+Despondency - Revelation IV (Rise of the Nemesis) (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Electronic
->>Techno, Electro, Minimal
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Immature
-02. Feel It
-03. Love Part II
-04. Waiting For The Feeling(   Читать дальше...   )Жанр: Indie, Alternative, ElectroПродолжительность: 01:52:13
+01. Existence of Dismay (3:47)
+ 02. Victimize Their Idols (4:55)
+ 03. Invidious (4:56)
+ 04. Rise of the Nemesis (5:40)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DBE1B3D70680A1ACE7531F8ECDFEBED7CD058CA
+magnet:?xt=urn:btih:9CC8715DD7A79E6E33950E40F0D5BBBE38EB46FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,244 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277542   (784978) от 21.01.2019
+###  Публикация: 1277611   (785064) от 21.01.2019
 
-Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секретная экспедиция даст вам возможность побывать во всех уголках планеты и найти то, что другие ищут веками. О ваших миссиях практически никто не знает, они совершенно секретны, но хитро расставленные ловушки, то ли самой природой, то ли обычным человеком, говорят о том, что вы не одиноки в поисках. Кто-то хочет вас опередить! Восемнадцать часть приключенческой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6277141BEAC90FA3084759FCB818A7CD1F79EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204380   (784977) от 05.02.2018
-
-VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lossless|tracks] <Progressive House, House,Progressive Trance, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gai Barone – Tanita (Intro Mix) (06:32)
-02. Tannura – Halfway (07:54)
-03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
-04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644B707FB446907C7A48C3BDB7CEA5687016D5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277521   (784976) от 21.01.2019
-
-Томас Бланчард Дьюи | Сборник произведений [3 книги] (1996-2003) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Бланчард Дьюи / Thomas Blanchard Dewey (1915 - 1981) - самый незаслуженно забытый писатель из всех забытых писателей.
-Может быть, потому, что Дьюи, судя по всему, — человек скромный, как говорят сами американцы, частный. Он почти не давал интервью и избегал паблисити, что совсем нетипично для авторов, работающих в популярном жанре.
-Между тем многие влиятельные (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2FD3F7FB3D0FEDD1F9C8F2683BF49263EEDA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204254   (784975) от 05.02.2018
-
-VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
-02.  Talamanca  -  Meditation (Deep Mix)  7:21
-03.  Approaching Black  -  You Are (Original Mix)  8:08
-04.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  6:12(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC449E5DDCC6938C907EFF5B7DA8C57C23B8E7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204214   (784974) от 05.02.2018
-
-Православный подвижник (изд.) | Святые отцы о молитве. Беседы. Наставления. Советы (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как солнце — свет для тела, так молитва — для души». Эти слова святителя Иоанна Златоуста как нельзя лучше отражают насущную необходимость в молитве для каждого человека. Как холодно и темно всему живому без солнечного света, так и человеческие души ходят в потёмках, не имея света молитвы. Надеемся, что эта книга призывающая к молитве всякого читающего её, поможет (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3340B9F3A4CCF65CC0AAD8C11FCFE5599A4328C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277114   (784973) от 21.01.2019
-
-Карлос Руис Сафон | Кладбище Забытых Книг (Книга 3). Узник неба (2014) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барселона, конец 1950-х. Даниэль Семпере, уже знакомый читателю по роману «Тень ветра», по-прежнему владеет букинистической лавкой, в которой работает его друг Фермин. Но чем дальше, тем яснее становится Даниэлю, что Фермина что-то тревожит... Так начинается поразительная, трагическая и захватывающая история третьего романа из знаменитого цикла Сафона «Кладбище Забытых (   Читать дальше...   )Жанр: Драма, неоготикаИздательство: Театр АбукиПродолжительность: 09:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096621732690F9D6CEB160DF759FFCD8FD76B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277516   (784972) от 21.01.2019
-
-Эрнесто Че Гевара | Партизанская война (1961) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд знаменитого Эрнесто де ла Серна (Че), в котором он обобщает свой опыт партизанской войны – как в качестве «вольного стрелка» в небольших отрядах по всей Латинской Америке так и в качестве командира крупного партизанского соединения во время Кубинской революции. Книга ценна тем, что написана через 15 лет после окончания Второй Мировой войны, в которое партизанское (   Читать дальше...   )Жанр: политическая, военная, историческаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF6DE1C22CEB777C41A282088E35F51E41F57FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204189   (784971) от 05.02.2018
-
-А. Г. Слуцкий | Парижская Коммуна 1871 г. (1964) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа является кратким научно-популярным очерком по истории Парижской Коммуны 1871 г.— первого опыта диктатуры пролетариата. Основанная на широком круге источников — официальных изданий Коммуны, протоколов ее заседаний, прессы, мемуарной литературы, книга учитывает выводы и достижения современной передовой исторической науки, в особенности советской школы (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE9120191210754121FAC59FE66BB6726043ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204345   (784970) от 05.02.2018
-
-PDF Expert 2.2.20 [Multi/Ru]
+FSNotes 2.6.0 [En/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Expert - лучший редактор файлов PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F059D2BC09C3E5EC4B97388CD49506DFFE229886
+magnet:?xt=urn:btih:117BB46776537B12748CF7253EACB443C63CAE88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,26 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276907   (784969) от 21.01.2019
+###  Публикация: 1277622   (785063) от 21.01.2019
 
-Клиффорд Саймак | Кукла судьбы (2019) [MP3]
+SQLPro Studio 1.0.335 [En]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько совершенно разных по характеру человек: прожига-космонавт, богатая авантюристка-охотница , святой отец и фанатичный, полубезумный слепец пускаются в авантюрное путешествие, следуя слепому поиску в надежде отыскать нечто необыкновенное. И достигнув нужной планеты, находят для себя свой жизненный путь, выбрав который каждый получают своё.
-Человек во вселенной... (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:56:33
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и OracleТип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CFC0CE107C479835F1C78C24844FB5181328FD8
+magnet:?xt=urn:btih:7D3F9B4E69E01D148360C6BB548200EBBC6213CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277701   (784968) от 21.01.2019
+###  Публикация: 1277712   (785062) от 21.01.2019
 
-Simon & Garfunkel - Parsley, Sage, Rosemary And Thyme (1966) SACD, Hybrid, 2018, Reissue, Remastered [FLAC|Lossless|image + .cue] <Folk Rock>
+Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scarborough Fair / Canticle (3:14)
- 02. Patterns (2:46)
- 03. Cloudy (2:16)
- 04. Homeward Bound (2:33)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:28:51
+01. Go (01:41)
+02. Pressure (03:15)
+03. Sun Come And Golden (03:35)
+04. Material (03:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03940A9AA5D8AAC13C5AC4C1E345B9D36A26F61F
+magnet:?xt=urn:btih:03C2BFEC81EB770CBCB8BB2840B38FF3D65096C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,27 +525,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204446   (784967) от 05.02.2018
+###  Публикация: 1277604   (785061) от 21.01.2019
 
-Янник Гранек | Богиня маленьких побед (2018) [MP3]
+Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удивительная история любви и самопожертвования. Монументальное полотно о жизни Курта Гёделя, гениального математика и философа науки.
-Дебютный роман писательницы Янник Гранек моментально стал бестселлером во Франции и покорил сердца миллионов читателей во всем мире.
-Молодая исследовательница Энн Рот приезжает в пансионат для пожилых людей с целью добыть архивы Курта (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 17:27:42
+01. One For Ken [5:20]
+02. Groove Awakening [5:03]
+03. Enka [11:06]
+04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E443B33B2C7603C58DF42667EF209208A0513CB
+magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277651   (785060) от 21.01.2019
+
+myTracks 3.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785060.jpg" />
+</div>
+
+
+###  Подробнее
+
+myTracks — удобный геотаггинг фото
+myTracks — замечательная программа, которая будет полезна многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский, Датский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0854B35FB97F72FAB2087EC3654BFEA5CBA29A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277743   (785059) от 21.01.2019
+
+VA - German Top 50 Party Schlager Charts 21.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. Kerstin Ott - Regenbogenfarben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904A3C752ACE2E852C968F6C33A6A7CAA4657B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389014   (785058) от 08.06.2020
+
+Мой папа – супергерой / Copperman (2019) BDRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия, Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), ИтальянскиеПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F387DEF1C4E1D5F38AB0EE5E54A07FDE8754340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388817   (785057) от 08.06.2020
+
+Псы 3: Во имя правил / Psy 3: W imie zasad (2020) HDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно знакомый герой культовой саги о полицейских и сотрудниках Службы Безопасности, Франс Маурер выходит на свободу после 25 лет в заключении. Страна изменилась до неузнаваемости, а вместе с ней - сменились и враги...Производство: Польша / Wonder Studio, Polsat, Cyfrowy PolsatЖанр: Боевик, драма, криминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марчин Дорочиньский, Цезарий Пазура, Ян Фрыч, Себастьян Фабияньский, Томаш Шухардт, Мирослав Бака, Доминика Вало, Артур Жмиевски, Войцех ЗилинскиПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 02:04:58Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE234923E01B1913C2E0F2110A4E9811ED61ABFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388849   (785056) от 08.06.2020
+
+Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновляемая)
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в 1940-е годы. В Европе бушует война, США готовится вступить в бой, а бандиты обстряпывают свои делишки, как и всегда. Но сейчас они зашли слишком далеко даже по меркам Винни. Вы сделали шокирующее открытие о том, что же на самом деле случилось в последней сцене из Guns, Gore & Cannoli 1 — бойни в городе бандитов, — а теперь вам надо отправляться (   Читать дальше...   )Тип издания: RepackРазработчик: Crazy Monkey Studios, ClaeysbrothersЖанр: Arcade, Indie, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20372E4EA90F20FBD5DD82F3CD4D90A84048A9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373184   (785055) от 08.06.2020
+
+Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] BDRemux 1080p raw+rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785055.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Виолетта Эвергарден: Вечность и призрак пера» изображает жизнь Изабеллы Йорк, благородной девушки и наследницы дома Йорков, которая вынуждена своим отцом посещать школу для привилегированных молодых особ. Несмотря на внешнюю красоту школы, она для неё не более чем тюрьма, потому что она задыхается в её стенах. Потеряв всякую надежду, она встречает Вайолет Эвергарден, (   Читать дальше...   )Производство: Kyoto AnimationЖанр: ПриключенияРежиссер: Фудзита ХарукаЯзык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877643064085A3DD96F7A4D8F41867C7BFC47491
 ```
 
 https://mybot314.ru/tekegram_catalog/

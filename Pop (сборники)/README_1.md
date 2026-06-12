@@ -1,3 +1,90 @@
+###  Публикация: 1863868   (1063157) от 06.04.2026
+
+VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
+02. Italove - At The Disco (Also Playable Mono Remix) (6:10)
+03. Carino Cat - Passion Of Love (Extended Version) (6:40)
+04. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:32)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 04:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D255A278075979A98CC21C1E5DB52B40629EA63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863970   (1063082) от 07.04.2026
+
+Ai - No Name Compilation Simply listen music Part 85 old songs in a new way (2026) [MP3|320 Kbps] <Cover, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не Надо ( Сергей Кузнецов (Проект Лёха))
+02 - Осень (Маленький Принц)
+03 - Я Больше Не Прошу (Мираж)
+04 - Безумный Мир (Мираж)(   Читать дальше...   )Жанр: Cover, PopПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099F2F0DE97DFAB57F685E46E09FCCA9322163A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864009   (1063033) от 07.04.2026
+
+VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современной обработке (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Вне Времени- Два кусочека колбаски [03:34]
+02.KulMuzika- Пазишен Намба Уан [07:31]
+03.Aleks-Audio- Перекрёсток (Ты ушла рано утром) [04:39]
+04.Master Factory- Девочка Сегодня в Баре [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB1AAF59B564F5DBFF5CA2576737798CDF34998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861054   (1062183) от 24.03.2026
 
 Eurythmics & Annie Lennox - Compilation (1979-2018) [MP3|320 Kbps] <Pop, New wave, Synth-pop>
@@ -658,93 +745,6 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846021   (1051027) от 04.01.2026
-
-VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lyriq - Oh My Love (2:56)
-02. Katy Perry - bandaids (3:08)
-03. Полина Гагарина - Полина (3:30)
-04. Taylor Swift - The Fate of Ophelia (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845298   (1050702) от 31.12.2025
-
-VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050702.jpg" />
-</div>
-
-
-###  Подробнее
-
-С интересом наблюдаю, как в умах и сердцах просыпается Родина и отечественные музыканты меняют вектор развития творчества. Постепенно уходя от подражательства новодельной западной шляпы и всякой навязанной чуши, вроде мямлей и блеяния. Ищут и вырабатывают именно наш стиль и звучание. И это в масштабах всей страны. Много ерунды конечно творят, не без этого. Но как (   Читать дальше...   )01. Валя Карнавал - Мы в клуб
-02. R.Riccardo & Nabolelo - Зима пришла
-03. Григорий Лепс - Рок-н-ролл в кармане
-04. Элвин Грей & Скани - Письма(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843696   (1049547) от 21.12.2025
-
-Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Déjà Vu
-02 - Lucifer
-03 - I Am Safe Inside Your Heart
-04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
 ```
 
 https://mybot314.ru/tekegram_catalog/

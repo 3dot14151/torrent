@@ -1,90 +1,3 @@
-###  Публикация: 1366290   (923562) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366524   (922336) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922336.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366462   (922247) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922247.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366609   (922242) от 12.03.2020
 
 Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -742,6 +655,90 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104121   (881710) от 14.02.2017
+
+VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (07:32)
+02. Your Greatest Enemy (02:42)
+03. The Arrival of Robin (02:52)
+04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893E9EC4D66D227258C3F473F851FEBBB1AB149A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996523   (878978) от 14.03.2016
+
+Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с] <Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (03:48)
+02. Their War Here (04:37)
+03. The Red Capes Are Coming (03:33)
+04. Day of the Dead (04:03)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186871   (878432) от 27.03.2010
+
+V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 09:20:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

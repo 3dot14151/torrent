@@ -1,3 +1,30 @@
+###  Публикация: 1008436   (815088) от 18.04.2016
+
+Шаблоны - Фотокнига - Photobook Hello Winter [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815088.jpg" />
+</div>
+
+
+###  Подробнее
+
+зимняя фотокнига.
+Автор: FotcaФормат: PSDРазрешение файлов: 7205x3602 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF73E3B223E0B1383F0D226429D64C46B3C40BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008423   (814982) от 18.04.2016
 
 Шаблоны - Фотокнига - Romantic photobook love beautiful [PSD]
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F33B72E2B2CAE8807D80F0D7F26F1F7C06760F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212144   (776338) от 10.03.2018
-
-Шаблоны - GraphicRiver - Art Perfectum - 21094994 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Perfectum - простой в использовании шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE2E087586BE2BE7F54076BCA580DCDDDB9C024
 ```
 
 https://mybot314.ru/tekegram_catalog/

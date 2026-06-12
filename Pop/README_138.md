@@ -1,3 +1,154 @@
+###  Публикация: 516329   (653117) от 28.06.2012
+
+Serebro - Mama Lover (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise
+02. Like Mary Warner
+03. Song #1
+04. Angel Kiss
+05. Mama Lover
+06. Why?
+07. Gun
+08. Bastard
+09. Never Be Good
+10. Sexing You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C779BF45E10CFCC1CCFBA69F0505D0429337E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904412   (652872) от 04.06.2015
+
+Disco Giants - Volume 1-10 (2013) 20CD Box Set [FLAC|image+.cue]<Disco, Soul, Funk, Synth-Pop, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Overboard • Gladys Knight And The Pips 05:59
+02. Back & Forth • Cameo 06:25
+03. I Didn't Mean To Turn You On • Cherrelle 06:23
+04. Guilty • Yarbrough & Peoples 06:03(   Читать дальше...   )Жанр: Disco, Soul, Funk, Synth-Pop, ElectronicПродолжительность: 20:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CF311A71B53D9C49FB8BA6B40CC4E8247C8A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904839   (652868) от 04.06.2015
+
+Скрябін (Скрябин) - Дякую люди (Останній запис) (2015) Live [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пусти мене
+02. Train
+03. Модна країна
+04. Цукор(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF6D200DF1E3B71ED0D92EAA0CE2A39E7D209B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904432   (652802) от 04.06.2015
+
+Верка Сердючка - ГидроПарк (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гидропарк (помада алая)
+02. Розовый свитер
+03. Смайлик
+04. Караганда (feat. Лайма Вайкуле и Потап)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78281350DC01E1033E60F3E728B63DC83A7A6183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291711   (652488) от 26.03.2019
+
+VA - Classic Pop Ballads (2019) [MP3|320 Kbps] <Pop, Downtempo, SoftRock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - I Want To Know What Love Is 4:58
+02. Julee Cruise - Falling 5:22
+03. The Cars - Drive 3:55
+04. Gabrielle Aplin - The Power Of Love 4:05(   Читать дальше...   )Жанр: Pop, Downtempo, SoftRockПродолжительность: 01:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56A36C560C4D26A29D897485DB78739A1C17EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291704   (652482) от 26.03.2019
 
 VA - NRJ Hit Music Only (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
@@ -598,148 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A7678508A301E7B7E196A289E41C0F35FA9DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031879   (649348) от 05.07.2016
-
-Моя Мишель - Ты мне нравишься (2013) [FLAC|Lossless|image + .cue] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Радиоволны
-02. Ди Джеи
-03. Все оттенки красного
-04. Гудини(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00: 45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B01A1A81BC8E475914458EA520B2F5729A0B9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031844   (649339) от 05.07.2016
-
-Игорь Николаев - Лучшие песни. Новая коллекция (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НезнакомкаЖанр: PopПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031946   (649333) от 05.07.2016
-
-Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Theme from Odyssey Part 1    03:24
-02.  Riding On A Train    04:06
-03.  Into The Light    04:20
-04.  Let Yourself Go!    03:22(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032015   (649325) от 05.07.2016
-
-Натали - О, Боже, какой мужчина! (2016) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Володя
-02. Замуж за лето
-03. Платье на бретелях
-04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B13376EF8FDF2EC7950C1E3FBA78FC30D7E86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032012   (649121) от 05.07.2016
-
-Натали - О, Боже, какой мужчина! (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Володя
-02. Замуж за лето
-03. Платье на бретелях
-04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

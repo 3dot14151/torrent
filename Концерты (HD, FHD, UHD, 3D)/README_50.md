@@ -1,3 +1,32 @@
+###  Публикация: 1794000   (18093) от 16.05.2025
+
+Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в рамках тура "Sheffield Tour" 25 октября 2000 года во дворце спорта «Лужники». На разогреве тогда выступал DJ Balloon, который также выходил на сцену во время исполнения Hyper Hyper.01. MC's missing
+02. Watch out
+03. Space cowboy
+04. I'm your pusher(   Читать дальше...   )Производство: РоссияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796341   (18087) от 16.05.2025
 
 Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made upscale AI]
@@ -682,36 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813775   (6645) от 21.08.2025
-
-NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6645.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
-Запись концерта в честь пятилетия группы, прошедшего 17.02.2024 в Nippon Budokan.1. RISE
-2. 鬼灯
-3 .雷霆 -RAITEI-
-4. ZEN(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FB096C7B0F08762827869493C63F9B9DD59404
 ```
 
 https://mybot314.ru/tekegram_catalog/

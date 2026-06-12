@@ -1,3 +1,30 @@
+###  Публикация: 930085   (517294) от 21.08.2015
+
+Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Carry On   (3:37)
+02.  Oublie-moi   (3:35)Жанр: PopПродолжительность: 00:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 375833   (513164) от 14.08.2011
 
 Modern Talking - Romantic Dreams (1988) [FLAC|Lossless]<EuroPop, Synth-pop, Disco>
@@ -747,35 +774,6 @@ E-Type (Bo Martin Erik Eriksson) - Профессионально занимае
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961140   (300637) от 01.12.2015
-
-Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro House, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give My Life (3:57)
-02. Venus and Mars (3:31)
-03. My Army of Lovers (3:28)
-04. Ride the Bullet (3:27)(   Читать дальше...   )Жанр: Leftfield, Euro House, DiscoПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7576F7F59C25EEEA6B66AA2438CF564230BAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

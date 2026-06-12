@@ -1,3 +1,133 @@
+###  Публикация: 562559   (405576) от 19.10.2012
+
+Digital Juice - Jump Backs SD 51: Reflective Thoughts (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7E95D48A2B0DBF07EC407433D703FC407CB0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562557   (405575) от 19.10.2012
+
+Digital Juice - Jump Backs SD 53: High Impact X (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A63A6D5EB3B456646DE8682AD005877DEC7570D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562558   (405574) от 19.10.2012
+
+Digital Juice - Jump Backs SD 52: All Fire (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F172012830910C46B7F85DFF75142BE424C97A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562550   (405571) от 19.10.2012
+
+Digital Juice - Jump Backs SD 57: Chromed Themes (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46993BD4BA563F78F98F65C681DB28FD0686F0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562577   (405569) от 19.10.2012
+
+Digital Juice - Jump Backs SD 38: Law & Order (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2031FD7539363CFA119D4CCB7221166E65FE39BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562555   (405564) от 19.10.2012
 
 Digital Juice - Jump Backs SD 54: Fierworks (Full ISO)
@@ -538,136 +668,6 @@ Editor's Toolkit Pro Single Single 164: Future Damage - Коллекция аб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:471E244C604219F8B367FD7B080CEDFDAFCD30B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566767   (394810) от 31.10.2012
-
-Digital Juice - Jump Backs SD 26: Future Tech (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BB196182DE79B47AFACC5F2A1CA510FDBE1536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567704   (393755) от 01.11.2012
-
-Digital Juice - StackTraxx 08: Fifties Stacks (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice StackTraxx - это многослойная музыка с  различными музыкальными стилями, предназначенными для озвучки телепрограмм, фильмов, производства рекламы, и т.п. В образе ISO каждого диска от 40 до 60 произведений в едином стиле, каждое из которых в свою очередь состоит из пяти музыкальных файлов, разных по времени воспроизведения (полный размер, 60, 30, 15 и 10 секунд) . Любой выбираемый файл в своей структуре несёт от 4 до 7 музыкальных инструментов (треков, слоёв) , который можно выключить или включить в любой момент, программной оболочкой производителя  Juicer 3.89b Build 248Язык интерфейса: EnglishФормат: ISO (*.stx)Продолжительность: 1:00, 0:30, 0:15 and 0:10 Broadcast Cuts
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566748   (391826) от 03.11.2012
-
-Digital Juice - Jump Backs SD 18: Extrime II (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE64201B8A3EAC261498C059A670EDD5CDFB8E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566750   (391750) от 03.11.2012
-
-Digital Juice - Jump Backs SD 19: Extrime III (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F08C9B958C728A7648BB7BB49662648C9151C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569393   (391402) от 03.11.2012
-
-Digital Juice - Editor's Toolkit Standart 07: Wedding Tools II (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Editor's Toolkit Standart 07: Wedding Tools II - тематический сборник анимированных фонов и шаблонов, содержащий множество отдельных элементов, в нескольких вариаций каждый продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EBC0AD191FD796FD579BB7DF6D3F3076A65871
 ```
 
 https://mybot314.ru/tekegram_catalog/

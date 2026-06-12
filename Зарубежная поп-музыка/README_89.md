@@ -1,3 +1,107 @@
+###  Публикация: 466103   (81450) от 11.03.2012
+
+Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/с]<Eurodance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry, Baby (Long Version)
+02. No Ordinary Love (Eurodisco Promo Mix)
+03. Soldier (Extra Dance Beat Version)
+04. Stay With Me (Eurodisco Long Version)
+05. One Thing (Extra Dance Beat Version)
+06. Can`t Give You Anything (Slow Down Eurodisco Mix)
+07. Gigolo (Moscow Fm Mix)
+08. The Sweet Hello The Sad Goodbye (Extra Dance Beat Version)
+09. Stay With Me (Air Piano Instrumental)2012Жанр: EurodanceПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466110   (81425) от 11.03.2012
+
+2 Unlimited - The Very Best Of 2 Unlimited (1995) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Do What's Good For Me
+02 No Limit
+03 Get Ready For This
+04 Twilight Zone
+05 No One
+06 Jump For Joy
+07 Tribal Dance
+08 The Magic Friend
+09 Workaholic
+10 Let The Beat Control Your Body(   Читать дальше...   )1995Жанр: EurodanceПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466076   (81385) от 11.03.2012
+
+Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give A Little Love
+02. All I Wanna Do
+03. Coco Jambo
+04. Space Gate
+05. Up'N Away
+06. Cachito Bandito
+07.Hasta Manana
+08. Where The Sun Goes Down
+09. F.B.I.
+10. I Won't Let U Down(   Читать дальше...   )2000Жанр: EurodanceПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465083   (81043) от 09.03.2012
 
 Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
@@ -701,93 +805,6 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775632   (71374) от 28.01.2025
-
-VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jacksons - Blame It on the Boogie
-02. McFadden & Whitehead - Ain't No Stoppin' Us Now
-03. The Gap Band - Say Oops Upside Your Head
-04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD99B6EA5EB972AD06715B755B888A9D05552A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775687   (71371) от 28.01.2025
-
-VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritchie Family - The Best Disco In Town
-02. Gloria Gaynor - Never Can Say Goodbye
-03. Kool & The Gang - Celebration
-04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB16539F317FB6C34ACEC464E7BFCE518D7D493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776551   (71225) от 01.02.2025
-
-VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valerie - The Night
-02. Good Vibes - Survivor
-03. Cascada Feat. Mirabella - Fotonovella
-04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442330AA72B28E82F625146C1A9DAB4063C67CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

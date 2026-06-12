@@ -1,3 +1,90 @@
+###  Публикация: 1430445   (173900) от 10.12.2020
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HALIENE - Walk Through Walls (Markus Schulz Extended Remix)
+02. Markus Schulz & Adina Butar - In Search Of Sunrise (Dream Sequence Extended Remix)
+03. JES - Two Souls (Andy Moor Extended Remix)
+04. The Blizzard & C-Systems - Dark Days (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B648E90E656863D7CA45034465D27F2DF44D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430450   (173658) от 10.12.2020
+
+VA - Vocal Trance Gems: Best Of (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 S'trings feat. Susanne Teutenberg - Ocean Wave (Original Mix)
+02. James Dymond & Susana - Is It Too Late (Original Mix)
+03. Fenna Day - Skin & Bone (F.G. Noise Remix)
+04. Ana Criado - In A Thousand Skies (Dan Stone Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C858EFB09B956D224597D25D7683B034D21652A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826989   (173522) от 19.10.2025
+
+VA - 25 Years Of Anjuna Mixed by Trance Wax (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Wax - Calling For You (Push Extended Mix) [7:44]
+02. Stephen J. Kroos - Formalistick (Extended Mix) [6:43]
+03. Mark Pledger - On The Edge (Original Mix) [8:28]
+04. P.O.S - Amnesiac (Original Mix) [6:12](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F19C444BC35DD33BB78C32F8B13F91C87A5AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668938   (173202) от 14.10.2023
 
 VA - Black Hole Trance Music 10-23 (2023) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Trance Party 2022 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F22E64F7EE3A344BCB9F487F20271773EE4B7D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345238   (167526) от 14.12.2019
-
-VA - Progressive Miami (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Alexander Popov Extended Remix) 5:09
-02. Front & Denis Sender - Purple Bird (Original Mix) 3:06
-03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 5:30
-04. Dennis Graft - Minsk (Extended Mix) 5:27(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96351B0F3C5F06971577AAD0D8BF1F5C1B6B5657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673432   (165346) от 01.11.2023
-
-VA - Deep Trance Showcase II (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pico Boulevard - Society (Original Mix) [9:07]
-02. Enlusion & Soundbreeze - Starchitects (Original Mix) [8:38]
-03. You Are My Salvation - Remnant (Original Mix) [9:56]
-04. Rick Pier O'Neil - Haurun (Nomas Remix) [7:19](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD998C39BBDF72FADE210A4F0F7A3C7A6541979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597902   (165168) от 16.12.2022
-
-VA - FSOE 750 - Kings & Queens (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Gillies - Nostalgia (Extended Mix)
-02. Billy Gillies - Density (Extended Mix)
-03. George Acosta & Fisher - True Love (Billy Gillies Remix)
-04. Billy Gillies - Lovesick (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A7BC560EBC2AA5E97CE798A088E8AE3663C475
 ```
 
 https://mybot314.ru/tekegram_catalog/

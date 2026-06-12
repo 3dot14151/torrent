@@ -1,32 +1,3 @@
-###  Публикация: 1126265   (766170) от 17.04.2017
-
-J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия 80-минутной сессии, записанной в Лос-Анджелесе в июне 1979 года, но фактически отсутствовавшей в поле зрения меломанов вплоть до 2001 года. Отшельник Кейл – уроженец Оклахомы. В большей степени известность ему принесли песни, написанные им, но ставшие популярными, благодаря другим исполнителям ("After Midnight"и "Cocaine"Эрика Клэптона (   Читать дальше...   )1. T-Bone Shuffle
-2. Nowhere To Run
-3. Cocaine
-4. Ten Easy Lessons(   Читать дальше...   )Производство: Classic Pictures EntertainmentЖанр: Bues, RockРежиссер: Robert GarofaloАктеры: J.J. Cale,Leon Russell & BandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9102BB70154C0825801D59E8A963B62029896F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214132   (765711) от 20.03.2018
 
 Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) 2xDVD5 [Custom]
@@ -738,6 +709,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024290   (713803) от 10.06.2016
+
+Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Брайана Ферри 25.07.2011 на Nuits de Fourviere Festival в лионском колизее в ходе мировых гастролей 2011 года Ferry's Olympia tour.01. I Put a Spell On You
+02. Slave to Love
+03. Don't Stop the Dance
+04. Just Like Tom Thumb's Blues(   Читать дальше...   )Производство: Eagle VisionЖанр: МузыкальныйРежиссер: Fabien RaymondАктеры: Bryan Ferry & bandПеревод: ОтсутствуетПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004820E36ECEAE11D70619E3C4DCEBACCBC4E547
 ```
 
 https://mybot314.ru/tekegram_catalog/

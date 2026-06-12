@@ -1,3 +1,32 @@
+###  Публикация: 1254012   (377162) от 12.10.2018
+
+VA - Private Dance: Jazz & Blues (2018) [MP3|320 Kbps] <Jazz, Blues, Romantic>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Mike Griffin - He Can't Do It
+002. Goce Stevkovski Septet - Monday
+003. Brad Kelsey - Nasty Weather
+004. Marty Elkins - Day In, Day Out(   Читать дальше...   )Жанр: Jazz, Blues, RomanticПродолжительность: 09:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3330A71F470DE8611FF5C292D65D5738472A44A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253900   (377157) от 12.10.2018
 
 VA - Зайцев.нет Лучшие новинки Октября 2018 [MP3|320 Kbps] <Pop>
@@ -746,35 +775,6 @@ VA - Dub-Pack - Week 11 (2012) [MP3|320 кб/с]<Dub-Step>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C50B18A95AA9F4B9429D302A311AC0A71618C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175642   (376133) от 19.10.2017
-
-VA - Men Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter Green Splinter Group - Crawlin' King Snake  5:38
-02.  Boogie Beasts - Coming Home To You  4:58
-03.  United Rhythms Of Brazil - Missing  2:50
-04.  Steve Fawcett - Shadows  2:20(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B4D41CB4F276ED8492A1312B2877EE6A6FE039
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1155417   (533348) от 03.08.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 507 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.London & Niko - Burning Down (Noel Sanger Remix)
+02.L.S.G. - Netherworld (Rise And Fall Remix)
+03.Solid Stone & Michael Gin - Xonic
+04.Solid Stone - Watchmen(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF090B83F835ED95BECA3D3384ACD540FB5858E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239537   (533241) от 08.08.2018
+
+Modjo - Lady (Hear Me Tonight) (2000) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady (Hear Me Tonight) (Radio Edit) (3:46)
+02. Lady (Hear Me Tonight)	(5:05)
+03. Lady (Hear Me Tonight) (Roy's Universal Soldiers Mix) (5:10)
+04. Lady (Hear Me Tonight) (Remix) (7:07)Жанр: HouseПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D3808BB30BA1846DB5360F6418E40D76555B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151960   (533230) от 03.08.2017
 
 Alex Humann - Discography 7 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House>
@@ -683,64 +741,6 @@ Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312708   (530952) от 05.07.2019
-
-Richard Clayderman - When Love Songs Were Love Songs (1992) [MP3|320 Kbps] <Easy Listening, Instrumental Pop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bewitched (3:36)
-02. Embraceable You (2:34)
-03. Stardust (3:59)
-04. Night & Day (2:48)(   Читать дальше...   )Жанр: Easy Listening, Instrumental PopПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51081B13FDD8C602360DD3423EC35633DF28D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312654   (530819) от 05.07.2019
-
-VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Dymond feat. Susana - Love You Are Made Of (Extended Mix)
-02. Maria Nayler - Angry Skies (James Dymond Extended Mix)
-03. Allen & Envy feat. Neev Kennedy - Without You (Dan Stone Remix)
-04. Sneijder feat. Jess Morgan - Sky Is On Fire (Kaimo K Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6465337A56E067E5050829C33C736472BE51AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

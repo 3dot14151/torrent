@@ -1,3 +1,29 @@
+###  Публикация: 1689341   (124825) от 01.01.2024
+
+FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 18.12.2023Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD43BFD2A627E544563F390B86445469C47189D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689377   (124798) от 01.01.2024
 
 Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E20E377D84D37D0BCA681D74188CC44BF315A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691623   (123171) от 13.01.2024
-
-jetAudio HD Music Player Plus v12.1.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123171.jpg" />
-</div>
-
-
-###  Подробнее
-
-jetAudio это музыкальный проигрыватель с 10/20 полос эквалайзера. В каталоге CNET.COM программа jetAudio для Windows занимает среди мультимедийных проигрывателей лидирующие позиции по рейтингу и загрузкам. И, наконец, настал тот час, когда музыку можно слушать в потрясающем качестве на Android-телефоне благодаря приложению jetAudio. jetAudio проигрывает практически (   Читать дальше...   )Тип издания: Plus / Extra ModРелиз состоялся: 03.01.2024Разработчик: Team JetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7DA300DD00055E5767466F0125FAB6BFDAF174
 ```
 
 https://mybot314.ru/tekegram_catalog/

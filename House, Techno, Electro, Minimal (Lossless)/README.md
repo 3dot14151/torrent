@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1875169   (1072592) от 
+
+Robert Miles - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Children - 6:58
+02 - Fable - 6:30
+03 - Fantasia - 5:36
+04 - Landscape - 6:08(   Читать дальше...   )Жанр: HouseПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC8FBAE4E15B772FB61CFD295367C8A7C456ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875095   (1072303) от 
+
+VA - Ibiza Summer 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly - Running to You (4:59)
+02. Charles & Carmichael - Talk to me (3:13)
+03. Coskun Karaca - The Way (3:37)
+04. Jay Drezz - On My Own (2:55)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B65603DCC505B43E95FD90C391436290D6D885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874800   (1072124) от 
 
 VA - Armada Music - Miami 2026 - Club Essentials [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -688,64 +746,6 @@ VA - Ibiza Afro Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4E40823D672092EE88140D4AC58CEF590954215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858043   (1060337) от 09.03.2026
-
-DJ Slon (Олег Азелицкий) - 5 Albums (2022-2026) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Experimental, downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DJ Slon и Жуткий Лазер (2022) Album №1
-DJ Slon (Олег Азелицкий) (2024) Современник из Питера
-DJ Slon (Олег Азелицкий) (2025) Acid Rain On Dessa(   Читать дальше...   )Жанр: Techno, IDM, Experimental, downtempoПродолжительность: 5 CD, 05:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE26A5931B7D1A94EC762D67226C90904FC7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858288   (1060322) от 09.03.2026
-
-VA - Afro Beach Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Before The Light (2:40)
-02. N.E.O.N - Silent Night (3:42)
-03. Elegant Ape - Moving through the night (4:44)
-04. Elegant Ape - We Are One (5:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA65DC51BE4867142A61580A22A0645BBF77F528
 ```
 
 https://mybot314.ru/tekegram_catalog/

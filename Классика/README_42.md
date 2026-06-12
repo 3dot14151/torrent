@@ -1,32 +1,3 @@
-###  Публикация: 249423   (300610) от 26.10.2019
-
-Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrumental, New age, Relax, Neoclassical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состояние на 04.01.2015:
----Добавлены новые альбомы:
-1993 - Follow Me Homeм (320 кб/с)
-2005 - Spring Rain Piano And Rainfall (320 кб/с)(   Читать дальше...   )Жанр: Instrumental, New age, Relax, Neoclassical, PianoПродолжительность: 14:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DBF806766F708E036254CEC01AC8F4600AA165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077977   (300010) от 01.12.2016
 
 Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .cue] <Oratorio>
@@ -745,6 +716,35 @@ Jennifer Thomas - Illumination (2012) [FLAC|Lossless|WEB-DL|tracks] <Classical C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F5B4A97A673CDA13DDEB142A931FF9CA5C0A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080997   (286081) от 08.12.2016
+
+Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory Of Byzantium (1994-2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286081.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске духовные распевы 15 века в аутотентичном исполнении греческого хора чередуются с Богослужебными песнопениями  в исполнении Дивны Любоевич и хора Melodi под ее управлением.
+1. Hail Mary, Luke 1, 28 and 42. Byzantine chant (at vespers) (1:43)
+2. Sticheron of the Vespers of the Dormition of the Mother of God (2:51)
+3. Hail Mary, Luke 1, 28 and 42. Byzantine (   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
 ```
 
 https://mybot314.ru/tekegram_catalog/

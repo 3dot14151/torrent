@@ -1,32 +1,3 @@
-###  Публикация: 1241278   (520958) от 16.08.2018
-
-Сборник клипов - Promo Only Hair Bands from ALEXnROCK 2 (2006) WEBRip [H.264/720p-LQ] [hand made 'реставрация']
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошел самый добротный хард рок 80х. Это единственный лицензионный сборник выпущенный на двд, достойного содержания в котором почти ничего не нужно менять. Сборник состоит из 4х частей. Это 2я. Сделал легкий ремастеринг видео, звук не трогал. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Intro
-01 Ozzy Osbourne - Crazy Train
-02 Motley Crue - Smokin' In The Boys Room
-03 Judas Priest - Living After Midnight(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673272A393D00013BE3C126C0C1EBB5A870816BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534408   (520341) от 13.08.2012
 
 Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
@@ -407,6 +378,32 @@ EMERSON LAKE & PALMER "Live at the Royal Albert Hall" (1993) DVDRip
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373497   (517443) от 10.08.2011
+
+Король танца - возвращение Майкла Флетли / Lord of the Dance - Michael Flatley Returns (2011) BDRip 1080 p
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка,танцыПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29677D8EA7B3B92B0EE6D7DBA40457B82B03FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

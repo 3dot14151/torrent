@@ -1,3 +1,32 @@
+###  Публикация: 19013   (1027979) от 04.03.2021
+
+The Best of Paul Mauriat 10 CD
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027979.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01 BEGIN THE BEGUINE '90
+02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454438   (1026120) от 16.03.2021
 
 Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
@@ -729,32 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189811   (861059) от 06.04.2010
-
-Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

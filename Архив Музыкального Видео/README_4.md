@@ -1,3 +1,110 @@
+###  Публикация: 535802   (515865) от 17.08.2012
+
+Leticia - Join The Party (In My Boat) ft. Juan Magan (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510DEA9D6B9E0F33488526E2A77FCA61725407D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930416   (515071) от 23.08.2015
+
+Телешоу 50x50 (1998) SATRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515071.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 90-х годах появилась молодежная развлекательная передача "Зебра", а ее составным звеном было телешоу "50/50", воспринятое скептиками с подозрением, так как количество музыкальных программ и так зашкаливало по эфирным рейтингам, но постепенно сама программа и в большей степени именно ее часть - "Телешоу 50/50" стала народной (   Читать дальше...   )01. Блестящие "Там, только там"
+02. Дюна "Костюмчик"
+03. Андрей Губин "Дай мне слово"
+04. Каролина "Богатый дедушка"(   Читать дальше...   )Производство: Россия, ТЛФ "50X50"Жанр: МузыкальныйРежиссер: Игорь ЧерновПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312F71C39345E8DDEA40157851F93A44CB6187AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536712   (509786) от 23.08.2012
+
+Christian De La Playa - Parallel Universe (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ProgressiveПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103A1F8D6B82D0D3B08FFAAEB367D00AB3FC79DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536835   (509768) от 23.08.2012
+
+Ebru Gundes - Sen Yoluna Ben Yoluma (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124E153E451F7F0D34429AD3CED7CCE68B40E624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536836   (509763) от 23.08.2012
 
 DJ Rhiannon - All The Girls Do It (2012) [H.264/1080р] WEBRip
@@ -144,6 +251,43 @@ https://mybot314.ru/tekegram_catalog/
 
 Фильм-спектакль Киевского Государственного академического украинского театра им. Ив. Франко г.Киева по пьесе А.Корнейчука "В степях Украины".
 О двух председателях колхозов, друзьях, боевых товарищах - Чесноке (Дмитрий Милютенко) и Галушке, которые по-разному управляют колхозным хозяйством и каждый считает свой метод правильным.Жанр: КомедияРежиссер: Гнат (Игнатий) Юра, Тимофей ЛевчукАктеры: Дмитрий Милютенко, Юрий Шумский, Любовь Комарецкая, Василий Дашенко, Варвара Чайка, Надежда Новацкая, Николай Яковченко, Виктор Добровольский, Ольга Кусенко, Алексей Омельчук, Иван Маркевич, Константин Кульчицкий, Габриэль Нелидов, Николай Панасьев, Петр СергиенкоПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 232178   (508272) от 01.09.2010
+
+Classic Rock High Voltage Festival (2010) [1080i] HDTV
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_508272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пеппер Кинан из Down говорит: “Classic Rock и Metal Hammer  - два моих любимых журнала, и я с нетерпением жду феста High Voltage. Учитывая, что оба этих журнала участвуют в организации, этот фест точно должен быть лучшим».
+
+High Voltage is the must-see rock event of 2010 – a two-day festival featuring the very best in classic rock, progressive rock and metal, with over 40 acts handpicked by the UK’s fastest-growing music magazine, Classic Rock.1. Foreigner: Urgent
+2. Foreigner: Feels Like the First Time
+3. The Answer: Under the Sky
+4. Asia: I Believe
+5. Asia: Heat of the Moment
+6. Focus: Hocus Pocus
+7. The Reasoning: Dark Angel
+8. Touchstone: Joker in the Pack
+9. Big ELF: Evils of Rock and Roll
+10. UFO: Doctor Doctor(   Читать дальше...)Жанр: RockФормат: ts
 
 ## Скачать торент
 ```bash
@@ -547,136 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543550   (494043) от 06.09.2012
-
-Alexander Brown feat. Szhirley - Sidste Gang (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9F67373167B332C54ADCF70E8D8DB4F7CD48FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543784   (494034) от 06.09.2012
-
-Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C30441099B4FBAFCD6DEF6515AFFED3F09447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543786   (493903) от 06.09.2012
-
-DJ Sergey Fisun - Aura (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1E8F2EDFECD034CF2A444E4FE8ECA17ABFB037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543776   (493732) от 06.09.2012
-
-ARMIA - Follow your feeling (Vina del Mar Festival Sensation!) (2012) [H.264/720р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23367971DFAA93C9EF3C5AAFDE7396E760FBFD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543787   (493600) от 06.09.2012
-
-Papa Roach - Still Swingin (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F84D40FDB17BDACA7749A316062127A09B4995
 ```
 
 https://mybot314.ru/tekegram_catalog/

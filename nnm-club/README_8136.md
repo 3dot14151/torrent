@@ -1,25 +1,25 @@
-###  Публикация: 1523769   (748368) от 13.01.2022
+###  Публикация: 1523739   (748484) от 13.01.2022
 
-VA - Sun Travellers, Vol. 1 (2019) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Deep Voyage 1 (2019) [AAC|~326 Kbps] <House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. S.Poliugaev - Time Out (Original Mix) (6:16)
-02. Chris le Blanc, Miss Luna, Susanna Rosza - Essaouira to Ibiza (Original Mix) (5:16)
-03. Stefano DG - I Am Gonna Break (Original Mix) (6:05)
-04. Alex & Chris, Fernando Opera - Space (Original Mix) (8:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:08
+01. Darles Flow - Myth of Living (Original Mix) (6:18)
+02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
+03. Deep Spelle - My Heart (Ilias Katelanos Remix) (7:22)
+04. Cedric Salander - Feel Your Touch (Original Mix) (7:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE8BECAB16324CCA74418AE2DE89FF2681D70A5
+magnet:?xt=urn:btih:334D61AAF68E802F3B009ACB6015E47DA27CCDBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523773   (748367) от 13.01.2022
+###  Публикация: 1523732   (748483) от 13.01.2022
 
-VA - Sun Travellers, Vol. 3 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Bar Lounge Costes, Vol. 3 (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
-02. Marga Sol - Voyager (Original Mix) (5:44)
-03. Kanedo, Smitty - Mirandas (Original Mix) (6:13)
-04. Marga Sol, Darles Flow - Silent Day (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:49:02
+01. Marga Sol - Starry Night (Original Mix) (5:47)
+02. Eivissarts - The Unknown (Original MIx) (5:54)
+03. Chris le Blanc, Florito - Time to Go (Revisited Remix) (4:33)
+04. Chillson, Marc Hartman - Like the River Flows (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:19:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C30A75AF220854AD10B78414BCB06C16E1783A3
+magnet:?xt=urn:btih:102EFA2C59EF1E89ACE5F48D5AB855729DF468DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,86 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523841   (748366) от 13.01.2022
+###  Публикация: 1523731   (748482) от 13.01.2022
 
-VA - The Essential Downtempo, Vol. 2: Chillout Your Mind (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Calm Before the Storm (4:52)
-02. Der Waldläufer - Blossom Sun (Original Mix) (5:28)
-03. Michael e - Theme from a Pleasant Interlude (Original Mix) (6:16)
-04. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A0738089E78F1E0CF12471D2A3059C5805B691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523730   (748365) от 13.01.2022
-
-VA - Bar Lounge Costes, Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth Jazz>
+VA - Bar Lounge Costes, Vol. 2 (2019) [AAC|~299 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Groove Ensemble - Jazz Dreams (Original Mix) (3:00)
-02. The Soul Crusaders, Marc Hartman - Stargazer (Original Mix) (4:56)
-03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
-04. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AFB1A7F977733F238AF4A41662E337744B42A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523835   (748364) от 13.01.2022
-
-VA - Jazzy Weekend, Vol. 2 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+01. Chillson, Marc Hartman - Inner Voices (Original Mix) (4:26)
 02. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)
-03. Steven Solveig - Smoking Jazz (Original Mix) (2:29)
-04. Music Of The Earth - Mellow Jazz (Original Mix) (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzyПродолжительность: 02:11:29
+03. Soul Trend - You Got Me Wrong (Original Mix) (4:55)
+04. Airily - Manhattan City Lights (Latin Fragrance Mix) (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:13:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A4A2C77B65DA1550E3C3D85AF1023ED9175DDA7
+magnet:?xt=urn:btih:8A3527BC91E2FB9074CA878E00F4078FF84418E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523781   (748363) от 13.01.2022
+###  Публикация: 1523733   (748481) от 13.01.2022
 
-Cauldron - New Gods (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisoner Of The Past
-02. Letting Go
-03. No Longer
-04. Save The Truth - Syracuse(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF963FD2F14BE595F90DB14C7F9B08CCFD8A14F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523767   (748362) от 13.01.2022
-
-VA - Sunset Emotions 5 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Bar Lounge Costes, Vol. 4 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Mac, Simply Chill - Hope (Original Mix) (4:32)
-02. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
-03. Lemongrass - Sur La Mer (4:31)
-04. Skyeez - Home (Original Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:21
+01. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
+02. Lounge Groove Avenue - Count the Days (4:21)
+03. Frank Neo - Time and Space (4:33)
+04. Simply Chill, Maison Musiq - I Go Now (Original Mix) (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:11:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED42E49914A2B93785F126EF895E2552308A52DE
+magnet:?xt=urn:btih:1B06FFC4A1254754F05A0D1E27EF750DF5FA150F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,25 +114,201 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523808   (748361) от 13.01.2022
+###  Публикация: 1523839   (748480) от 13.01.2022
 
-CheckBook Pro 2.7.1 [En]
+VA - Delicious Chill: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones, Lushlo - Beaulieu (Mellow Mix) (2:25)
+02. Living Room - Evening Groove (3:42)
+03. Gary B - Havana Soul (Original Mix) (4:29)
+04. Lounge Groove Avenue - Soul Cream (Original Mix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0472F27B1A48934428F1FBFE7AC3C369879D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523729   (748479) от 13.01.2022
+
+Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 2 (2018) [AAC|~323 Kbps] <Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Wayne Brady - Thriller (3:56)
+02. Scott Bradlee's Postmodern Jukebox, Amber Eyes - Bad At Love (4:43)
+03. Scott Bradlee's Postmodern Jukebox, Annie Bosko - Complicated (4:10)
+04. Scott Bradlee's Postmodern Jukebox, Jennie Lena - Crazy Train (4:51)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DBBFE47CFC39EB8C66F25199621D8284FEA93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523761   (748478) от 13.01.2022
+
+VA - Sunset Emotions 3 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Be Mine (Original Mix) (5:04)
+02. Michael e - Balearic Soul (Original Mix) (6:01)
+03. DMTunes - White January (Original Mix) (6:10)
+04. Nicholas Gunn - Bridal Falls (Original Mix) (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C7499597A0F3B531DB00CECE2467B7582178AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523759   (748477) от 13.01.2022
+
+VA - Sunset Emotions 2 (2020) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - The Comeback (3:14)
+02. Jens Buchert - Cocoon (4:33)
+03. Gushi & Raffunk - Eia Mariposa (4:30)
+04. Clelia Felix - Under the Moonlight (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BEDA0875E0B98C9D70B6FB1ACA6EE837B6EC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523775   (748476) от 13.01.2022
+
+VA - Sun Travellers, Vol. 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIN Project - At a Distance (6:12)
+02. G.Pantelidis - East to West (4:33)
+03. Magmatunes - Right There (4:43)
+04. Tony Garviz - Passionate Kiss (Original Mix) (4:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5B396F40FDD0792E032B15B9716D2CC9513B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523764   (748475) от 13.01.2022
+
+VA - Sunset Emotions 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finland & Aaskoven - Beauty and the Abyss (5:40)
+02. Mirage Of Deep - Shabanna (5:46)
+03. Marga Sol - Calma (5:28)
+04. Der Waldläufer - Sensimea (Original Mix) (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF10BBA0EDB3C783E8C9755018F4B0075D778B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523802   (748474) от 13.01.2022
+
+Clipboard Manager 2.3.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2016-2022 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:211F9C8E9D25477106B7651732BF79524FFA39F5
+magnet:?xt=urn:btih:B6DC3414D1660200D0521D01D1B9A93340021FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,26 +316,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523921   (748360) от 13.01.2022
+###  Публикация: 1523777   (748473) от 13.01.2022
 
-SiteSucker 4.3.2 [Multi]
+VA - DNBB Recap 2021 (2021) [AAC|~319 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystific - Saturn Dust (4:03)
+02. Ben Vibrant, Joe Deep - New Day (4:08)
+03. Thristy Monks - Morning Lights (5:14)
+04. Heft - Did You Know That (4:47)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAEB764332FAC53F385039188B70FD16E734B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523770   (748472) от 13.01.2022
+
+NetWorker Pro 8.2.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F317608DF673729997237F70170E5D10A1323144
+magnet:?xt=urn:btih:A1924FC4FC8E1729B9C7985F2C059B679C60C56B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +371,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019832   (748359) от 24.05.2016
+###  Публикация: 1523772   (748471) от 13.01.2022
 
-VA - Best EDM in Town (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
+Yate 6.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DB254654DA56D14C879CE75F30667126EA2507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019717   (748470) от 24.05.2016
+
+Журнал | EDN Europe №5 (май 2016) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748470.jpg" />
+</div>
+
+
+###  Подробнее
+
+EDN Magazine - журнал, повествующий о новинках от различных фирм-производителей электронных компонентов и их использовании при конструировании электронной аппаратурыЖанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985F0590BECBA4D45FEF80C63113FAF5D032108F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019684   (748469) от 24.05.2016
+
+ОУ74 x Quok - Деконструкция (2016) EP [MP3|320 кб/с] <Rap, Hip-Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. JockeyBoys - Higher (Extended Mix) 04:46
-002. Zelazny & Luqus - Jumpers (Extended Mix) 04:23
-003. DJ Skip - Jealousy 03:02
-004. Cire - How We Party (Club Mix) 04:04(   Читать дальше...   )Жанр: Progressive, Electro, ClubПродолжительность: 07:33:04
+01. Этого не было
+02. База прием
+03. В поисках красотыЖанр: Rap, Hip-HopПродолжительность: 00:08:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:717A66A6B574B9F6ECBF86873201DA98CD546C05
+magnet:?xt=urn:btih:862023207A326F40A558A7BF7324F13DAA7BC2FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,54 +453,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523771   (748358) от 13.01.2022
+###  Публикация: 1019799   (748468) от 24.05.2016
 
-VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMTunes - Ser Mio (Original MIx) (4:42)
-02. Martin Liege - Balearic Jazz (Original Mix) (3:43)
-03. Sami Sivananda - Samadhi Vibes (Original Mix) (3:16)
-04. Michael e - Amanda (Original Mix) (5:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C811D3D52A8ABB6CC1739DEE6D4BA8CF55540C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019934   (748357) от 24.05.2016
-
-Журнал | IT Expert №5 (май-июнь 2016) [PDF]
+Журнал | Машины и Механизмы №6 (129) (июнь 2016) [PDF]
 
 >>Журналы
->>Компьютерные журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
+"Машины и Механизмы" -  издание для всех, кто интересуется устройством современного мира. Журнал не ограничивается обзорами передовых технологий и последних изобретений. В сферу интересов «ММ» входят вопросы развития общества, новейшие социальные и даже геополитические тенденции. «ММ» отличается от прочих профильных изданий глубиной подачи материала, так (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4E02C64E361E891E1D894501E663304F55BA707
+magnet:?xt=urn:btih:F8810A9A261FEB1A17A51F1CF18DBFEC14A44783
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,356 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019806   (748356) от 24.05.2016
+###  Публикация: 1019762   (748467) от 24.05.2016
 
-VA - Музыка дороги Сборник русского шансона 6 (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Чернов & Икона - Батя
-002. Орская Маргарита - Любимый Муж Мой
-003. Константин Крымский - Может Быть
-004. Бумеr - До Поры До Времени(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC32E6CF030BD794893B2767731B33F925C7140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019568   (748355) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Don`t Stop ( 1984 )
-02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
-03. C.C.Catch - Cause You Are Young ( 1986 )
-04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523728   (748354) от 13.01.2022
-
-Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbps] <Jazz-Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Bradlee's Postmodern Jukebox, Mario Jose, India Carney, Dave Koz - Perfect Duet (4:38)
-02. Scott Bradlee's Postmodern Jukebox, Sara Niemietz - Who Can It Be Now? (3:22)
-03. Scott Bradlee's Postmodern Jukebox, Hannah Gill, Casey Abrams - Crazy (4:29)
-04. Scott Bradlee's Postmodern Jukebox, LaVance Colley, Lee Howard - That's What I Like (3:44)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191E0B58D81176C1C36B651409577F434C6A8A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019970   (748353) от 24.05.2016
-
-Internet Download Manager 6.25 Build 19 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21214DC6BE9CCADA36A0102532964DE8855C04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523758   (748352) от 13.01.2022
-
-VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Temple Tunes (Original Mix) (6:46)
-02. Sunyata Project - Bird of Satori (Original Mix) (4:46)
-03. Dharma Frequency - Oriental Pleasure (Original Mix) (3:54)
-04. La Estación Del Mar - Las Flores De Fouxi (Original Mix) (3:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0CD7EB16D71E2BF0A2601359F074A1DB7285B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019763   (748351) от 24.05.2016
-
-AVG Internet Security 2016 16.71.7598 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748351.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVG Internet Security 2016 - комплексный антивирус с улучшенным обнаружением угроз, благодаря "облачной" службе File Reputation, простым в управлении фаерволом и оптимизированной работой с технологией AVG Scan Turbo для быстрого сканирования вашего компьютера.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FD3F1F24262F69C5ACEACBFA47CDC0134827C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523805   (748350) от 13.01.2022
-
-SideNotes 1.4.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748350.jpg" />
-</div>
-
-
-###  Подробнее
-
-SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2020-2022 ApptoriumПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B929D9814C2C8DD150AB1B9779A225DDFBADA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020012   (748349) от 24.05.2016
-
-Журнал | Автомир [Россия] №23 (май 2016) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748349.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7357DB5E6193CD46E505C0AF57AF5F3AE720E291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523834   (748348) от 13.01.2022
-
-VA - Modern Urban Jazz 2 (2022) [AAC|~313 Kbps] <Jazz, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P. A. Jeron - Rough (2:35)
-02. Flow Bop, Lo Greco Bros - Velvet Sun (5:40)
-03. DOUT.D - Hope (1:49)
-04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Nu JazzПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AB8393AC2BAFDD1AA3C7ACFF8B28D436499BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019587   (748347) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O'Kay - The Wild Wild Western ( 1989 )
-02. Al Bano & Romina Power - Felicitа ( 1982 )
-03. Scotch - Delirio Mind ( 1985 )
-04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523962   (748346) от 13.01.2022
-
-Permute 3 v3.8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9E45935FE30BB12CE4B3E2252EFC9D0A3B076E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523768   (748345) от 13.01.2022
-
-Magic Battery 7.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
-Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A094D77EEF2491799144663DA3B6EAC2EBEE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019675   (748344) от 24.05.2016
-
-Орел и решка. Шопинг (2016.05.23) SATRip (cезон 4: Копенгаген)
+Тайны Чапман. Мужчины против женщин (24.05.2016) SATRip
 
 >>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:49:49
+Документальный цикл - это эксклюзивные интервью, сенсационные факты, громкие разоблачения и истории очевидцев. Авторы цикла дадут ответ на простые, и в то же время сложные вопросы: почему количество природных катастроф за последние годы выросло в несколько раз? Может ли питьевая вода стать причиной глобальной войны? Какие опасности таит в себе здоровый образ жизни? (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC33A022DD090C557F304BFBB1B280F14A11DACF
+magnet:?xt=urn:btih:5B0E9C70B425510E50819D8EC5B59D75914EC70A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +505,223 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523931   (748343) от 13.01.2022
+###  Публикация: 1019988   (748466) от 24.05.2016
 
-Мэри Пикфорд. Мельче чем пыль / Less Than the Dust (1916) TVRip [H.264]
+Вести.Doc с Ольгой Скабеевой. Партитура войны (24.05.2016) SATRip
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Индия... Почти сказочная страна, очень своеобразная и экзотическая. Мы видим молодую индийскую девушку Радху, в ее повседневных заботах и забавах. Индия в те времена была колонией Великобритании, и там во всех городах располагались британские военные гарнизоны. С одним из британских офицеров, капитаном Таунсендом, познакомилась Радха. Ну, познакомилась и познакомилась, (   Читать дальше...   )Производство: США, Mary Pickford CompanyЖанр: Драма, немое киноРежиссер: Джон ЭмерсонАктеры: Мэри Пикфорд, Дэвид Пауэлл, Фрэнк Лоси, Мэри Элден, Марио Майерони, Чезаре Гравина, Френсис Джойнер, Расселл Бассетт, Уолтер Морган, Merceita EsmondПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 01:33:22
+Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.В этом выпуске: Конфликт на Украине глазами скрипача, который 20 лет назад уехал в Германию. Чего на самом деле хотят жители Донбасса? Закрытые для российских журналистов Краматорск и Славянск в фильме Марка Хайета и Тома Франке: "Партитура войны. Жизнь на линии огня".
+В состоянии ли Киев договориться с Донбассом? Почему нацистские бандформирования на Украине против минских (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:17:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4318A2CCF9DD661A3A57722CB331C37884228E8F
+magnet:?xt=urn:btih:F620544BD414BFFF486BA7D94142B97A291631D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019775   (748465) от 24.05.2016
+
+Михаил Шпагин | Что было до... (1988) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тебе, наверное, не терпится узнать, о чём пойдёт разговор?
+О вещах, которые нас окружают. О том, как их изобрели, то есть — придумали.
+Мы смотримся в зеркало, зажигаем огонь от спички, едим ложкой и вилкой.
+Мы привыкли к этим простым вещам. И не задумываемся над тем, как люди могли обходиться без них.(   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7A03AE4520AB3EFAD91D2E91D0E20DBC6E532C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019798   (748464) от 24.05.2016
+
+Addism - The Calculator 1.2.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addism это отличный калькулятор для вашего Mac.
+Он сочетает в себе элегантный, интуитивно понятный интерфейс с потрясающей функциональностью.
+
+Все ваши вычисления отображаются в режиме реального времени, что позволяет не хранить в голове множество промежуточных шагов, а концентрироваться на результате.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2016Разработчик: Max LangerПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88724548416BBE8CEA0E4551BCB475A302E08D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019559   (748463) от 24.05.2016
+
+Armin van Buuren - A State of Trance 763 (2016) [MP3|320 кб/с] <Progressive Trance, Vocal Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Eric Vloeimans — Embrace (Arty Remix)
+02. Same K — Distance
+03. Manse feat. Emily Harder — All Around
+04. Parity — Kamchatka(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive house, chilloutПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22478C98F288251E9FBC0C81D5BCC5EFDFBE4104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019689   (748462) от 24.05.2016
+
+Журнал | Приготовь. Спецвыпуск №6. Для пикника (июнь 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый выпуск для тех, кто с пользой и интересом хочет провести время за городом. Здесь вы найдете 78 рецептов летних блюд для дачи и пикника: салаты и закуски, которые можно взять с собой, горячие блюда для приготовления на мангале, а также оригинальные соусы к шашлыку, напитки, рецепты здоровья.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2717FCC1ED9028208E72DF0996E8C625C36A11C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019617   (748461) от 24.05.2016
+
+VA - Tea for Two: Cafe Jazz (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Peterson - Tea For Two
+02. Lester Young - A Foggy Day
+03. George Shearing - Jumpin' With Symphony Sid
+04. Lester Young - Just You, Just Me(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEE17BBFC8A041D28ACBA26DD9CAC138D980CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019907   (748460) от 24.05.2016
+
+John Illsley - Long Shadows (2016) [FLAC|Lossless|image + .cue] <Classic Rock, Blues Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning 02:20
+02. In The Darkness 04:56
+03. Comes Around Again 04:19
+04. There's Something About You 04:49(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5691D0C34D30BDFF00F490899D41748064F79EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019632   (748459) от 24.05.2016
+
+NG: Спасти Титаник с Бобом Баллардом / Save the Titanic with Bob Ballard (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Боб Баллард, человек, который обнаружил место последнего упокоения Титаника в 1985 году едет в Ирландию, чтобы встретиться с некоторыми из людей, которые построили корабль и обсуждает проблемы останков корабля и другого имущества утонувших от разграбления мародеров.Телекомпания: США, Produced by National Geographic Television for National Geographic ChannelsЖанр: Документальный, расследованияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
 ```
 
 https://mybot314.ru/tekegram_catalog/

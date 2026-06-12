@@ -1,3 +1,55 @@
+###  Публикация: 932221   (509865) от 28.08.2015
+
+Проекты - VideoHive - Elegant Corporate Timeline [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B5A10F1B1688A2B65C8B7E2651CBF5AD8278DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932272   (509844) от 28.08.2015
+
+Проекты - VideoHive - Cartoon Paper Pencil Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE6DC724F83BB24A75FD5B26D5C9487CA1F9D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932306   (509014) от 29.08.2015
 
 Проекты - VideoHive - Light Trails [AEP]
@@ -618,58 +670,6 @@ Pond5 - Stylish Presentation - 974664 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C9EA1F9BBACDE97588E8F7F6053553238F9AB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820862   (492180) от 12.09.2014
-
-VideoHive - Inked Elegant - 8017547 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это красивый, органичный и элегантный черно-белый проект.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A43CF1BE709F4C071780CC7C9FC7332C8E5E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054036   (492070) от 20.09.2016
-
-Проекты - VideoHive - Keep It Trendy - 17364914 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо-ролика, рекламы товаров и услуг.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC24D0FBDDE9AB6FAE635257C9ACAE24409067
 ```
 
 https://mybot314.ru/tekegram_catalog/

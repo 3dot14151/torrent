@@ -1,35 +1,3 @@
-###  Публикация: 293240   (902689) от 09.02.2011
-
-Gary Moore & The Midnight Blues - Live at Montreux 1990 (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oh Pretty Woman
-2. Walking By Myself
-3. The Stumble
-4. All Your Love(   Читать дальше...   )Жанр: Рок, БлюзРежиссер: Gavin TaylorАктеры: Gary Moore - guitar & vocals
-Don Airey - keyboards
-Andy Pyle - bass,
-Graham Walker - drums,(   Читать дальше...   )Перевод: ОригинальныйПродолжительность: 01:45:55 + 00:26:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 182416   (901872) от 12.03.2010
 
 The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
@@ -706,6 +674,35 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Жанр: Документальный, МузыкаРежиссер: Марат КорчемныйАктеры: Эдмунд Шклярский; Леонид Кирнос; Марат Корчемный; Стас ШклярскийПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 198637   (810587) от 06.05.2010
+
+Mylene Farmer - Stade de France (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avant la lumière
+02. D`entre les morts
+03. Paradis inanimé
+04. L`âme-stram-gram(   Читать дальше...   )Долгожданный DVD9 концерта! Без пережиманий как есть!Жанр: PopПродолжительность: 02:19:21
 
 ## Скачать торент
 ```bash

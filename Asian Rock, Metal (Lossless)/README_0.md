@@ -1,3 +1,32 @@
+###  Публикация: 1495801   (877440) от 14.09.2021
+
+Loudness - Rise To Glory -8118- (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Rise To Glory -8118- :
+01. 8118 (Instrumental)
+02. Soul On Fire
+03. I'm Still Alive(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCCEF78C86BE1A4765685CC983631A9C37C7079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495908   (875970) от 15.09.2021
 
 Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -727,35 +756,6 @@ Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A27A70E2610BBBE0F654772A889EA41CD86CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546336   (604288) от 25.04.2022
-
-Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саблезубый тигр - японская Heavy Metal группа из Саппоро основана в 1981 году гитаристом Акихито Киношита.01. Revenged On You 06:25
-02. Believe In Yourself 04:52
-03. Motive Of The Lie 05:26
-04. Kutsujyoku 04:33(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

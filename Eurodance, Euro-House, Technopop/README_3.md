@@ -1,32 +1,3 @@
-###  Публикация: 1570347   (436051) от 20.08.2022
-
-2 Unlimited - No Limits! (1993) [OGG|485 Kbps] <Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Limit	3:44
-02. Tribal Dance	4:31
-03. Mysterious	4:23
-04. Faces	3:48(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1584B008E813C70CCCFAAC48E539AEFC2AFCF578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570546   (436045) от 20.08.2022
 
 DJ BoBo - 25 Years Greatest Hits (2017) [OGG|485 Kbps] <Electronic>
@@ -745,6 +716,35 @@ E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259025   (332815) от 01.11.2018
+
+VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real System - There Is No More Love (Randy Norton edit)
+02. B.G. The Prince Of Rap - Once You Have Me (feat Timi Kullai & Nathan Reynolds III - Dolls House remix)
+03. Greg Bannis vs DJane Monique - You Sexy Thing 2018 (Dolls remix)
+04. Rinaldo Montezz - Jump (feat Gabriel Scar - radio mix)(   Читать дальше...   )Жанр: Euro Dance, Future House, ClubПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
 ```
 
 https://mybot314.ru/tekegram_catalog/

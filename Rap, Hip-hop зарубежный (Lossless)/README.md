@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875523   (1072614) от 
+
+Apollo Brown - Elevator Music (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Beats>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diary (3:27)
+02. Lucky Seven (3:12)
+03. Shallow Breaths (3:12)
+04. Actuality (3:38)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, BeatsПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73989307593EEF4A91B07D46F7D97F559F114C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874507   (1071991) от 02.06.2026
 
 VA - Chillhop Essentials Summer (2026) [FLAC|Lossless|Web-DL|tracks] <Chillhop, Trip Hop, Jazz Fusion>
@@ -711,35 +740,6 @@ Serhat Durmus - My Feelings (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9DC94A0814E54B3794BBA39149739376B8DB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449311   (1030014) от 21.02.2021
-
-Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 2015, Psychopathic Records [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop, Hardcore, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:24)
-02. Riddle Box (02:51)
-03. The Show Must Go On (05:07)
-04. Chicken Huntin'Жанр: Rap, Hip-Hop, Hardcore, HorrorcoreПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9019FD23A6C4F7DF720E71F8F9B2B4D4B547AE32
 ```
 
 https://mybot314.ru/tekegram_catalog/

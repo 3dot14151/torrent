@@ -1,29 +1,3 @@
-###  Публикация: 919974   (571345) от 27.07.2015
-
-Image Uploader 1.3.1 build 4318 Stable [Multi/Ru] Repack The Hacker [x86-x64] (cxarchive)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C9076948F59B95DBCFBA95BDF98C4393460E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922646   (567805) от 29.07.2015
 
 Abbyy FineReader 7.0 Professional 7.0.0.509 Repack The Hacker [x86-x64] (cxarchive)
@@ -686,6 +660,34 @@ Kubuntu 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D5A9100CC8833D2FBAA1BD032386DF49F49F031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817362   (545952) от 30.08.2014
+
+Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновился Slackel Live – использующий последнюю стабильную версию рабочей среды Fluxbox,  GNU/Linux на базе current-ветки Slackware, а также на Salix. Поддерживается установка на жесткий диск, клонирование. В этом релизе включена поддержка загрузки UEFI и CSM (legacy / BIOS).
+
+В версию дистрибутива включены  браузер Firefox, Claws-Mail, Transmission, PCmanFM file manager, Openjre, rhino, icedtea-web, Pidgin, Gftp, Wicd, а также много других приложений - см. скриншоты.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

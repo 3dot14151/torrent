@@ -1,119 +1,3 @@
-###  Публикация: 1422055   (239784) от 07.11.2020
-
-VA - Relax Your Mind Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Remembrance (Original Mix) (3:50)
-02. Peter Pearson - Beyond the Mist (Original MIx) (4:12)
-03. Lynn Tredeau, Sherry Finzer - Behind the Door (Original Mix) (3:02)
-04. Shoshana Michel - Nocturne in E Flat (4:24)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B450597A9169A9A58DB7ADB594E2A4194DF939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422004   (239711) от 07.11.2020
-
-VA - Restaurant Lounge: Chillout Your Mind (2020) [AAC|~328 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - Smooth Operator (Instrumental Mix) (5:05)
-02. Augusto Alves - Frias Palavras (3:44)
-03. Brazil Beat - Englishman in New York (3:52)
-04. Giovanni Tornambene, Alfredo Bochicchio - Gentle Kiss (4:36)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACE95A95A169FC698C4D355B53A20032A277E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422058   (239698) от 07.11.2020
-
-VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Avenue, Shaheen - One by One (4:15)
-02. Marga Sol - Ocean Seagulls (Original Mix) (4:37)
-03. The Soul Crusaders - Just Me (Original Mix) (4:57)
-04. Simply Chill - Fire (Costa del Mar edit) (5:22)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D9721057AE692FB17323534C2E980B3A7E6261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423392   (239573) от 13.11.2020
-
-VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flor De Lis, Shoree, Gabrielle Chiararo - Close to You (3:41)
-02. Raquel Silva Joly - Dindi (4:02)
-03. The Soul Crusaders - When the Night Falls (4:15)
-04. Chillson, Marc Hartman - Dancing Seahorses (Original Mix) (4:36)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2577A605226899B6C708783C93352FD7CB3235C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423394   (239470) от 13.11.2020
 
 VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
@@ -744,6 +628,122 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E4E4DD397CAA6E542B71DF53FF0895CE2C0BEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498630   (237611) от 14.10.2021
+
+VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~333 Kbps] <Jazz, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Y Garcia - Un peu de jazz (5:27)
+02. Lo Greco Bros, Flow Bop - One Man (4:47)
+03. Agostino Maria Ticino - If I Had Said to You (3:01)
+04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Lounge, Chill OutПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B19B544825D0AC4CA68C92F2128C23E24DF62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497791   (237598) от 14.10.2021
+
+VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy System - Strange Things (4:52)
+02. Jean Mare - Places (Lo-Fi Chill Mix) (3:24)
+03. Nightzoom - Abstract Living (Lo-Fi Chill Cut) (3:51)
+04. Jazzy System - Your Eyes They Worry (4:09)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C15DAFA371EF76BADFA75E0E7D1E4ADF221E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502410   (237588) от 14.10.2021
+
+VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazelo Nostra - Beach Hopper (Original Mix) (6:19)
+02. Roberto Sol, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
+03. Allume - Wellfare (Original Mix) (3:48)
+04. VAN - Gentleman (Original Mix) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2654DC392ADC0B0A2C222AED7E6F6CC433AF5899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499023   (237578) от 14.10.2021
+
+VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Easy Listening, Lounge, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundset City - You Are My Angel (Smooth Vocal Lounge Mix) (3:41)
+02. CiYou - Look into My Eyes (Cool Groove Mix) (4:24)
+03. Jean Mare - When I See (Cool Melody Mix) (3:13)
+04. Jazzy System - Jungle Demon (Lo-Fi Chill Mix) (4:49)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0307B1FB838D0DC4F902851CFBC6B9EE1FDB6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 952687   (353666) от 02.11.2015
+
+VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Anna of Bavaria - Holy Christmas Bells - German Christmas Market Romantic Mix
+02. Water on Mars - Biscaya - Realaxing Beach Moments remix
+03. Esteban Nouve - Cookies and Cream - Xmas Pearl Cafe House Mix
+04. Grag the Crack - Cool Down Moment - Pilates vs. Yoga Buddha Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952890   (353665) от 02.11.2015
 
 VA - Deep Chill Vol 1 Finest In Ambient Chill Out and Lounge for Best Relaxation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -719,35 +748,6 @@ VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072521   (352613) от 13.11.2016
-
-VA - Осенняя Дискотека По-Русски 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352613.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Helena Shadia - О Тебе 3:00
-002.Толя Famous & Сергей Пичугин - Заведи Мой Пульс 3:49
-003.Елена Темникова Feat. Natan - Наверно 3:21
-004.Сестры Толмачевы - Молчание 4:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE9978106C01C4C61EBDCCDAEDAE1C0DFAFDB81
 ```
 
 https://mybot314.ru/tekegram_catalog/

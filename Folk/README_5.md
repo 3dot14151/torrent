@@ -1,3 +1,224 @@
+###  Публикация: 537163   (510491) от 22.08.2012
+
+Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste (05:26)
+02. Brhama-Vishnu-Shiva (05:29)
+03. Dance Of The Elephant God (04:54)
+04. Lotus Lovers (04:57)
+05. Transcendental Consciousness (05:13)
+06. Valley Of Flowers (05:58)
+07. Silsila (06:38)
+08. Om Shanti (04:10)
+09. Transcendental Consciousness (Walter A. Remix) (03:44)
+10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932471   (508231) от 30.08.2015
+
+Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, Celtic Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Untied Knot | The Fall | Mile Marbhaisg Air A' Ghaol
+02. The Scorpian | The Devil's Breath Hornpipe
+03. Samhla Reel | Scolpaig
+04. Somebody's Welcome To Somewhere(   Читать дальше...   )Жанр: World, Folk Rock, Celtic FusionПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933750   (505363) от 02.09.2015
+
+Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eternal Return
+02. The Cave Of Swimmers
+03. Burana
+04. Salamender(   Читать дальше...   )Жанр: Ethnic, Neo-FolkПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538340   (503601) от 29.08.2012
+
+Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - If I Fell                                                          [02:27]
+ 02. - Winding Road                                               [03:45]
+ 03. - When I'm 64                                                 [02:38]
+ 04. - Yesterday                                                      [02:02]
+ 05. - And I Love Her                                              [02:36]
+ 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
+ 07. - Here, There And Everywhere                         [02:33]
+ 08. - The Fool On The Hill                                       [02:53]
+ 09. - Michelle                                                          [03:04]
+ 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543054   (496086) от 05.09.2012
+
+WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Twist Again (3:04)
+02. Peppermint Twist (3:20)
+03. Blackbird (2:18)
+04. Jailhouse Rock (2:32)
+05. For You (3:17)
+06. Hello, Mary Lou (3:29)
+07. Heart of the Country (2:39)
+08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
+09. Baby Boy (3:12)
+10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937730   (487329) от 15.09.2015
+
+Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
+02. Сумецкая
+03. Дворник
+04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055717   (485992) от 23.09.2016
+
+Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Time In Years   (03:52)
+02. Six Pack of Beer and a Pack of Cigarettes   (03:59)
+03. Boomtown   (04:55)
+04. Nobody's Girl But Mine   (05:19)(   Читать дальше...   )Жанр: Country Blues, AmericanaПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F9715A8F06D3C78B61F5858C718C86C0DA583F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938280   (483655) от 17.09.2015
 
 Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
@@ -569,215 +790,6 @@ Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392412   (450050) от 16.09.2018
-
-Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
-	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552567   (447914) от 26.09.2012
-
-Шедевры Этнической Музыки - Ритуальная Музыка Индейцев Центральной Америки (2004) [MP3|320 кб/с]<Native American, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danza del Capareke (2:16)
-02. Los senores del tiempo (3:50)
-03. Nahui atl (9:23)
-04. Vines of the serpent (4:24)
-05. Oracion a los espiritus del viento nocturno (11:55)
-06. Ojo de reptile (4:23)
-07. Tlazolteootl (3:36)
-08. El agua y los suenos (5:01)
-09. Little flowers of the God (4:34)Жанр: Native American, EthnicПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03521752806FA74E440E7855643722E43013325B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941285   (445063) от 05.10.2015
-
-Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downtempo>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. feather in the wind
-02. good times
-03. why
-04. in the_moonlight(   Читать дальше...   )Жанр: Pop-Folk, Acoustic, DowntempoПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C400467E6C2EEA98F1D69DBF57E992E22C4992AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 2922   (440334) от 29.09.2012
-
-Пелагея(folk)
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любо, братцы любо! (05:50)
-02. Я ехала домой (02:24)
-03. Позарастали стежки-дорожки (03:16)
-04. Не вечерняя (04:07)
-05. Думы (Ю. Ким) (03:00)
-06. Вечериночная (00:49)
-07. Отжил я свой век. Духовный с.. (01:55)
-08. Не для тебя (03:14)
-09. Не уходи (Н. Зубов/сл. народ.. (02:24)
-10. Рождественская (04:47)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552064   (438645) от 30.09.2012
-
-VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943982   (435851) от 09.10.2015
-
-Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, Irish Folk Rock, Celtic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabondtown
-02. Enisgo
-03. Red Back Sheep
-04. Moon on the Highway(   Читать дальше...   )Жанр: Alternative, Irish Folk Rock, Celtic RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E516B82FA41A5A1FF822563946B5AD15806C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945435   (428644) от 12.10.2015
-
-Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaudete
- 02. Анестезия
- 03. Марсианский экспресс
- 04. Никогда(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
 ```
 
 https://mybot314.ru/tekegram_catalog/

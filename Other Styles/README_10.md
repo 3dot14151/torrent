@@ -1,3 +1,143 @@
+###  Публикация: 598659   (999119) от 07.01.2013
+
+Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme from 'The Godfather'
+02. Sleep Walk
+03. Cabaret
+04. Love Theme from 'Blade Runner'
+05. Laura
+06. Love Story
+07. Djamballa
+08. Love me tender
+09. As Time Goes By
+10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598653   (999116) от 07.01.2013
+
+Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) La vie en rose (Schau mich bitte nicht so an) 03:03
+2) I Have A Dream 04:17
+3) Blue Bayou 02:29
+4) Tornero - Non succedera piu 04:52
+5) Save The Last Dance For Me 02:36
+6) You've Lost That Loving Feeling - Unchained Melody 04:01
+7) Bright Eyes 02:45
+8) Soleado (Tranen lugen nicht) 02:09
+9) Hey Jude 04:05
+10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598666   (999103) от 07.01.2013
+
+James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance For Violin And Orchestra No.2 In F Opus 50
+02. Stille Nacht
+03. Air On A G String
+04. Medley: White Christmas / Midnight In December / Jingle Bells
+05. Elvira Madigan
+06. Rosen Aus Dem Suden Opus 388
+07. Impromptu No.2 In A Flat Opus 142
+08. Le Quattro Stagioni Opus 8: Largo
+09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
+10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598573   (999092) от 07.01.2013
+
+Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
+02 Мегаполис музыка Евгений Соколовский
+03 Одинокое сердце музыка Евгений Соколовский
+04 Bolero музыка Maurice Ravel
+05 Вальс музыка Евгений Соколовский
+06 Танец рыцарей
+музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
+сузыка Сергей Рахманинов (Прелюдия Соль минор)
+07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
+08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598128   (999082) от 07.01.2013
 
 New Sun Pops Orchestra - Sax Mood 2 and Guitar Mood 2 (1976) [MP3|320 кб/с]<JPop Instrumental, Easy Listening>
@@ -735,133 +875,6 @@ VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162542   (990210) от 03.01.2010
-
-Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servant of Peace (7:13)
-02. Liberation's Door (11:01)
-03. Crimson (5:02)
-04. Mother's Blessing (8:11)
-05. Har Har Ram Das Guru Hai (8:19)
-06. Pritham Bhagaautee (7:05)
-07. Charan Sat Sat (6:54)
-08. Ardas Bhayee (9:24)
-09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609967   (990195) от 29.01.2013
-
-VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990195.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Orchester Bruno Bertone - One Moment In Time
-(4:15) 02. Orchester Bruno Bertone - Forever Young
-(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
-(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
-(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
-(2:20) 06. Orchester Tony Anderson - Swanee River
-(3:35) 07. Orchester Tony Anderson - Septemberwind
-(2:58) 08. Orchester Tony Anderson - Woman
-(3:24) 09. Orchester Tony Anderson - Josie
-(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353843   (989888) от 20.01.2020
-
-Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Islands [02:27]
-02. The Harmony of Nature [02:50]
-03. Moutains [01:51]
-04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353849   (989883) от 20.01.2020
-
-Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boundless [02:21]
-02. Deceiver [02:30]
-03. Such a Heroine [03:20]
-04. Kill Zone [02:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1354764   (987033) от 23.01.2020
-
-Jorn - Heavy Rock Radio II - Executing the Classics (2020) Deluxe Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Nights
-02. Winning
-03. New York Minute
-04. Needles and Pins(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072FD79E9A80A40B15241C1E0CC7BD1F5A505310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354760   (987031) от 23.01.2020
 
 Temperance - Viridian (2020) [MP3|320 Kbps] <Melodic Modern Metal>
@@ -749,6 +720,35 @@ Sybrid - Hetalony (2016) [MP3|320 кб/с] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8220922AC191FA0E9BA098FA486F0CB0BC105232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356988   (976771) от 01.02.2020
+
+Dark Matter - Nebula to Black Hole (2020) [MP3|320 Kbps] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Except Love
+2. Earthless Child
+3. Theory of X
+4. Imperfect Universe(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F493FC139FF45E0168BC2096CBC77F136824B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

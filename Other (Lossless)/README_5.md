@@ -1,3 +1,102 @@
+###  Публикация: 1618727   (249908) от 12.03.2023
+
+Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop the Clock (3:10)
+02. Norfolk Blues (3:34)
+03. Wasted Youth (3:23)
+04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494113   (249210) от 09.05.2012
+
+Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, Neoclassical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hall Lagan Klar! (05:54)
+02. Den Bergtagna (06:15)
+03. Tichborne's Elegy (05:05)
+04. The Dying Christian to his Soul (04:26)
+05. Der Mensch ist bald vergessen (04:25)
+06. I am the Pillar (05:19)
+07. Min Sangmo (04:38)
+08. Epitaph on a Army of Mercenaries (05:11)
+09. God appears, and God is Light (04:56)
+10. Epigram CLXIII (05:16)(   Читать дальше...   )2005-2010Жанр: Neofolk, Martial Industrial, NeoclassicalПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491700   (246615) от 04.05.2012
+
+David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Day Today (04:38)
+02. I Know (04:04)
+03. Good Day Today (Radio Edit) (04:17)
+04. Good Day Today (Underworld Classic Remix) (08:39)
+05. Good Day Today (Boys Noize Remix) (06:16)
+06. Good Day Today (diskJokke Remix) (08:39)
+07. I Know (Sasha Remix) (08:56)
+08. I Know (Skream's Not So Ravey Remix) (05:05)
+09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
+10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640315   (239264) от 26.04.2022
 
 Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
@@ -667,105 +766,6 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593148   (135296) от 23.12.2012
-
-VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Tahu Rhodes - Toreador Song [05:11]
-02. Bruce Martin - Impossible Dream [02:12]
-03. Connelli & Johnston - Climb Every Mountain [03:10]
-04. Winchester Cath Choir - Jerusalem [02:48]
-05. Idea of North - Amazing Grace [03:12]
-06. Bryn Terfel - Loch Lomond [03:59]
-07. Suzanne Erens - Don't Cry For Me Argentina [05:58]
-08. Mario del Monaco - Nessun Dorma [03:11]
-09. Louis Armstrong - Wonderful World [02:25]
-10. Ella Fitzgerald - I Gonna Wash That Man Right Out Of My Hair [03:04](   Читать дальше...   )Жанр: Classical SongsПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680362   (134223) от 29.11.2023
-
-VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Vibes - Celestial Chants (Original Mix) (6:36)
-02. Badshust, Vadim Manko - Green Light (Original Mix) (5:26)
-03. Juantxo Munoz, Robric - Delirio (Original Mix) (6:50)
-04. Arthaum - Sabhka (Original Mix) (7:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595456   (131948) от 29.12.2012
-
-Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Preliator
-02 - Mighty Rivers Run
-03 - Prelude (On Earth As In Heaven)
-04 - Spiritus Khayyam
-05 - La Coronacion
-06 - Europa
-07 - Diem Ex Dei
-08 - Orchard of Mines
-09 - Crusaders of the Light
-10 - Madre Terra(   Читать дальше...   )Жанр: New Age, Epic MusicПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
 ```
 
 https://mybot314.ru/tekegram_catalog/

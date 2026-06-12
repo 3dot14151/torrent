@@ -1,3 +1,148 @@
+###  Публикация: 1549685   (592857) от 08.05.2022
+
+VA - SuperDisco 90's Platinum Collection (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Girls - What's Up (Remix) (2:25)
+02. DJ Dado - Twin Peaks Theme (4:21)
+03. Les Oranges - Lemon Tree (3:29)
+04. La Notte & Monsters - Return to Innocence (3:54)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D0FEED2FBAEF0F46910FA43285E9FCBDCE3FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300769   (592765) от 07.05.2019
+
+Sarah Brightman - Hymn  (World Tour Limited Edition) (2019) [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture (00:01:02)
+02. Hymn (00:04:27)
+03. Sogni (00:04:18)
+04. Sky and Sand (00:04:12)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6471B9E2E6C29B626D02CF8E51FB66DD05106762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300646   (592757) от 07.05.2019
+
+VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592757.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Dermot Kennedy - Power Over Me
+02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4FEB1D55D628CC666483A5060C81E53FFFE9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300598   (592751) от 07.05.2019
+
+АЛЕКСИН - Платиновая Коллекция (2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вверх-вниз (feat. Горячие головы) (03:32)
+02. Папочка, папа. (feat. Колючки) (03:22)
+03. Шалавы (04:46)
+04. Мозоли (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385BF68FD2D3539CEAD86DD805A73651E72262E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300601   (592742) от 07.05.2019
+
+Крис Кельми И Рок-Ателье - «Замыкая круг» & «Мы знаем» (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592742.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Замыкая круг» 1986
+
+01. Не торопись (04:29)
+02. Человек-часы (04:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37F582835533C9BC58C761B74DB97D89F82CDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550150   (592640) от 09.05.2022
 
 VA - ZYX Italo Disco Collection 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -611,157 +756,6 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [MP3|320 кб/с]<Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ECBE74429BB28712A38FB26615D65DBDB45FD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806973   (592016) от 23.07.2014
-
-VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<EuroDisco-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (3:22)
-02. Modern Talking - You Can Win If You Want (3:46)
-03. Bonnie Tyler - Bitterblue (3:48)
-04. Blue System feat. Dionne Warwick - It's All Over (3:54)
-05. Blue System - Sorry Little Sarah (3:29)
-06. Touche - This Goodbye Is Not Forever (3:36)
-07. Millane Fernandez - Boom Boom (3:29)
-08. Isabel - Will My Heart Survive (3:01)
-09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
-10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: EuroDisco-PopПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915976   (591910) от 06.07.2015
-
-G Romano - Enjoy Freedom (2015) [MP3|320 кб/с]<Electropop, Dubstep, R&B, Trap, Drum'n'Bass, Funk, EDM>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Goes On (03:05)
-02. Eurofunk (02:52)
-03. Je M'eclate (feat. Chef Tek) (03:13)
-04. My Heart Is Beating (02:48)(   Читать дальше...   )Жанр: Electropop, Dubstep, R&B, Trap, Drum'n'Bass, Funk, EDMПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147B2BE3387F5D2DEFEB025EB26CBD325DE4E1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550759   (591637) от 12.05.2022
-
-Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолтер Энтони Мерфи-младший - американский композитор, аранжировщик, пианист, музыкант, автор песен и музыкальный продюсер. Он наиболее известен благодаря инструментальной диско-адаптации Пятой симфонии Бетховена, которая возглавила чарты в 1976 году и была включена в саундтрек Saturday Night Fever. Последовали дальнейшие слияния классики и диско, такие как "Полет (   Читать дальше...   )01. Introduction (0:34)
-02. The Phantom Of Your Dreams (3:43)
-03. Dance Your Face Off (3:38)
-04. I'm Your Man (3:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F206C9BE133BB3D735817A8131A9DE8C2FD2BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550737   (591600) от 12.05.2022
-
-VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
-02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:23)
-03. Fun Gang - Just for Fun (Radio Remix) (4:03)
-04. Geff Harrison - Bad New York City (Special Mix) (6:12)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916002   (591404) от 07.07.2015
-
-Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U Make Me Feel Loved (4:01)
-02. Blue (Blu – english version) (5:48)
-03. Thin Air (5:44)
-04. If Not Tonight (3:31)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00876D890FB48EB05B1D9BCA104D37CFDCF65DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

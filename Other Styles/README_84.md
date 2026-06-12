@@ -1,3 +1,125 @@
+###  Публикация: 1230194   (617387) от 11.06.2018
+
+Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617387.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Prologue (3:35)
+2 - Stay in Your Tower and Watch (1:55)
+3 - Something's Wrong (0:56)
+4 - Beartooth Point (1:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036623   (617269) от 22.07.2016
+
+Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Tender
+02. You Don't Have To Say You Love Me
+03. Danna Boy
+04. The Twelth Of Never(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F74A2934459D13E161320F549C6668020144522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523559   (617210) от 16.07.2012
+
+VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320 кб/с]<Native American, Ethno, Ambient>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gran Canyon 2:43
+02. Mother Earth Round Dance 2:16
+03. Mojave 8:12
+04. Sacajawe Peak 4:15
+05. Beowawe 5:05
+06. Yellowstone 2:54
+07. Delta Seven 5:29
+08. Firedance 3:37
+09. Explora 4:10
+10. Song Of The Navajo 8:45(   Читать дальше...   )Жанр: Native American, Ethno, AmbientПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29A5BC77910879CAD767512ABF128E797A195AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230269   (617195) от 11.06.2018
+
+BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeless (03:13)
+02. Angel of War (04:42)
+03. Path to Queensgarden (05:36)
+04. Riverdel (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523557   (617109) от 16.07.2012
 
 VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
@@ -656,128 +778,6 @@ Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037477   (612029) от 25.07.2016
-
-VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phenomena
-02. Jennifer
-03. The Wind
-04. Sleepwalking(   Читать дальше...   )Жанр: OSTПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037854   (611773) от 25.07.2016
-
-Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Playa
-02. Solenzara
-03. Recuerdos De La Alhanbra
-04. Marina Elena(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3490671A0FEFACC12BBF38EE5163032D447FD1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221943   (611421) от 26.07.2010
-
-VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Tyrello - Infinity, Eternity, Extasy
-02. Code 14 - No Limits
-03. Jason Tyrello - Rain Sunday
-04. Hipnotic - Share Your Dreams
-05. Jason Tyrello - What The Memories Say
-06. Mahoroba - Le Monde
-07. Dreamscape - Khamsin
-08. Plasma - Under Control
-09. Hipnotic - Past Present Future
-10. Silent Voices - Turn The Light 2 Eternity(   Читать дальше...   )Жанр: Electronic, ChillOut, Ambient, EnigmaticПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545839   (611234) от 21.04.2022
-
-Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Galdra
-2. Halloween
-3. Gwydion
-4. Wainamoinen(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
 ```
 
 https://mybot314.ru/tekegram_catalog/

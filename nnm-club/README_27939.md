@@ -1,0 +1,728 @@
+###  Публикация: 1818956   (1968) от 19.09.2025
+
+Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't So Blind (3:18)
+02.  Blue Blood (2025 Remaster) (3:06)
+03.  I'm in Trouble (3:47)
+04.  Foolish Pleasure (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E63374EE2EC2E1FC5EB62A5143F0C73C1069B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818893   (1967) от 19.09.2025
+
+Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, покорившая время [2006, Movie] DVDRemux 576p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1967.jpg" />
+</div>
+
+
+###  Подробнее
+
+У старшеклассницы Макото не задался день: контрольная написана плохо, на уроке кулинарии сгорела темпура, на перемене ее сбили с ног; после уроков она относила анкеты и растянулась в лаборатории. И, в качестве эффектного завершения дня, у Макото отказал тормоз на велосипеде, причем выяснилось это как раз на железнодорожном переезде, когда поезд уже подходил... Если (   Читать дальше...   )Производство: MadhouseЖанр: приключeния, фантастикa, романтикa, драмaРежиссер: Мамору ХосодаЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи) by ReanimediaПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222ACAEA0E1D5D66D14A241AE800EC44C4AFA200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818925   (1966) от 19.09.2025
+
+Шрифты - MyFonts - Werkdruck [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Werkdruck — это шрифт с засечками из старых добрых времён, адаптированный к современным условиям, объединяющий в себе различные источники рационального и переходного шрифтового дизайна. Прочная конструкция облегчает чтение, а выразительные цифровые изгибы демонстрируют свою мощь в крупных размерах. В отличие от своих более узких предшественников начала века, Werkdruck (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818915   (1965) от 19.09.2025
+
+Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Serpent On The Cross [6:14]
+02 - Tyrants Serenade [4:21]
+03 - Salvation [7:08]
+04 - Silence Like The Grave [4:48](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B097A2B0A9E1AC2CEB88341C1FD5A2FEE5FF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818950   (1964) от 19.09.2025
+
+Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken [00:02:55]
+02 - Disengaged [00:02:57]
+03 - Don't Remind Me [00:02:58]
+04 - Downfall [00:02:59](   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17E7B60DB0D60FEB2AE83887FCFCDEF2882E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818985   (1963) от 19.09.2025
+
+Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hon هون [00:04:38]
+02. Shmaali شمالي [00:03:49]
+03. Shadia شادية [00:03:35]
+04. The beautiful losers الحلوين الخسرانين [00:03:15](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818980   (1962) от 19.09.2025
+
+Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Native American, World, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice of the Midnight Howl [00:03:12]
+02. Path of the White Fang [00:03:25]
+03. Moonlit Ancestral Rite [00:04:15]
+04. Guardian of the Frozen Peaks [00:03:29](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818787   (1961) от 19.09.2025
+
+Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangelion: 2.22 You Can (Not) Advance | Евангелион 2.22: Ты (не) пройдёшь [2009, Movie] DVDRemux 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ангелы продолжают свои непрерывные атаки, а в Nerv появляются два новых пилота: пилот павшего в первом же бою Евангелиона-05 Мари Илластриэс Макинами и пилот Евы-02, а позже Евы-03 Аска Лэнгли Сикинами.
+В то же время Икари Гэндо и Seele приступают к проекту совершенствования человечества, в котором задействованы Рей с Синдзи и загадочный мальчик Каору.Производство: Studio KharaЖанр: драмa, фантастикa, мехaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by «Evangelion Not End»Продолжительность: 112 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E9B8094D70BCF5A963611174D8B153F59F61C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818967   (1960) от 19.09.2025
+
+Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1960.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем почти треть планеты переселилась в виртуальную «страну ОЗ», где миллионы аватаров день за днем играют, общаются, торгуют, работают и даже творят высокую политику. Многие чувствуют себя в ОЗ куда увереннее, чем «в реале», и среди них 17-летний Кэндзи Койсо – типичный юный математик и программист. В свои последние летние каникулы Кэндзи привычно (   Читать дальше...   )Производство: MadhouseЖанр: комeдия, романтикaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C862A7CA8830C75868644780BE0D4573989145D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818860   (1959) от 19.09.2025
+
+VA - Armin van Buuren - A State Of Trance 1243 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELYKAST & LOEK – Angels
+02. Kasablanca – Audio Machina
+03. MRPHLNDR – Love Code 101
+04. Miss Monique ft. Poppy Baskcomb – Rain(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C595DC2B04C88FA3FE65696A243D0BFD49C1ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818946   (1958) от 19.09.2025
+
+Шрифты - MyFonts - Lust Pro Didone [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уверенный и универсальный, Lust Pro™ — это упражнение в баловстве — попытка создать что-то сверхъестественное и чрезвычайно полезное. Если Lust Pro кажется одновременно новым и знакомым, то это потому, что так оно и есть. Серия беззастенчиво перекликается с Herb Lubalin, но создана с намеренным современным оттенком. В формах букв присутствует намеренная хитрость (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5876BE8AC11ABFF58D92AD9A23B3F85E645418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818971   (1957) от 19.09.2025
+
+Surgical Steel - Cranck It Up! (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crank It Up!
+2. Tonight
+3. Hotwire
+4. Power To Rock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5B81A219CE0E9CF30CAA6D252203C9AC10C173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818795   (1956) от 19.09.2025
+
+VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wgnr & Wegner - Step By Step 02:53
+02. Mbnn - Neon Skies (Extended Mix) 05:16
+03. One Man Sound & Brooke Lee - Don't Stop The Music (Extended Mix) 04:47
+04. The Man With The Oranges Eyes - Can You Feel It? (Retro Festival Mix) 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E76956000444E21C93C8F8667D9A7C5514F1417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818941   (1955) от 19.09.2025
+
+Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scars on the Hearts [00:04:04]
+02 - (No More) Mr. Misunderstood [00:03:00]
+03 - Low Winter Sun [00:04:03]
+04 - Supersonic Baby [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5F1E1A8B559EAA0563034C46AE5EF2207114AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818808   (1954) от 19.09.2025
+
+Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметров в секунду [2007, Movie] DVDRemux 576p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1954.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Отрывок о цветущей сакуре", "Космонавт" и "5 сантиметров в секунду"...
+Три главы одной простой и точной истории о человеческих отношениях.
+Зарисовки о нашем мире потерявшем веру в чудо, но ещё не лишившемся мечты.
+(   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи) by ReanimediaПродолжительность: 61 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C01A06E0199F7C403545113E66D259412C53B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818959   (1953) от 19.09.2025
+
+Arjen Anthony Lucassen - Songs No One Will Hear (2025) [MP3|320 Kbps] <Prog Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Clock Ticks Down (No Narration) [00:06:47]
+02 - Goddamn Conspiracy (No Narration) [00:04:41]
+03 - The Universe Has Other Plans (No Narration) [00:05:31]
+04 - Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DAC6F08EDD9BC02CE7B1DC85AD6413F7A93EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818963   (1952) от 19.09.2025
+
+Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Blues & Soul Anthology (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heartbroken Blues (4:21)
+02.  Drown My Feelings (3:02)
+03.  Heavy Heart (2:47)
+04.  It's Gonna Rain Again (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1E361BE7A4AA87D7117754B08B906E7E897C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818930   (1951) от 19.09.2025
+
+Звуковые библиотеки - Samy Beatz - AfroHits [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1951.jpg" />
+</div>
+
+
+###  Подробнее
+
+AfroHits | Набор ударных инструментов Afrobeat от Samy Beatz и EmeraldP.
+
+AfroHits поможет вам ускорить рабочий процесс и подарит массу вдохновения для следующего бита. Используйте эти высококачественные сэмплы ударных, сбивки, лупы ударных и мелодий, чтобы вывести свой трек на новый уровень!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818885   (1950) от 19.09.2025
+
+Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
+2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818866   (1949) от 19.09.2025
+
+VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul - Aurora (Intro Mix)
+02. Sergey Nevone & Simon O'Shine - Apprehension (Orchestral Uplifting Classic)
+03. Trance Classics & Esmee Bor Stotijn - Heaven Is A Place Inside
+04. Tycoos & Mike Zaloxx with Sharon Valerona - Dive Into You(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A14F71DE7168BEC2771643ECAC994AC7FB3417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818947   (1948) от 19.09.2025
+
+Аста Нильсен. По закону / Nach dem Gesetz / Efter Loven (1919) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще одна встреча с Астой Нильсен. Киноведы говорят, что создатели фильма находились под впечатлением от творчества Ф.М. Достоевского. Не знаю, можно ли утверждать это наверняка, но вполне возможно. По вопросам поднимаемым в фильме, по настроениям, по идеям. Да и прямой намек на это есть - в одной из сцен героиня читает книгу Достоевского под названием "Раскольников" (   Читать дальше...   )Производство: Германия / Cserépy-Film Co. GmbHЖанр: драма, криминал, немое киноРежиссер: Вилли ГрюнвольдАктеры: Аста Нильсен, Бернхард Гёцке, Теодор Лоос, Отс Толлен, Фриц Хартвиг, Джорджина Собеска,  Вилли Кайзер-Хейл, Гуидо Херцфелд, Генри Питерс-АрнольдсПеревод: немой с интертитрами (Субтитры: голландские (интертитры), русскиеПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167F3B4ECDF95B8995F3206AB4374241561BEA6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818955   (1947) от 19.09.2025
+
+Ben Rice & the PDX Hustle - Fallen Angel (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Lord Bad Lord (4:44)
+02.  Get Down (5:16)
+03.  Even on a Good Day (5:33)
+04.  Trust (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F993C5B230CDBDBD7F25F43472DF5C1CB04BF87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818973   (1946) от 19.09.2025
+
+Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clock Ticks Down (No Narration) [00:06:47]
+02. Goddamn Conspiracy (No Narration) [00:04:41]
+03. The Universe Has Other Plans (No Narration) [00:05:31]
+04. Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB9BE3B8A61601A3D579BEE7E96D44BBAF47B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818954   (1945) от 19.09.2025
+
+Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1945.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем почти треть планеты переселилась в виртуальную «страну ОЗ», где миллионы аватаров день за днем играют, общаются, торгуют, работают и даже творят высокую политику. Многие чувствуют себя в ОЗ куда увереннее, чем «в реале», и среди них 17-летний Кэндзи Койсо – типичный юный математик и программист. В свои последние летние каникулы Кэндзи привычно (   Читать дальше...   )Производство: MadhouseЖанр: комeдия, романтикaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA486416A2B63A521268AA94ED4E32DCA9E54F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818958   (1944) от 19.09.2025
+
+Catfish John Tisdell - Rust and Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Ask Me Why (3:12)
+02.  Rust and Rain (4:34)
+03.  Rise Like Thunder (3:38)
+04.  Whiskey on My Mind Tonight (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC8E159CF8C7D1B9DECA974BFEE9AFFDD7019CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819096   (1943) от 20.09.2025
+
+Ведьмина доска / Witchboard (2024) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Орлеан. Готовясь к открытию кафе, Эмили и Кристиан находят старинную спиритическую доску, пробуждающую в Эмили одержимость духом Королевы ведьм. Кристиан пытается помочь невесте, ведь с каждым колебанием маятника начинается опасная игра, на кон которой поставлена её душа. За помощью он обращается к медиуму, не зная о его тайной связи с ведьмами.Производство: США / A-Nation Media, Gala FilmЖанр: ужасы, детективРежиссер: Чак РасселАктеры: Мэдисон Айсмен, Аарон Домингес, Мелани Джарнсон, Чарли Тахэн, Антония Деспла, Джейми Кэмпбелл Бауэр, Давид Ла Эй, Виктория Ленхард, Райли Расселл, Каден ВуПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DC066CA6A25600BCB2854A48B76901E5DEE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

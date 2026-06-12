@@ -1,3 +1,116 @@
+###  Публикация: 1104125   (879826) от 15.02.2017
+
+VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (07:32)
+02. Your Greatest Enemy (02:42)
+03. The Arrival of Robin (02:52)
+04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176490   (879722) от 06.04.2020
+
+Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октава / Octave (05:21)
+Карнавал / Carnival (03:57)
+Легенда / Legend (06:39)
+Арена / Arena (04:11)(   Читать дальше...   )Производство: РоссияЖанр: NewAge & MeditativeПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996523   (878978) от 14.03.2016
+
+Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с] <Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (03:48)
+02. Their War Here (04:37)
+03. The Red Capes Are Coming (03:33)
+04. Day of the Dead (04:03)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186871   (878432) от 27.03.2010
+
+V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 09:20:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 20005   (878168) от 07.04.2020
 
 Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
@@ -638,122 +751,6 @@ Pan flute или pan pipe или многоствольная флейта — �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A005889B180659F86931F455A0449F3C3618658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997635   (871752) от 18.03.2016
-
-Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica (05:23)
-02. Dee (03:49)
-03. Snowcaps (04:12)
-04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106824   (871560) от 20.02.2017
-
-2002 - Celtic Fairy Lullaby (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seoithín Seo Hó Gartan Mother's Lullaby
-02. Cariad
-03. Bí Thusa Mo Shúile
-04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997648   (871459) от 18.03.2016
-
-Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica (05:23)
-02. Dee (03:49)
-03. Snowcaps (04:12)
-04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496505   (871397) от 18.09.2021
-
-Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Heart Sutra
-02. Buddha of the Wild and Green
-03. Deer in the Morning (Chenrezig)
-04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

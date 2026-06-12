@@ -1,3 +1,32 @@
+###  Публикация: 1368027   (914250) от 17.03.2020
+
+2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgiven (feat. Marsha Ambrosius) (5:23)
+02. Threat 2 Society (3:46)
+03. Money In The Way (2:42)
+04. Statute Of Limitations (2:29)(   Читать дальше...   )Производство: Def Jam Recordings – B0030006-02Жанр: Hip-HopПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368030   (914245) от 17.03.2020
 
 Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
@@ -716,35 +745,6 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126B0F7DD5B46DB1D6215324E49E854380EF7D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294684   (627317) от 08.04.2019
-
-2 Mello - Mindstreaming, Vol. 1 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Chillhop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Intro (1:58)
-02. Kaiju Things (3:19)
-03. Cruise In Neon (1:49)
-04. Cover Charge (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental Hop, Beats, ChillhopПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

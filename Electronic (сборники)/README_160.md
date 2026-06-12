@@ -1,3 +1,32 @@
+###  Публикация: 1255086   (365885) от 17.10.2018
+
+VA - Options Remake Of Tracks October -A- (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Muszkat - Dancing With Crows (Danny Lloyd Remix)
+02. Hisham Sabbah - Lunar Eclipse
+03. Gabriel Amato - Genesys
+04. Tom Tunez - Nighlight Dreamin (Following Light Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F2EBAAC88F814D946CA6A9586FC3CFF1485E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255255   (365729) от 17.10.2018
 
 VA - Greatest Sounds: Deep House October Set (2018) [MP3|320 Kbps] <Deep House, Electro>
@@ -736,35 +765,6 @@ VA - Singles - November 07 (2016) [MP3|320 Kbps] <Electronic, House, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD74D8971C4736FE11CE6A3968792F79A33D906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071246   (361947) от 09.11.2016
-
-VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Emotional, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Rush - Temptation (Original Mix) 7:59
-02. O.B.M Notion & Cosmic Heaven - Melancholy (Original Mix) 7:42
-03. Fabio XB & Mike Saint-Jules - Throne (Original Mix) 6:22
-04. Aurosonic & Neev Kennedy - Now I See (Club Mix) 7:31(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting Trance, Emotional, HarmonicПродолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

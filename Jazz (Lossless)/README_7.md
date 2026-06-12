@@ -1,3 +1,61 @@
+###  Публикация: 1442477   (1036670) от 25.01.2021
+
+Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milt and Hal [7:04]
+02. Time for Dreams [6:16]
+03. A Ghost of a Chance [3:55]
+04. There Is a Small Hotel [7:17](   Читать дальше...   )Жанр: Mainstream Jazz, Soul-JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA002C2CED5CAA5891E799A857DCF3E334C67207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442456   (1036668) от 25.01.2021
+
+The Dave Brubeck Quartet - Brubeck in Amsterdam (1962) 2015,  Sony Music Labels Inc. [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since Love Had Its Way (Brubeck-Brubeck) - 5:59
+02. King for a Day (Brubeck-Brubeck) - 3:03
+03. The Real Ambassador (Brubeck-Brubeck) - 6:34
+04. They Say I Look Like God (Brubeck-Brubeck) - 4:16(   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D763FB7290AAA3AD61E0C4BE8538BF18287FE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442466   (1036666) от 25.01.2021
 
 Enrique Haneine - Unlayered (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Post Bop, Avant-Garde Jazz>
@@ -687,64 +745,6 @@ Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Boss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205545901E1783E7C7BA0631BDE5B9D570EEA4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443845   (1035228) от 30.01.2021
-
-Andy Kirk & Mary Lou Williams - Mary's Idea (1936 - 1941) 1993, GRP [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' and Swingin' [2:41]
-02. Moten Swing [3:06]
-03. Froggy Bottom [3:10]
-04. Bearcat Shuffle [3:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BEFA465174DB2A8E4529144DDEB286F8DA3D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617533   (1035079) от 07.03.2023
-
-Grachan Moncur III Octet - Exploration (2004) Capri Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. exploration [8:11]
-02. monk in wonderland [5:27]
-03. love and hate [8:49]
-04. new africa [9:54](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D642AFF4EDDDE8E936FCD4418927C7C0E74C800A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1666188   (180015) от 03.10.2023
+
+Alpha Blender PRO for Mac 1.1.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое и простое приложение для вырезания фигур или фона из изображений. Полученные изображения можно использовать для веб-дизайна, создания коллажей и т.д.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2022Разработчик: © 2023 Pavel KosykhПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56534C32565F7D6BB31CFF58E95DBD65B789D618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594856   (177302) от 02.12.2022
 
 Image Exif Editor 5.3.0 [En]
@@ -654,32 +680,6 @@ Retrobatch Pro 1.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671916   (170788) от 26.10.2023
-
-Video Copilot - Optical Flares 1.3.8 [En] + Presets
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Optical Flares - инструмент создания и анимирования различных линзовых бликов, лучей и засветов в After Effects. Является мощным и продвинутым аналогом стандартного эффекта Lens Flare.Тип издания: macOS SoftwareРазработчик: Video CopilotПоддерживаемая ОС: macOS Catalina or higherЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615300A784F642E722FFDBADF49780EFBBE22968
 ```
 
 https://mybot314.ru/tekegram_catalog/

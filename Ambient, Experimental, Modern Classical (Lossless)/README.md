@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875300   (1072594) от 
+
+Tangerine Dream - The Private Music Of Tangerine Dream (1992) Compilation [FLAC|Lossless|image + .cue] <Berlin-School, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melrose (5:47)
+02. Too Hot For My Chinchilla (3:50)
+03. Long Island Sunset (7:04)
+04. Atlas Eyes (4:07)(   Читать дальше...   )Жанр: Berlin-School, AmbientПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FC7FEF59E3FAA13B2D8AAE7A9038B8E3B86AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872437   (1070432) от 22.05.2026
 
 Agalloch - The White (2008) EP, Reissue, Remastered, 2019, Eisenwald Tonschmiede [FLAC|Lossless|image + .cue] <Ambient, Neofolk>
@@ -704,32 +733,6 @@ Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B81E4EE8564F566084D558A2F1DAB14EF64F236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446173   (1033067) от 08.02.2021
-
-Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
 ```
 
 https://mybot314.ru/tekegram_catalog/

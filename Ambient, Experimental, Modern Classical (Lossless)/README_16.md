@@ -1,3 +1,32 @@
+###  Публикация: 1418384   (349296) от 24.10.2020
+
+VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Dub>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord & Infinity Dots – One Summer Day (Rita & Vlada at sea) (10:00)
+02. Heavenchord – Qertg 6 (06:29)
+03. Skytechnic & Minor Noise – Detachment (Minor Noise remix) (16:56)
+04. Infinity Dots – Sizhu Doma, Slushayu Dom (07:14)(   Читать дальше...   )Жанр: Ambient, Dub Techno, DubПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B38A193030214F6870332A57F7B97E8836F797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180152   (342807) от 03.11.2017
 
 Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Drone, Experimental>
@@ -712,35 +741,6 @@ Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DA241B7F74CD80B51B546A69D2B13ED3A6F360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333081   (307484) от 23.10.2019
-
-Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Turns To Night (04:16)
- 02. Attic And Wormwood (03:37)
- 03. A Glass Of Sleep For An Elegant Dream (03:12)
- 04. All Things Nocturnal (05:36)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D0B3D625FA3DB198ED57D1CC81A4C03D88AEFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

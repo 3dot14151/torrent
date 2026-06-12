@@ -1,3 +1,55 @@
+###  Публикация: 836134   (366134) от 30.10.2014
+
+VideoHive - Promote Your Business - 3026287 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Promote Your Business проект для создания презентации чего-либоФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34581DCB0BFB87E74D10A02E6C3051017A3E872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328263   (365366) от 29.09.2019
+
+Motion Array - Product Promo - 294047 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Product Promo - это шаблон After Effects со стильным дизайном, современной текстовой анимацией и красочными эффектами в переходах. Вы можете использовать его для продвижения и рекламы целого ряда продуктов. Произведите впечатление на вашу аудиторию с помощью этого яркого и динамично анимированного шаблона AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F00377CCFB94B4148B96AA7B613BA4CAA90CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951263   (365075) от 28.10.2015
 
 Проекты - VideoHive - Your Best Product Promo [AEP]
@@ -626,59 +678,6 @@ VideoHive - Ultimate Action Promo - 137799 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A909CDE08FA39043A5C4399721695A4F9527B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953530   (348825) от 04.11.2015
-
-Проекты - VideoHive - Social Network [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для представления аккаунтов бренда в социальных сетях.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3F4BA706B0832090A8025002CFE4AAC1C25B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838362   (348740) от 06.11.2014
-
-VideoHive - TV Broadcast News Packages - 7968363 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект новостейФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19C266F9ADEC3C2F0A0A07068CCA022C06AC52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

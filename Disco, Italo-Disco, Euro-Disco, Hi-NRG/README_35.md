@@ -1,32 +1,3 @@
-###  Публикация: 1421104   (321904) от 03.11.2020
-
-Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killers (03:49)
- 02. Tears Turning to Ice (03:19)
- 03. Love Love Love (02:56)
- 04. A Million Times in Heaven (04:07)(   Читать дальше...   )Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332062   (318505) от 18.10.2019
 
 VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -740,6 +711,35 @@ VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0EAAD1D5B65267C8575F1E1CB92587D41D67030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423993   (295917) от 15.11.2020
+
+Salsa Orchestra - Dazzlin Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'N' Naasty  (4:31)
+02. Tangerine  (4:32)
+03. Quiet Village  (2:59)
+04. Salsal Rainbow  (3:41)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EE6C5CE7B5163C16D51FBFC9CE7470ECD0BFE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

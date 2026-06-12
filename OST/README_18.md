@@ -1,59 +1,3 @@
-###  Публикация: 1415397   (376341) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574330   (375454) от 12.11.2012
-
-Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Keys / RZA - The Baddest Man Alive
-  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
-  03. Kanye West - White Dress
-  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
-  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069434   (373682) от 04.11.2016
 
 James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -288,6 +232,32 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C630B08FB88D9B630EB7F7F41490005777D50AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255092   (357114) от 07.11.2010
+
+VA - Все песни из любимых кинофильмов (2006) [MP3|320 kbps]<Pop, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_357114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, SoundtrackПродолжительность: 05:00:22
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -752,6 +722,35 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330007   (345612) от 08.10.2019
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

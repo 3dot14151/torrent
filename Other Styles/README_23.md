@@ -1,3 +1,119 @@
+###  Публикация: 987930   (924325) от 18.02.2016
+
+VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-3P0’s Plight - Kaskade
+02. Help Me! - GTA
+03. Force - TroyBoi
+04. Cantina Boys - Baauer(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F428762AD90767312BCD54CA6783A3694E233E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366394   (924012) от 11.03.2020
+
+Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924012.jpg" />
+</div>
+
+
+###  Подробнее
+
+|04:10| 01. Main Theme (Team Fortress 2)
+|04:25| 02. Playing With Danger
+|03:52| 03. Rocket Jump Waltz
+|04:04| 04. The Art of War(   Читать дальше...   )Жанр: Soundtrack, Metal, ElectronicПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489722   (923894) от 17.08.2021
+
+Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribalistas - Velha Infancia
+02. Methania, Barque - Sem Fantasia
+03. Marcia - Eu E a Brisa
+04. Luiza Possi - Eu Sou Assim(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A27A2552653821179B500A3858E68827AA027AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366291   (923564) от 11.03.2020
+
+Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] <Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923564.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:12| 01. Neon Drive
+|04:13| 02. Prototype
+|03:17| 03. Netrunner
+|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366290   (923562) от 11.03.2020
 
 Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
@@ -629,122 +745,6 @@ VA - Back To The Future / Назад в будущее (1985) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC2DECA3442B9E0EDC05E3D7C35BDEABDA781D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096573   (919204) от 24.01.2017
-
-Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Awaken Me  (07:17) 
-02|  The Dream  (04:47) 
-03|  Light of My Soul  (04:48) 
-04|  My Heart Knows the Way  (05:30) (   Читать дальше...   )Жанр: New Age, VocalПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3D7B5118BEA7312A31974D99FFF1A63EAF731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366564   (918981) от 14.03.2020
-
-Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May It Be
-02. Ballroom Of Romance
-03. Granuaile’s Dance
-04. Dúlaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF8587B35AD5A0D87719633C151267C7EEA81AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988789   (918934) от 21.02.2016
-
-Ан Пьерле (An Pierle) - Новейший завет. Le Tout Nouveau Testament (2015) [MP3|320 кб/с] <ost, score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Rain Theme
-02. Girafes
-03. Ea
-04. Et dieu créa la pluie(   Читать дальше...   )Жанр: ost, scoreПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC0D19CFA1B1E0B14885641F9CD94565B05779A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490411   (918918) от 20.08.2021
-
-VA - Гитарный карнавал. Музыка вокруг света (2001) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Р. Файс ( гитара ) - К Жако ( Chez Jacquot ) 2:22
-02. Г. Луковски ( гитара )  - Intergrando 2:39
-03. Г. Луковски ( гитара ) - Спокойное утро ( La Matin calme ) 2:52
-04. Г. Луковски ( гитара ) и М. Грауэлс ( флейта ) - Ария из "Бразильской бахианы" № 5 4:08(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10671A9DFCF89D2CBEC351F7287CB0397C66CE7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

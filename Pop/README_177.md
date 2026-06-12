@@ -1,3 +1,90 @@
+###  Публикация: 1236319   (554490) от 17.07.2018
+
+VA - Synthetic Memento (2009) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.C.D - Lovely (4:39)
+02. Keen K - From The Outside (4:13)
+03. Infinity Night - Split-Zero-Dimension-00 (5:05)
+04. Aldo Bergamachine - MedievalOrange (4:10)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2AA1F59DB2155D460FD25617A97F3D86A35B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236426   (554483) от 17.07.2018
+
+Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1981 - Tom Tom Club
+1983 - Close To The Bone
+1988 - Boom Boom Chi Boom Boom(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307979   (554462) от 12.06.2019
+
+Трио Реликт - Золотые голоса России (1993) [FLAC|Lossless|image + .cue]<Retro, Folk, Romance>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Однозвучно гремит колокольчик
+02. Ой да не вечер
+03. Из-за леса, из-за гор
+04. Вот мчится тройка почтовая(   Читать дальше...   )Жанр: Retro, Folk, RomanceПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87D647BC0F7E9464913C5E2ABE700D284296C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307605   (554439) от 12.06.2019
 
 Prince - Originals (2019) Anthology [MP3|320 Kbps] <Pop, Rock, Funk>
@@ -655,93 +742,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D48E09D4A22131472B528E0059941D129AD62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308841   (553518) от 16.06.2019
-
-VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553518.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Charlie Charles - Calipso 3:11
-02. Takagi & Ketra - Jambo 2:37
-03. Ultimo - Rondini Al Guinzaglio 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043913C0760D83B942E24AF267433074A7193B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308838   (553499) от 16.06.2019
-
-Камоn!!! - Каблы, Камоn!!!  (2010) [FLAC|Lossless|tracks + .cue]<Euro-Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каблы, Камоn!!!
-02. Брюнетка
-03. Метросексуал
-04. Кибрлав(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5BB7FFF9D0807A120B1FC9043CFCA0C81C9AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308836   (553486) от 16.06.2019
-
-группа Рождество - Один из Вас (2011) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Давай, давай
-02. Бабье лето
-03. Игла
-04. Одноклассница(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B433BAE65F58A0917C622B92EE5D13DE0C00BBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

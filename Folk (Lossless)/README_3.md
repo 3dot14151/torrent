@@ -1,3 +1,32 @@
+###  Публикация: 1015656   (774168) от 11.05.2016
+
+Gyuto Monks of Tibet - Chants: The Spirit of Tibet (2013) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend Of The Yogi    05:25
+02. Bodihicitta    05:23
+03. Taya Ta    04:00
+04. Another World    04:01(   Читать дальше...   )Жанр: World, Ethnic, New AgeПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8436180CB7363EB38CA343039615CE231D3C424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015741   (772555) от 12.05.2016
 
 Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
@@ -716,35 +745,6 @@ VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285106   (718926) от 27.02.2019
-
-Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fields Of Anfield Road
-02. Scouser Tommy
-03. The Banks Of The Merseyside
-04. Liverpool Lou(   Читать дальше...   )Жанр: FolkПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

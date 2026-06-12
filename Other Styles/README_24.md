@@ -1,3 +1,119 @@
+###  Публикация: 1096573   (919204) от 24.01.2017
+
+Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Awaken Me  (07:17) 
+02|  The Dream  (04:47) 
+03|  Light of My Soul  (04:48) 
+04|  My Heart Knows the Way  (05:30) (   Читать дальше...   )Жанр: New Age, VocalПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C3D7B5118BEA7312A31974D99FFF1A63EAF731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366564   (918981) от 14.03.2020
+
+Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May It Be
+02. Ballroom Of Romance
+03. Granuaile’s Dance
+04. Dúlaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF8587B35AD5A0D87719633C151267C7EEA81AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988789   (918934) от 21.02.2016
+
+Ан Пьерле (An Pierle) - Новейший завет. Le Tout Nouveau Testament (2015) [MP3|320 кб/с] <ost, score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Rain Theme
+02. Girafes
+03. Ea
+04. Et dieu créa la pluie(   Читать дальше...   )Жанр: ost, scoreПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0D19CFA1B1E0B14885641F9CD94565B05779A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490411   (918918) от 20.08.2021
+
+VA - Гитарный карнавал. Музыка вокруг света (2001) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Р. Файс ( гитара ) - К Жако ( Chez Jacquot ) 2:22
+02. Г. Луковски ( гитара )  - Intergrando 2:39
+03. Г. Луковски ( гитара ) - Спокойное утро ( La Matin calme ) 2:52
+04. Г. Луковски ( гитара ) и М. Грауэлс ( флейта ) - Ария из "Бразильской бахианы" № 5 4:08(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10671A9DFCF89D2CBEC351F7287CB0397C66CE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988372   (918527) от 21.02.2016
 
 Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
@@ -627,121 +743,6 @@ Kathryn Kaye - There Was a Time (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00E89D4DE23783A30C35D8A99FC9B75E6C27517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456675   (913569) от 17.03.2020
-
-Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Coincidence 1 (22:03)
-02. Liquid Coincidence 2 (30:56)
-03. Liquid Coincidence 3 (25:54)Жанр: Electronic, New AgeПродолжительность: 02:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B182EFABAB79661B44ABA9AEA1BD6D735F25D4DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366331   (913486) от 17.03.2020
-
-Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (UK Remix) (4:05)
-02. Reborn (5:30)
-03. Hymne (4:56)
-04. Prayers (4:19)(   Читать дальше...   )Жанр: Enigmatic, New Age, Electronic, ClassicalПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65CA04F7357247B88F06FCE1C6DEFF8772EFCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989095   (913176) от 24.02.2016
-
-Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <New Age, Modern Classical, Synth-pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Orinoco Flow 	04:27
-02. 	Watermark 	02:26
-03. 	Evening Falls... 	03:50
-04. 	Exile 	04:22(   Читать дальше...   )Жанр: New Age, Modern Classical, Synth-popПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149B07EAF96351542E643E349A2D0D41BFD816B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097399   (912380) от 28.01.2017
-
-Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodhi Tree
-02. Sister Moon
-03. Lord Buddha
-04. Prayer to the Gyalwa Karmapa(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89E0B165CD10BB5AB11804573AB418F5B5FE7B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

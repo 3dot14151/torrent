@@ -1,3 +1,177 @@
+###  Публикация: 1427958   (181381) от 30.11.2020
+
+VA - Music News vol.52 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181381.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fonari - Пьяные (02:38)
+ 002. Addal - Angels (03:33)
+ 003. Aiobahn feat. Rionos - Amnesia (05:21)
+ 004. Al Fakher - Нет Чувств (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098D15600EF414ECB274DA0C24C596326A8861A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665643   (181196) от 01.10.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 29.09.2023 [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Rush (2:36)
+02. Olivia Rodrigo - Vampire (3:39)
+03. TwoColors, Safri Duo, Chris De Sarandy - Cynical (3:11)
+04. Rita Ora - Don't Think Twice (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C920CFF7D3F28FEA7199DACA190A90C226D02C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593414   (180868) от 26.11.2022
+
+VA - Disco Coco Bongo Compilation (2022) [MP3|320 Kbps] <Italo Dance, Club, Euro House, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EDM Power - Italo Loop (Original Mix)
+02. Demaklenco - Dancing the 30's (Extended Version)
+03. EDM Power - China Girl (Extended Mix)
+04. BEATCOIN - Amnesia (Extended Version)(   Читать дальше...   )Жанр: Italo Dance, Club, Euro House, TechnoПродолжительность: 01:23:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2ECF61D235D89463DBC4D3CBA25DDA49BAAD97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593227   (180847) от 26.11.2022
+
+VA - В машине с музыкой Vol.321 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierre Leck & Ome Feat. & Hanna Michalowicz - From Me (03:19) 2022
+02. Win & Woo & Luxtides - Dive (03:14) 2022
+03. Staffорд63 Feat. & Диана Теркулова - Ностальжи (03:06) 2022
+04. Mango  - Закружила (02:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590A303DCE81453A5EFC400D45E17590CD4EA11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593358   (180810) от 26.11.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 25.11.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KDDK - Heartbreaker (2:40)
+02. TwoColors - Heavy Metal Love (2:28)
+03. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+04. Ava Max - Million Dollar Baby (3:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C3EFB5D9BC1CB06595FC93A1043FE88D7C868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593912   (179638) от 28.11.2022
+
+VA - Dance Hits (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why (MEDUZA Remix) (8:28)
+02. HoneyLuv - 365 (Thr33 6ix 5ive) (6:27)
+03. ODESZA - The Last Goodbye (feat. Bettye LaVette) (5:59)
+04. Matt Sassari - Give It To Me - Full Vocal Mix (5:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE491662A2FA697A52E01C04056ABCF37788A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039305   (179187) от 04.10.2023
 
 VA - OST - Самые эпичные саундтреки (Sound Clinic - Epic OST Film, Game Edition) (2016) [MP3|320 Kbps] <Trailer music, Epic music, Score>
@@ -571,180 +745,6 @@ VA - Sexy Bath 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175EC8C31ED7E27D86629A1310301E7C6913769F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669190   (172990) от 15.10.2023
-
-VA - Music News vol.306 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172990.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna-Sophie - I Choose You (02:27)
- 002. Adil - Улыбайся Это Сунна (02:40)
- 003. Alex Anders feat. LIA SOL - Титаник (02:55)
- 004. Alex Ubago - No Volvere A Pensar En Ti (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE211073E1F3D05E773B9041EB76E4935E4B1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669128   (172965) от 15.10.2023
-
-VA - Motivation Mix 5 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dwin - Every Single Day (1:52)
-02. Beatmount - Adios Amigos (2:03)
-03. Zaza - Never Look Back (2:02)
-04. ZHIKO - Call You Mine (2:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7658EB0E5A88043C0EC667F69BE4E25940C63213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320994   (172910) от 15.10.2023
-
-VA - Понемногу отовсюду by Yuridar #I-J (1960-2023) Compilation Album [MP3|320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IC3PEAK - I'm Not Evil, I'm Sad
-02. IC3PEAK - Грустная сука
-03. IC3PEAK - Марш
-04. IC3PEAK - Плак-плак(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 07:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B836838A8064A11E2901B9C112A1093850F69A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669699   (172632) от 17.10.2023
-
-The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buy Beg Or Steal
-02. Drive This Truck No More
-03. Maniac Lover
-04. Walk Italian(   Читать дальше...   )Жанр: RockabillyПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670406   (172086) от 20.10.2023
-
-VA - Music News vol.308 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tanya Tekis - Мне Плевать (02:18)
- 002. Alex Alta feat. Saxonov - Don't Say (02:34)
- 003. Alex Mica feat. Rafella - Te Necesito (03:26)
- 004. Alina Eremia - Cu Voce Tare (03:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D5BFE675034E6F54320ABF24F518C463A5E547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670380   (172079) от 20.10.2023
-
-VA - Music News vol.307 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Despina Vandi - S' Agapao Kai Den Pao Kala (03:10)
- 002. 5sta Family - Искры (02:45)
- 003. 22 Region - На Таран (01:52)
- 004. Ahmed Helmy - R4VE 201 (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CD60943276164EABF12CEAF6D18604190A9809
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 914737   (596504) от 03.07.2015
+
+Jule Vera - Friendly Enemies (2015) [MP3|320 кб/с]<Alternative, Pop Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1896 (01:12)
+02. Chemical Machine (03:34)
+03. Light the Night (03:51)
+04. One Little String (02:47)(   Читать дальше...   )Жанр: Alternative, Pop Rock, Female VocalПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F087209696BB1960D1287CA2FA731CFDFA8A503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 687788   (596431) от 09.08.2013
+
+VA - 100 Hits - Disco Classics (2011) 5CD Box set [FLAC|Lossless]<Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско сборник из 99 песен. Почему 99 а не 100? Было бы 100, но есть довольно странная ошибка. На CD2 трек№9 Terri Wells - I'll Be Around и на CD4 трек№8 должна быть The Detroit Spinners - I'll Be Around оригинальная версия этой песни, но на самом деле - это лишь расширенная версия в исплнении Terri Wells (до 02:17 это совершенно одинаковые треки). И уж точно - не (   Читать дальше...   )Жанр: Disco, FunkФормат: 5хCD Box set, Compilation, FadeMixПродолжительность: 06:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5937332871FAC4B56D0814A0EDA999D9FC117B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232693   (596350) от 26.06.2018
+
+VA - Hot Parade Dance Summer 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596350.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Axwell  Ingrosso - Dreamer
+02. Alice Merton - No Roots
+03. Bob Sinclar - I Believe - Radio Edit(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6118F53B2AB7DE693F6AD4AEF54A6555634BF74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914918   (596285) от 03.07.2015
+
+VA - Golden Romantic Hits (2006) [FLAC|image + .cue]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demis Roussos - Forever and Ever [3:37]
+02. The Mamas & The Papas - Step out [3:04]
+03. Astrud Gilberto - Fly Me to the Moon [2:21]
+04. Stevie Wonder - My Cherie Amour [2:53](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAAE99A804A30FFAEA5CA3B3F22929F3C1A5177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548765   (596272) от 04.05.2022
+
+Carlo Maria Cordio - Shadows And Memories (1979) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon Sacrifice (3:54)
+02. Flying Into The Sunshine (3:26)
+03. Seagulls Flight (3:25)
+04. Theme For A Dream (4:15)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB8D5B44F4EDE03EB15EB983F1FAF7EEFA19A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548940   (596270) от 04.05.2022
 
 VA - ZYX Italo Disco - Best Of Volume 2 (2021) LP [MP3|~245 Kbps (V0)] <Italo-Disco, Europop, Synthpop>
@@ -611,169 +753,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2000C344FAA031EBF5F1F87C8DD21A2F5BE1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039770   (594688) от 02.08.2016
-
-VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Rock, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chantz - Lean on Me.
-02. Katie Melua - The Closest Thing to Crazy.
-03. Spice Girls - Viva Forever.
-04. Engelbert Humperdinck - I Want to Wake Up With You.(   Читать дальше...   )Жанр: Pop, Jazz, Rock, Soft Rock, VocalПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEA53C57BECED2BB8F22C5F485F7ED9A338A999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806967   (594172) от 22.07.2014
-
-VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Daddy Cool 3:28
-02. Precious Wilson - Hold On I'm Coming 3:33
-03. The Touch feat.Terence Trent D'Arby - I Want To Know (International Lady) 5:14
-04. La Bouche - Be My Lover 4:00
-05. No Mercy - Where Do You Go 4:31
-06. Far Corporation - Stairway To Heaven (Single Version) 3:59
-07. Meat Loaf - One More Kiss (Night Of The Soft Parade) 5:36
-08. Boney M. - No Woman No Cry 4:57
-09. Eruption - One Way Ticket 3:57
-10. La Bouche - Forget Me Nots 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232D7B8E6E71D10F7C0154EDE3275768EFB03E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806971   (594165) от 22.07.2014
-
-VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (3:22)
-02. Modern Talking - You Can Win If You Want (3:46)
-03. Bonnie Tyler - Bitterblue (3:48)
-04. Blue System feat. Dionne Warwick - It's All Over (3:54)
-05. Blue System - Sorry Little Sarah (3:29)
-06. Touche - This Goodbye Is Not Forever (3:36)
-07. Millane Fernandez - Boom Boom (3:29)
-08. Isabel - Will My Heart Survive (3:01)
-09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
-10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806466   (594158) от 22.07.2014
-
-Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Story Of Dschinghis Khan Part 1 (Extended Version)
-2 The Story Of Dschinghis Khan Part 2 (Extended Version)
-3 Moskau '99 (Rap Version feat. LTC)
-4 Dschinghis Khan '99
-5 Der Verrater
-6 Machu Picchu
-7 Corrida
-8 Samurai
-9 Rome (English Version)
-10 Klabautermann(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548968   (594007) от 06.05.2022
-
-VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Chambers - Caramel
-02. Max Mozart - Goals
-03. Eden Santonio - Medication
-04. Amadeus Mozart - Beach Opera(   Читать дальше...   )Жанр: Chillhop, Lo-Fi, Broken BeatПродолжительность: 00:52:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
 ```
 
 https://mybot314.ru/tekegram_catalog/

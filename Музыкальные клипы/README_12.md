@@ -1,3 +1,29 @@
+###  Публикация: 1375037   (867033) от 13.04.2020
+
+Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302073   (866889) от 01.03.2011
 
 Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
@@ -685,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499778   (839819) от 07.10.2021
-
-The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839819.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Pretty Reckless выпустили видеоклип на песню «Only Love Can Save Me Now», совместную с гитаристом Soundgarden Ким Тайилом и барабанщиком Мэттом Кэмероном.Жанр: RockПродолжительность: 0:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB4DB4E1DC701E97AB6EB5CFA889897446841AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

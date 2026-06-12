@@ -1,119 +1,3 @@
-###  Публикация: 1541249   (232849) от 03.04.2022
-
-VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Seasons - Oblivion (Original Mix) (4:47)
-02. Coolinar - Radiomator (Original Mix) (4:28)
-03. Nana Wang - Love Will Tear Us Apart (Original Mix) (4:54)
-04. Eros Kristyani, Oskar Boldre, Mario Arcari - India House (Original Mix) (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541235   (232678) от 03.04.2022
-
-VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - New Heights of Glee (5:32)
-02. Schwarz & Funk - Late Back (Kay Fischer Sax Mix) (5:23)
-03. Dany Cohiba - The Siren''s Song (5:59)
-04. Leaking Shell - Moonshine (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3586A8F5CF43F6F238DA0B5213EC3246D828343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541111   (232662) от 03.04.2022
-
-Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Rivers of the Mississippi (0:21)
-02. St. James Ballroom (4:27)
-03. Don't Shoot Me (0:26)
-04. Shoot Him Down (3:28)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898EBC05DC907721E569CEB76EB9298211942D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541256   (232650) от 03.04.2022
-
-VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Nostalgia (Original Mix) (4:34)
-02. Openzone Bar - Caruso Blanco (Original Mix) (4:48)
-03. Flokkendof - Sax Flow (Original Mix) (3:45)
-04. Stargazer - The Approach (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6E500A00105C737A148EF53B1C336CA99A94A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541491   (232643) от 03.04.2022
 
 VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
@@ -740,6 +624,116 @@ VA - Chillout Adventures, Pt. 3 (Compiled by Lydia) (2021) [AAC|~327 Kbps] <Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029D90CB77D32D2835403B1C113AF9EDAA433CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512804   (229471) от 26.11.2021
+
+VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Sufi's Life - Arselu Tel Quess (8:45)
+1.02. Astral Waves, Zymosis, Tentura - Magic Species (Remix) (7:46)
+1.03. Merlin, Tebra - Budjenje (5:31)
+1.04. Cosmic Dust - Sadogashima (5:54)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 02:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512763   (229467) от 26.11.2021
+
+VA - Chillout Adventures, Pt. 2 (2021) [AAC|~317 Kbps] <Ambient, Chill Out, Downtempo, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229467.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Chronos - Ancient Bells (6:24)
+1.02. E-Mantra - Silence (5:54)
+1.03. Lydia - Bells of the Lost Valley (6:10)
+1.04. Dhamika - Sadhana (9:32)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 02:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9ABD5BEF8AE192B392B83819779BAF8D28E04D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964681   (229329) от 12.12.2015
+
+Багровый пик / Crimson Peak (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дурная слава преследует дом, что возвышается над городом. С приходом зимы он утопает в кровавых снегах. Говорят, дело в глине, проступающей на поверхность. Но ни единая душа не рискует ступить на ледяной склон… кроме нее. Она влюблена в таинственного незнакомца, живущего в древних стенах со своей сестрой. Багровый пик пробудился и уже не уснет.Производство: США, КанадаЖанр: Ужасы, фэнтези, триллер, драма, мелодрама, детективРежиссер: Гильермо дель ТороАктеры: Миа Васиковска, Джессика Честейн, Том Хиддлстон, Чарли Ханнэм, Джим Бивер, Берн Горман, Лесли Хоуп, Даг Джонс, Джонатан Хайд, Брюс ГрэйПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E4760ED530AC6E6A0182A896E9C9C760CF0272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268034   (229175) от 09.12.2018
+
+Маугли / Mowgli (2018) WEBRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229175.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 01:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA832F2A26FC9D4DEC957F1EAF07C5994C1A219B
 ```
 
 https://mybot314.ru/tekegram_catalog/

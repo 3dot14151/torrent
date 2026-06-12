@@ -1,3 +1,119 @@
+###  Публикация: 1382605   (819115) от 11.05.2020
+
+Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runatal (Danheim & Sigurbodi) (6:05)
+02. Egilsson (5:49)
+03. Feikinstafir (3:55)
+04. Fella (3:12)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117154   (819093) от 22.03.2017
+
+Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel the Breath (Opening) (2:11)
+02.  Om Ah Hum - Hold My Hand (Vajra Guru Mantra) (7:56)
+03.  Hey Shivaya - Welcome Shiva (Shiva Mantra) (7:41)
+04.  Sarvesham - May We All Feel Free (Shanti Mantra) (7:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382604   (818983) от 11.05.2020
+
+Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaftrudner (4:17)
+02. Óðinn (Danheim & Gealdýr) (5:34)
+03. Hringrás (5:23)
+04. Lifa & Dauðr (6:07)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116882   (818944) от 22.03.2017
+
+Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nameless Order (04:27)
+02. Prologue (01:49)
+03. What A Wall (03:46)
+04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116883   (818937) от 22.03.2017
 
 Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
@@ -627,119 +743,6 @@ Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D70B3326D56FBDD06007108ECB89780A7A74D7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117506   (815476) от 24.03.2017
-
-Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preleminaries (8:52)
-02. Act 1 (5:43)
-03. Act 2 (5:40)
-04. Act 3 (6:05)(   Читать дальше...   )Жанр: New Age, Enigmatic, EroticПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008485   (815372) от 18.04.2016
-
-Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altamira (2:59)
-02. Maria (3:34)
-03. Dream Of The Bison (2:53)
-04. By The Grave (2:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117638   (815347) от 24.03.2017
-
-Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117536   (815336) от 24.03.2017
-
-Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
-02. Halsey - Not Afraid Anymore (03:47)
-03. JRY feat. Rooty - Pray (03:22)
-04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

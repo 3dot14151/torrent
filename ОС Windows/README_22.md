@@ -1,3 +1,57 @@
+###  Публикация: 1418293   (348936) от 24.10.2020
+
+Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1518.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C579809C2CDFEFEB28CF5DAA438A6C6442F118CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418299   (348813) от 24.10.2020
+
+Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1139.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7C1067EBFF76BE9E258544700955AC51ACCF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418298   (348796) от 24.10.2020
 
 Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -631,59 +685,6 @@ Windows Vista — операционная система семейства Mic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F641B12F59D04049D27237919F01B57117EA573D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422239   (310239) от 08.11.2020
-
-Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разрядностью x64-bit, в ее состав включена версия 20H2 построения 19042.508 и версия 2004 построения 19041.572. Загрузочный образ ISO поддерживает установку операционной системы любой ее редакции обоих версий как с русскоязычным, так и с англоязычным языковыми интерфейсами.Язык интерфейса: Русский,  Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332789   (309110) от 22.10.2019
-
-Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.805.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C2E9F0AD3768F42570E51AEEC824787356638F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1543668   (627591) от 12.04.2022
-
-Bad Boys Blue - The Fifth & Kiss (2000) Unofficial Release [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black
-02. Someone To Love
-03. A Train To Nowhere
-04. I'm Not A Fool(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96FF2A4E0E2468DED082BE6122EB30E7E96B964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543181   (627468) от 12.04.2022
 
 VA - The Best of Dance 80 (2015) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Pop>
@@ -764,6 +735,35 @@ VA - 100 Hits - Disco Classics (2011) 5CD Box set [FLAC|Lossless]<Disco, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB5937332871FAC4B56D0814A0EDA999D9FC117B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548937   (596197) от 04.05.2022
+
+VA - Italo Disco Classics (2013) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Europop, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Happy Children (Vocal Version) (6:01)
+02. Brian Ice - Talking To The Night (Extended Version) (5:53)
+03. Styloo - Pretty Face (6:06)
+04. Grant Miller - Colder Than Ice (Maxi Version) (5:37)(   Читать дальше...   )Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD8D84D394D178B99BC7773BE310658D0C8C475
 ```
 
 https://mybot314.ru/tekegram_catalog/

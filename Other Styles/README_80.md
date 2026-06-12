@@ -1,3 +1,125 @@
+###  Публикация: 1033553   (635816) от 12.07.2016
+
+Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Lullaby 03:53
+02.Pacifique 03:47
+03.Marta' s Song 04:12
+04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904680   (635730) от 13.06.2015
+
+Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallogallo 10:07
+02. Sonderangebot 4:50
+03. Weissensee 6:42
+04. Jahresbersicht (Part 1): Im Glck 6:52(   Читать дальше...   )Жанр: KrautrockПродолжительность: 10:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228556   (635697) от 01.06.2018
+
+Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dreams of sunbeams
+02 Cloud pictures passing by
+03 Spring break
+04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519651   (635631) от 07.07.2012
+
+VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635631.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vesna, Vesnyanochka (0:36)
+ 2. Na Gryanoy Nedele (1:04)
+ 3. Seraya Iy Zeziulechka (0:42)
+ 4. Katis, katis, zharkoie solntse (2:00)
+ 5. Oy, ty, lastochka (1:14)
+ 6. Gdje zhiviot moya milaya (2:12)
+ 7. Da khodila Tanechka po gorodu (1:33)
+ 8. Sidel Vanya na divane (2:39)
+ 9. Oy, ya v boru vodu beru (1:12)
+ 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519869   (635620) от 07.07.2012
 
 Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
@@ -674,134 +796,6 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F72BADB649F4FC3DF02816317A600D43412ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520617   (631113) от 09.07.2012
-
-James Newton Howard - Snow White & The Huntsman / Белоснежка И Охотник (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631113.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snow White (3:24)
- 2. I'll Take Your Throne (3:00)
- 3. Tower Prayers (2:07)
- 4. Something For What Ails ou (3:25)
- 5. Escape From The Tower (2:34)
- 6. You Failed Me, Finn (3:02)
- 7. White Horse (2:02)
- 8. Journey To Fenland (3:38)
- 9. Fenland In Flames (4:08)
- 10. Sanctuary (2:33)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B43303172450363364AC7C0618B255D0E29F1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520920   (630865) от 09.07.2012
-
-Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
-02. A.M. Radio :: 02:46
-03. Blair Mountain :: 03:34
-04. Angel Dust :: 03:00
-05. Olden Days :: 04:43
-06. Maud Only Knows :: 03:03
-07. Penny Arcade :: 03:41
-08. Silver Fiddle :: 03:21
-09. Radiation Blues :: 03:25
-10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035223   (630511) от 15.07.2016
-
-Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aldridge Mansion (02:58)
-02. The Garrett Attack (01:30)
-03. Never Invited (01:24)
-04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034115   (630510) от 15.07.2016
-
-Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dance    06:04
-02.  Voices    06:18
-03.  My Little One    02:12
-04.  Closer to Heaven    04:41(   Читать дальше...   )Жанр: Native American, Folk, WorldПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

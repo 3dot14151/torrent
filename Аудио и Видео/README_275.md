@@ -1,113 +1,3 @@
-###  Публикация: 1520856   (139283) от 30.12.2021
-
-VA - Best of 2020 Desert Hearts Black (2021) [AAC|~312 Kbps] <Melodic House & Techno, Progressive House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marbs, Rinzen, Evan Casey - Ark (8:07)
-02. Tim Engelhardt - Transmission 27 (6:42)
-03. Anakim - Poseidon's Revenge (7:16)
-04. Marbs - Something for Nothing (8:21)(   Читать дальше...   )Жанр: Melodic House & Techno, Progressive House, Deep HouseПродолжительность: 02:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB9924DF35BD441A0558F66E17C83F9F68EF2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520917   (139259) от 30.12.2021
-
-VA - The Collection 2021 Electronic Tree (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audio Noir - Life (Celebrate) (7:27)
-02. Flux Flow Project - On a Trip (7:13)
-03. Alter Alex - Solar Asia (7:54)
-04. Nir Yooz - Vayu (8:22)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 06:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DF07A852E28991A7121E103B2E602C5FE25EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349107   (139087) от 30.12.2019
-
-Джокер / Joker (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced x2, full x2), английские (full, SDH)Продолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0662433D8402040DB5A2E023C2A8353D4719F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520846   (139042) от 30.12.2021
-
-Зятёк / Son in Law (1993) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Худший кошмар всякой тёщи? Определенно, её зять. Но даже в страшном сне мадам Уоррен не предполагала, насколько худо всё обернется, пока впервые не увидела жениха своей дочери Ребекки. Существо, прибывшее в дом Уорренов на День Благодарения и представленное дочкой, как её жених Кроул, мгновенно произвело на потенциальных родичей неизгладимое впечатление. Средоточие (   Читать дальше...   )Производство: США / Hollywood Pictures, Touchwood Pacific Partners 1Жанр: Драма, мелодрама, комедияРежиссер: Стив РэшАктеры: Поли Шор, Карла Гуджино, Лейн Смит, Синди Пикетт, Мейсон Эдамс, Патрик Ренна, Деннис Бёркли, Тиффани Тиссен, Дэн Готье, Риа ПавиаПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67D144A8B55CF52BC7DC12B3D279A1B048B23AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520742   (139000) от 30.12.2021
 
 Армейские приключения / In the Army Now (1994) WEB-DL [1080p] ATV
@@ -702,6 +592,122 @@ VA - White Sands (Chill Out And Electronic Collection), Vol. 1 (2022) [AAC|~323 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751FE6A1FB3C43216DF9A7F42D50A38F2C940E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524739   (130344) от 18.01.2022
+
+VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - cardigan (4:00)
+02. Justin Bieber, Chance the Rapper - Holy (3:32)
+03. Mina Okabe - Every Second (3:02)
+04. Shawn Mendes - Fallin' All In You (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524734   (130340) от 18.01.2022
+
+DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friendship (DoMi Sakurazawa Remix) (6:16)
+02. Searching For You (DoMi Sakurazawa Remix) (4:34)
+03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
+04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524910   (130333) от 18.01.2022
+
+VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Kieloval - Space Thoughts (5:53)
+03. The Crispy Galaxy - Cream Soda (6:09)
+04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524743   (130323) от 18.01.2022
+
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Yeah Uhhh Oui (3:00)
+02. Weber & Weber - Speaking Without Words (4:49)
+03. Svendaq - Blue Bossa (6:01)
+04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
 ```
 
 https://mybot314.ru/tekegram_catalog/

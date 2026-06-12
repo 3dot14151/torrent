@@ -1,61 +1,3 @@
-###  Публикация: 1242022   (516190) от 21.08.2018
-
-Michaelangelo - One Voice Many (1971) Reissue, 2007, Fallout [MP3|320 Kbps] <Psychedelic Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. West
-2. Come To Me
-3. Bird
-4. Son (We Kept The Room Just The Way You Left It)(   Читать дальше...   )Жанр: Psychedelic Folk RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51611B74DF1160E6EB69414A354660F48B4D646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930415   (516139) от 22.08.2015
-
-Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things
-02. I've Got You Under My Skin
-03. Rod Stewart feat Dolly Parton - Baby, It's Cold Outside
-04. Time After Time(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 02:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42327191381316370A3017B86343E0B03E435D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241835   (516119) от 21.08.2018
 
 PRINCE - ANTHOLOGY: 1995-2010 EXPLICIT (2018) [MP3|320 Kbps] <Rock, Funk, Soul, Pop>
@@ -101,6 +43,40 @@ The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Ro
 
 01 - Anita's First Appearance, Part 1
 02 - Anita's First Appearance, Part 2Жанр: Space Rock, Psychedelic RockПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373889   (514386) от 13.08.2011
+
+The New Yardbirds (Led Zeppelin) - London Blues (1968) [MP3|320 kbps]<blues rock, psychedelic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_514386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Can't Quit You (5:42)
+ 2. I Gotta Move (3:16)
+ 3. Communication Breakdown (3:00)
+ 4. I Can't Quit You (6:24)
+ 5. Killing Floor (8:47)
+ 6. Fought My Way Out Of The Darkness - Hush Little Baby (6:22)
+ 7. She Wants You - London Blues (2:08)
+ 8. Dazed And Confused (12:03)
+ 9. White Summer - Black Mountain Side (8:44)1968Жанр: blues rock, psychedelic rockПродолжительность: 00:56:29
 
 ## Скачать торент
 ```bash
@@ -290,6 +266,39 @@ VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374106   (512197) от 15.08.2011
+
+Pat Benatar - 11 Albums+5 Live (1979-2003) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_512197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heartbreaker (Live) (6:38)
+2. Hit Me With Your Best Shot (Live) (2:59)
+3. I Need A Lover (Live) (4:26)
+4. Im Gonna Follow You (Live) (6:40)
+5. In The Heat Of The Night (Live) (9:57)
+6. No You Don't (Live) (3:48)
+7. Treat Me Right (Live) (3:21)
+8. You Better Run (Live) (3:12)1979-2003Жанр: RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,6 +508,41 @@ Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACC1B42464772C2FEC628FE299C2154D12CBD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375925   (509317) от 18.08.2011
+
+Eloy - 17 Albums+2 Live+2 Singles & Rare+5 Compilations+1 Solo+1 OST (1971-2009) [MP3|320 kbps]<Progressive Rock, Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_509317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Patrol (2:48)
+2. Hongkong Theme 1 (3:33)
+3. Hit And Run (1:39)
+4. Queen Of Rock'n Roll (2:37)
+5. Destiny (4:35)
+6. Discovery (0:52)
+7. Juke-Box (2:02)
+8. Deadlock (1:36)
+9. Cha-Shoen (3:36)
+10. Sabotage (1:21)(   Читать дальше...   )1971-2009Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -742,35 +786,6 @@ Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBAD4FA701491A7B27C520A13D993C5986528697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562568   (507321) от 11.07.2022
-
-Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507321.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Remember
-2. Oppose
-3. Upcoming
-4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDEC2A274284A604E21320585B43A2B807841A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

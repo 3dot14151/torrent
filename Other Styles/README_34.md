@@ -1,3 +1,116 @@
+###  Публикация: 1001739   (850049) от 30.03.2016
+
+Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499169   (849649) от 01.10.2021
+
+Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Sun
+02. Chisy Muspuyalay
+03. Savry Nan
+04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111247   (848365) от 05.03.2017
+
+Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Storm [00:04:48]
+02. High Tide [00:04:01]
+03. Moonsong [00:03:36]
+04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111353   (848175) от 05.03.2017
+
+Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis - Come On (Remastered)
+02. Vangelis - We Are All Uprooted (Remastered)
+03. Vangelis - Sunny Earth (Remastered)
+04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002499   (846832) от 01.04.2016
 
 Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
@@ -626,119 +739,6 @@ VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002793   (841702) от 04.04.2016
-
-Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grounded    09:31
-02. Bliss    07:25
-03. Breathing Space    08:06
-04. Jai    08:55(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003651   (841687) от 04.04.2016
-
-Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothing Native Flute Melodies) (1998) [MP3|320 кб/с] <Native American, Ethnic Fusion, Meditation, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Cycles of the Native American FluteЖанр: Native American, Ethnic Fusion, Meditation, New AgeПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19587600545F4B69745A91C0A3AC124D005119F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003509   (841586) от 04.04.2016
-
-Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Lie (3:47)
-02. Their War Here (4:36)
-03. The Red Capes Are Coming (3:32)
-04. Day Of The Dead (4:02)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003894   (841364) от 04.04.2016
-
-Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instrumental, Nuevo Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Clouds (4:19)
-02. Guitarra Poeta (4:21)
-03. Romance De La Luna (4:39)
-04. Lagrimas (4:49)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco |Продолжительность: 02:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
 ```
 
 https://mybot314.ru/tekegram_catalog/

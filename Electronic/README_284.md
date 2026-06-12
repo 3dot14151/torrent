@@ -1,3 +1,61 @@
+###  Публикация: 1312708   (530952) от 05.07.2019
+
+Richard Clayderman - When Love Songs Were Love Songs (1992) [MP3|320 Kbps] <Easy Listening, Instrumental Pop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bewitched (3:36)
+02. Embraceable You (2:34)
+03. Stardust (3:59)
+04. Night & Day (2:48)(   Читать дальше...   )Жанр: Easy Listening, Instrumental PopПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51081B13FDD8C602360DD3423EC35633DF28D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312654   (530819) от 05.07.2019
+
+VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond feat. Susana - Love You Are Made Of (Extended Mix)
+02. Maria Nayler - Angry Skies (James Dymond Extended Mix)
+03. Allen & Envy feat. Neev Kennedy - Without You (Dan Stone Remix)
+04. Sneijder feat. Jess Morgan - Sky Is On Fire (Kaimo K Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6465337A56E067E5050829C33C736472BE51AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532981   (530757) от 11.08.2012
 
 Aly And Fila Vs Roger Shah Feat Adrina Thorpe - Perfect Love (2012) [MP3|320 кб/с]<Trance>
@@ -685,64 +743,6 @@ Liquid Bloom - ReGen (AtYyA Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <PsyCh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1590033ABEBCF0C398D9BFAF6CEDBC938ECE071C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312849   (529016) от 06.07.2019
-
-VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno) (2019) [MP3|320 Kbps] <Techno, Minimal, Deep House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mrs. Robot - Lucid Sounds, Vol. Thirty Two Deep Flow (Original Mix)
-02. dreamAwaken - Trilithon (Original Mix)
-03. D. Diggler & Nadja Lind - Kahuna (Helmut Ebritsch Remix)
-04. Dennis Allen - A61v3 (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 04:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02623060E96D543D6ACE8C9F07D40E0E3FDF8CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558434   (528856) от 22.06.2022
-
-Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justus - Tunnel w/J Balvin & Skrillex - In Da Getto w/Foreigner - Cold As Ice
-02. Ron Van Den Beuken - Timeless (Justus Until Sunrise Version) w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
-03. Justus - Speed w/Tiësto & Ava Max - The Motto
-04. ShortRound - Fly w/R.E.M. - Losing My Religion(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

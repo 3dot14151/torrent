@@ -1,32 +1,3 @@
-###  Публикация: 977715   (965487) от 21.01.2016
-
-F.R. David - Greatest Hits (1991) [APE|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Words
-02	Music
-03	Rocker Blues
-04	Long Distance Flight(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34B4E62A22C56DC01E6FC6C38F1F95F7CC32C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359374   (963093) от 13.02.2020
 
 VA - Disco Disco Disco (1989) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
@@ -753,6 +724,35 @@ VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098305   (908392) от 30.01.2017
+
+Ken Laszlo - The Best Of (1994) [APE|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (Original Edit) [3:57]
+02. Hey Hey Guy (Original Long Edit) [7:33]
+03. Glasses Man [4:19]
+04. Baby Call Me (Mix Edit) [7:28](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD1A9C9724A5795F30246C65773AF47CAEEAFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

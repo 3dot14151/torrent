@@ -1,3 +1,61 @@
+###  Публикация: 1304942   (560066) от 28.05.2019
+
+VA - A 40 Track Compilation: Hong Kong (2019) [MP3|320 Kbps] <House, Progressive House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madloch & Subnode - Shadow People (Charles Webster Remix)
+02. Paula OS - Pearl (Adam Nathan Remix)
+03. Matias Vila - Ahora (Stelios Vassiloudis Remix)
+04. Agustin Basulto - Calma (Roger Martinez Medicine Music Remix)(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 05:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E246E9B124B2F4F6C76C200EC99A3AF85788FD37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153355   (559985) от 26.07.2017
+
+VA - Coffee Break Vol.1: Wonderful Restaurant Lounge and Bar Background Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Liege - A Night At The Casino  3:57
+02.  Urban Phunk Society - Love Echoes  4:36
+03.  Jay Steele MidiBand - Close To Home  5:36
+04.  Urban Phunk Society - Night Train  3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0003D791A1DAAC59F202F51D6F9195452B8A3B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045418   (559970) от 23.08.2016
 
 VA - After EDM Lounge, Vol. 2 (2015) [MP3|320 Kbps] <Lounge, ChillOut>
@@ -687,64 +745,6 @@ Conjure One - Innovation Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C2C270A5E7EF132CFD59A17A4DCB5318016294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305182   (558277) от 29.05.2019
-
-VA - Modern Nu Disco (2019) [MP3|256 Kbps] <House, IndieDance, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Johanson - Walking On The Clouds (Original Mix) 4:20
-02. Andy DelaCruz - Feeling Tonight (Original Mix) 4:02
-03. Patrick Richmond - Deceiver (Original Mix) 4:16
-04. Danny Vegas - I'm Ok (Original Mix) 6:05(   Читать дальше...   )Жанр: House, IndieDance, Deep HouseПродолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEF1396E809BE41C11CE96AB7E8EC355559F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153717   (558270) от 27.07.2017
-
-VA - Midnight Lounge Vol.43: A Love Message For You (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrea Cardillo - So Delicate  5:02
-02.  Vibraphile - Happy Yesterday  4:17
-03.  Massimo D'Arrigo - Sea Calling  2:09
-04.  Marco Cimino - Vertige Tango  2:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92C4FD970B779EF7A16485617666F24B7DA0AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

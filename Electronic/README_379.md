@@ -1,3 +1,235 @@
+###  Публикация: 1335433   (287910) от 02.11.2019
+
+Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clawz SG - Xanax
+2. Estiva - Eclipse
+3. David Wise - Aquatic Ambience (Wæde Wätts Remix)
+4. Andretta - Fragments(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278C29ABD65D8F9094CED82A84FD0ABCF53EA435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335458   (287890) от 02.11.2019
+
+Peel Seamus - Susurro (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valve POD (03:02)
+ 02. Absence In Reality (02:09)
+ 03. Strawberry Hills (04:00)
+ 04. Black Mesa (02:31)(   Читать дальше...   )Жанр: Techno, Detroit Techno, Techno AmbientПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB89316825FDAED658C10B92E37C96BAFB051B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335414   (287863) от 02.11.2019
+
+Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP3|320 Kbps] <Electro House, Hardstyle>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnage ft. Timmy Trumpet & KSHMR - Toca
+02. Timmy Trumpet ft. Charlott Boss - Therapy
+03. Carnage & Timmy Trumpet ft. Wicked Minds - Nah Nah
+04. Knife Party - Internet Friends(   Читать дальше...   )Жанр: Electro House, HardstyleПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186290   (287800) от 24.11.2017
+
+ScAnDroid Experiment's - Ambientable (2017) Авторская раздача [MP3|320 Kbps] <Ambient, Experimental, Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hear Me Now
+02 - With Measured Steps
+03 - Don't Rush ... Take a Breath
+04 - Do What You Want(   Читать дальше...   )Жанр: Ambient, Experimental, ElectronicПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5327D83C19056CA5CAA721F81AA9375E621FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335424   (287743) от 02.11.2019
+
+Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide vs. Planet Funk - Chase The Rebooted Corn Flakes (Nitrous Oxide Mashup)
+02. Nitrous Oxide - Tsukuba
+03. Nitrous Oxide - Flat Six w/Nitrous Oxide ft. Aneym - Follow You
+04. Nitrous Oxide - Verano(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A546D3856A56747E3B31D76F9749EA74EF1CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335392   (287732) от 02.11.2019
+
+VA - Coffee Bar Chill Sounds Vol 15 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Kramer – Another Cup (4:45)
+02. Jens Buchert – Causality (5:21)
+03. Rex Kramer – In The Kitchen (4:51)
+04. Anemine – White Series 256 (7:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81594545F7819D5BF419F899D10C58C8F4C334F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335427   (287729) от 02.11.2019
+
+Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
+ 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
+ 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
+ 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335437   (287562) от 02.11.2019
+
+VA - Lovely Mood Music presents: Chill With Style Series (The Lounge & Chill Out Collection) - 5 Releases (2013-2015) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287562.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Chill With Style (The Lounge & Chill Out Collection)
+2014 - Chill With Style Vol. 2 (The Lounge & Chill Out Collection)
+2014 - Chill With Style Vol. 3 (The Lounge & Chill Out Collection)
+2015 - Chill With Style Vol. 4 (The Lounge & Chill Out Collection)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243264AA61ACCCBF94A1C1EBF5EB63FD20CF090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335403   (287553) от 02.11.2019
 
 Solarstone - One (Limited Edition) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance, Progressive House>
@@ -510,238 +742,6 @@ Mario Lopez - Mother Earth (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44EC913BF9DCC82ACC05646BD75A120415F73EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081104   (286261) от 08.12.2016
-
-Ferry Corsten presents Gouryella - From The Heavens (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten presents Gouryella - Gouryella (From The Heavens Mix) (10:36)
-02. Ferry Corsten presents Gouryella - Ligaya (From The Heavens Mix) (5:31)
-03. Ferry Corsten - Drum's A Weapon (5:10)
-04. Ferry Corsten presents Gouryella - Gorella (From The Heavens Mix) (3:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DF9E70AA95662A0D0608B536744450AA57F6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080851   (286098) от 08.12.2016
-
-VA - Cafe Del Mar Piano Works - Chapter II (2016) [MP3|320 Kbps] <Chillout, Instrumental, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrogate Sibling - CIV 6:00
-02. Sleepwalk With Luna - Pin & Needle 2:06
-03. Poppu Ackroyd - Salt 4:29
-04. Ed Carlsen - Close 4:29(   Читать дальше...   )Жанр: Chillout, Instrumental, Easy ListeningПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED57D983A74DDE0DC1F8820EE9CAFC92704E2432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335549   (285986) от 03.11.2019
-
-A Winged Victory for the Sullen - The Undivided Five (2019) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Lord Debussy (09:53)
- 02. Sullen Sonata (05:23)
- 03. The Haunted Victorian Pencil (01:30)
- 04. The Slow Descent Has Begun (04:56)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31485F2C620E71B6C6B1852AE1E6530592CEBF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211015   (285925) от 20.11.2018
-
-Dj Mithril - Collection [set 001-033] (2015-2018) [MP3|320 Kbps] <Drum & Bass, Progressive Psytrance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Omauha - Victoria 00:00
-2. Double Creativity & Exia - Selecta 07:54
-3. Alex Field – Cosmic Wind 14:19
-4. Duane Barry – Cosmia (Helbot's Deep Remix) 18:25(   Читать дальше...   )Жанр: Drum & Bass, Progressive Psytrance, Progressive TranceПродолжительность: 51:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF45A337A59CABF2751D778344D2D233DBECA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963922   (285794) от 09.12.2015
-
-VA - White Nights Grooves Vol 1-2 (2015) [MP3|320 кб/с]<House, Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol 1
-
-
-01. Tony Roja - Bitcoin - Original Mix [03:32](   Читать дальше...   )Жанр: House, Deep House, Chill HouseПродолжительность: 04:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680DDB71926D4EF4C0DD602BAA839F2474F3A7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963594   (285481) от 09.12.2015
-
-Dieter Bohlen & VA - Greatest Hits (2002) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul ('84Mix) (3:23)
-02. Modern Talking - Cheri Cheri Lady (3:47)
-03. Chris Norman - Midnight Lady (4:10)
-04. C.C. Catch - Strangers By Night (3:38)(   Читать дальше...   )Жанр: Europop, Synth-pop, Ballad, DiscoПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0546430807F8002F5DDECE24F5111BF9EDF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653253   (285410) от 08.12.2016
-
-Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-2016) [MP3|128 - 320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage - Riot On The Dancefloor (2:39)
-02. Pulsedriver - Slammin The Beat (2:56)
-03. Genial - No Games (Timmy G. vs. Sigi Di Collini Remix) (3:40)
-04. 2-4 Grooves - Rockset (Extended Club Mix) (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6248E404EADA77769DCA3ED63FF286BD995D0D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963339   (285323) от 09.12.2015
-
-Bad Boys Blue - You're A Woman (1994) [FLAC|tracks+.cue]<Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Really Hurts Without You (3:43)
-02. Kisses And Tears (My One And Only) (3:59)
-03. A World Without You (Michelle) - Radio Edit (3:30)
-04. Kiss You All Over, Baby (New Version) (4:12)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE11AA40658BBBB17A79C89AC9F08BA0AF1E842
 ```
 
 https://mybot314.ru/tekegram_catalog/

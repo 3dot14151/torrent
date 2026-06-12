@@ -1,3 +1,61 @@
+###  Публикация: 1414658   (383407) от 09.10.2020
+
+Макс Барских - 1990 (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383407.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Армагеддон (Intro)
+2. Армагеддон
+3. Самолёт (Intro)
+4. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750A45135D7772E517641DC8EF45FA1B4E165974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174968   (383272) от 16.10.2017
+
+Gina X Performance - 4 Albums (1978-1984) Reissue CD, LTM, 2005 [MP3|320 Kbps] <Electronic, Synth-pop, Disco, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все альбомы немецкой группы "Gina X Performance", с вокалисткой "Gina X" (настоящее имя Gina Kikoine) работавших в стиле крутого артхауса, электро-диско и синти-попа. Их хиты становились клубными и классическими  по обе стороны Атлантики, а "No G.D.M." остается культовым благодаря electro/synthcore компиляциям.Список альбомов:
+1978 - Nice Mover (Gina X Performance)
+1980 - X-Traordinaire (Gina X Performance)
+1981 - Voyeur (Gina X Performance)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Disco, New WaveПродолжительность: 04:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1644BB4AA9506AC8439022E122189A635A7C6819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175025   (383259) от 16.10.2017
 
 Carla Bruni - French Touch (2017) [MP3|320 Kbps] <Pop>
@@ -700,64 +758,6 @@ Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176144   (374344) от 20.10.2017
-
-Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinball Playboy (5:30)
-02. Little Girls & Ladies (3:42)
-03. Comin' To Getcha (4:25)
-04. Olympiad '84 (3:54)(   Читать дальше...   )Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415820   (374176) от 13.10.2020
-
-Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый австрийский композитор и аранжировщик Кристиан Колоновиц относится к числу самых заметных музыкантов, формировавших ландшафт европейской поп-сцены в 70-х-80-х годах XX века. Работал с такими звёздами как Chilly, Boney M., Eruption , Scorpions, Tiger Lillies, Jose Carreras, Wolfgang Ambros, Ludwig Hirsch, Einstein, Black Jack, Joy и многими другими.Список альбомов:
-1976 - Life Is Just A Carnival
-1982 - Christian Kolonovits
-1984 - Erbsünde Für Fortgeschrittene(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
 ```
 
 https://mybot314.ru/tekegram_catalog/

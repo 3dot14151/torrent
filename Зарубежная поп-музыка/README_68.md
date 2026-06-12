@@ -1,3 +1,90 @@
+###  Публикация: 1619253   (249757) от 15.03.2023
+
+VA - 20s Finest Pop (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Celestial
+02. Bryce Vine - Help (feat. Pheelz)
+03. Ava Max - Weapons
+04. Charlie Puth - Smells Like Me(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC5570129D37181F25D2761F39E243735757E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619266   (249731) от 15.03.2023
+
+VA - All Day Throwback 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - That's What I Like
+002. Fleetwood Mac - Everywhere (2018 Remaster)
+003. Tina Turner - The Best
+004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E560C70145901F4D7CA3CE1D8295F2E59CCE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619595   (249668) от 16.03.2023
+
+VA - Love Songs 2000s (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akon - I Wanna Love You
+02. Maroon 5 - She Will Be Loved
+03. Carla Bruni - Quelqu'un m'a dit
+04. James Morrison - You Give Me Something(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43087810CC4DC6A23CE9EB757AE1D4269960FBFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619525   (249652) от 16.03.2023
 
 VA - Romantic Collection: Golden 50s (2000) [OGG Vorbis|480 Kbps] <Jazz, Pop>
@@ -658,93 +745,6 @@ Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623349   (243228) от 01.04.2023
-
-VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyndi Lauper - Girls Just Wanna Have Fun
-02. Rick Astley - Never Gonna Give You Up
-03. Altered Images - I Could Be Happy
-04. Dead Or Alive - You Spin Me Round (Like A Record)(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DE3E3ACA7601BBFF98675AFF6D9C6E17CC4473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624119   (242897) от 04.04.2023
-
-VA - 70s Music Explosion - 70s One-Hit Wonders (2005) 2 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Cherry - Play That Funky Music
-02. B.W. Stevenson - My Maria
-03. Brewer And Shipley - One Toke Over The Line
-04. Starland Vocal Band - Afternoon Delight(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934C241922C33DE55131ED39641905860ADB3F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624003   (242882) от 04.04.2023
-
-VA - Slay Queen! (2023) [MP3|320 Kbps] <Pop, Rock, RnB,>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loreen - Tattoo
-02. Daniela Rathana - Full av mig själv
-03. Lady Gaga - Born This Way
-04. Spice Girls - Who Do You Think You Are(   Читать дальше...   )Жанр: Pop, Rock, RnB,Продолжительность: 02:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4FC3CD76D23C60963A6B330691FA4DC8817C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

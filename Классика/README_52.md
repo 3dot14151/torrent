@@ -1,38 +1,3 @@
-###  Публикация: 475387   (85305) от 30.03.2012
-
-Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie (1791)/2002/[APE|Lossless]<Classsical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Introitus
-1.	Requiem (Coro, Soprano) 05:22
-2.	Kyrie (Coro) 02:33
-Sequentia
-3.	Dies Irae irae (Coro) 01:41
-4.	Tuba Mirum (Soprano, Contralto, Tenore, Basso) 03:10
-5.	Rex Tremendae (Coro) 02:05
-6.	Recordare (Soprano, Contralto, Tenore, Basso) 05:15
-7.	Confutatis (Coro) 02:28
-8.	Lacrimosa (Coro) 02:53(   Читать дальше...   )2002Жанр: ClassicalПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475429   (85288) от 30.03.2012
 
 Wolfgang Amadeus Mozart - Cassations G-Dur KV 63 & B-Dur KV 99, Divertimento D-Dur KV 205: VA, (2006), conductor Sigiswald Kuijken /2007, ACCENT ACC 24187/ [FLAC|Lossless]< Classical/Authent ...
@@ -833,6 +798,35 @@ VA - Музыка Семейства Штраусов. На Прекрасном
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A07F9EA7B50956C24346416835E58FA5881A164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797913   (66667) от 19.05.2025
+
+Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canto della terra (4:03)
+02. The Prayer (4:30)
+03. Sogno (4:04)
+04. ’O mare e tu (4:37)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 ```
 
 https://mybot314.ru/tekegram_catalog/

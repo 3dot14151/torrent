@@ -1,3 +1,29 @@
+###  Публикация: 1340343   (263869) от 23.11.2019
+
+Текстуры - 4K Maps Textures TIF Collection [14 Sets] [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник текстур из 14 сетов.Формат: TIFРазрешение файлов: 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058BE869CF5348DEB2C778B1F24270FDFF6CAA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836063   (252340) от 08.11.2025
 
 Фоны - Creative Market - Abstract Gradient Blend Backgrounds - 91603388 [JPG, PNG]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E407C8098FA73EED26F97542FC8DA785DE4235B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425512   (219763) от 21.11.2020
-
-Оверлеи - Eldamar Studio - 2000+ Wedding Photo Overlays Bundle [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы представляем этот замечательный набор из 500+ уникальных ресурсов, в котором вы найдете лучшие наложения для фото на любой вкус. Неполный сборникФормат: JPGРазрешение файлов: 1920x1080-5000x3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A92A40A06A96FE7762904BDE8F945B8B210AEBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

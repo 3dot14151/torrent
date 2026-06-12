@@ -1,3 +1,119 @@
+###  Публикация: 1044051   (565362) от 20.08.2016
+
+Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (4:25)
+02. The Infinite (5:43)
+03. Ah! (4:38)
+04. Thomas Lemmer, Tina Sona - Lost (3:40)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5021C5648F5B1ACBC16869C95E9906902488BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044338   (565341) от 20.08.2016
+
+Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finish Line (3:39)
+02. Each Other's Shoes (4:12)
+03. Do You Dare (4:11)
+04. Love & Luccheses (3:36)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EF09242FCC3DCA2EB80629C2051F13C437F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044333   (565319) от 20.08.2016
+
+Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here & Now (2:29)
+02. Beautiful Dreamer (3:58)
+03. Game of Life (3:20)
+04. Quiet Down (3:29)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BE07D9A2DA62C8B2561ABB4B34EC2F786535C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044088   (564895) от 20.08.2016
+
+FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midgard Prolog
+02. Federkleid
+03. Sonnenreigen (Lughnasad)
+04. Alba II Intro(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529934   (564594) от 01.08.2012
 
 Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
@@ -600,115 +716,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153342   (559844) от 26.07.2017
+###  Публикация: 365228   (559896) от 19.07.2011
 
-VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Latin Music, Reggaeton, Bachata>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOLYMAR - Despacito (Bachata)
-02. Alegria - Me Emborrachiare (Bachata)
-03. SOLYMAR - Andas en Mi Cabeza (Reggaeton)
-04. Alegria - La Bicicleta (Reggaeton)(   Читать дальше...   )Жанр: Latin Music, Reggaeton, BachataПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6C5D88B2F388F76D75A3AE9EFFF3E479649A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153258   (559836) от 26.07.2017
-
-VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Merengue>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boricua Boys – Bailar
-02. Grupo Super Bailongo – Chantaje
-03. Boricua Boys – Hasta El Amanecer
-04. Los Reggaetronics – Subeme La Radio(   Читать дальше...   )Жанр: Latin Music, Salsa, MerengueПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D7D74C78C0712C405FDB620D5CAFB38FB38081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153073   (559710) от 26.07.2017
-
-VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yero Company - A Tu Manera (Original Mix) (feat. Leo G)
-02. Latin Workout - Despacito (Workout Mix)
-03. Compota Y Su Ricura - Timbakutiri (Original Mix)
-04. Dj Gago - Amante O Marido (Original Mix)(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 02:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1353088FC29F205F1680D0DDFC2FB58ABDF4564F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304124   (559644) от 28.05.2019
-
-VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
+Hossam Ramzy - El-Sultaan (Classical Egyptian Dance) (2003) [MP3|320 kbps]<egypt ethnic music>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Travis Tritt – Start the Car (04:29)
-2. Cowboy Troy – Hook ‘Em Horns (Single Version) (02:49)
-3. Tamra Rosanes – On the Road Again (03:12)
-4. Michael Ray – Drivin’ All Night (03:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:26:55
+[03:03] 01.  Eddalla Ala Kefak (Play Hard, To Get What You Wish For)
+[04:20] 02.  Tool Omri Ba-Hebbak (I Loved You All My Life)
+[03:10] 03.  Rannet Khol-Khali (The Ringing of My Ankle Bracelet)
+[06:01] 04.  Ana Albi Elik Mayyal (My Heart Favours You)
+[05:54] 05.  Ya A-Az Min Eyini (You Are More Precious Than My Eyes)
+[06:34] 06.  Bait El-Ez Ya Betna (Ours Is a House of Goodness)
+[09:15] 07.  Ya Bent El-Sultaan (Daughter of the Sultan)
+[08:10] 08.  Yama Layali (Many a Night)Жанр: egypt ethnic musicПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
+magnet:?xt=urn:btih:CC395706A69C62931634EB1C91B8ECDD8179D21D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,57 +749,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235548   (558676) от 12.07.2018
+###  Публикация: 365218   (559889) от 19.07.2011
 
-John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Cinematic, Epic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558676.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Destroyers of the Worlds  5:22
-2. War of Blood and Fire  4:50
-3. Beneath the Deepest Core  7:30
-4. The Forging  7:54(   Читать дальше...   )Жанр: Soundtrack, Cinematic, EpicПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C230F6157C353EEE5B156EC68C7FA5B2FAD4124E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045262   (558036) от 24.08.2016
-
-Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
+Hossam Ramzy - Zeina (1996) [MP3|320 kbps]<egypt ethnic music>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Happy
-02. Close to Breaking
-03. Heart Don't Fail Me Now
-04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
+[05:53] 01.  Zeina (Delightfully Pleasant Lady)
+[07:33] 02.  Set Elhabayib ya Habiba (Lady of all the Beloved)
+[10:51] 03.  Khai Khai (Brother oh Brother)
+[06:55] 04.  Olli Amallak Eih Albi (Tell me, what did my heart ever do to you?)
+[07:17] 05.  Mawkib Ennoour (The Procession of Enlightment)
+[04:57] 06.  Aziza
+[05:35] 07.  Layali Ramadan (Ramadan Evenings)Жанр: egypt ethnic musicПродолжительность: 00:49:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
+magnet:?xt=urn:btih:C1F1817BE6F994E598987AFC3DD38D99A5FBC425
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 799957   (863798) от 24.02.2017
+
+Halozy - 37 альбомов (2009-2016) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Pop, Electronic, Trance>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2016.05.08 (HLZY-0025) Lucky 7 (Reitaisai 13)
+2016.12.29 (HLZY-0026) GrandSlam (C91)
+2016.12.29 (HLZY-0027) 犬猫的電子座曲 (C91)Тип издания: DoujinЖанр: J-Pop, Electronic, TranceФормат: Touhou Vocal, InstrumentalПродолжительность: 01:05:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3215A083545457EC3E7D1847B6EB822ED647CC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798238   (861906) от 25.02.2017
 
 ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FLAC|Lossless|tracks] <Symphonic Rock, Gothic>
@@ -709,35 +738,6 @@ AlbumsЖанр: J-PopПродолжительность: 00:11:56
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F81B5F3896ABBBA2E70DCFD449692B6BFC501CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116862   (820545) от 21.03.2017
-
-Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthrise
-02. A Torch for Avengers
-03. Isle of the Dead
-04. The Revelation(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB77A55302731098A2AFC5F4C148032C6277252
 ```
 
 https://mybot314.ru/tekegram_catalog/

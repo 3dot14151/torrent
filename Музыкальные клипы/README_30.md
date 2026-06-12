@@ -1,3 +1,166 @@
+###  Публикация: 1416369   (335342) от 30.10.2020
+
+Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Korn - Can You Hear Me
+02 Korn - Finally FreeЖанр: ChansonПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25F87ED6F0612E3F993200236CA166EDA42AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955961   (330833) от 13.11.2015
+
+VA - Осенний марафон № 204 / Видеоклипы (Дискотека с размахом № 3) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (12.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Do It For Love (Official Video) (00:03:11)
+02. Alexander Rybak ft. Pernille Hogstad Stene - Venner fra fortellingen om Trolle (Official Video) (00:03:29)
+03. Betta - Maria Magdalena (Official Video) (00:03:49)
+04. Chris Largo ft. Orry Jackson - I Want U Now (Official Video) (00:03:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Rap, Indie, RockПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44FD63235359B20973236D7159B5ABDED14C12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260898   (328686) от 22.11.2010
+
+Иванушки International - Видеоклипы (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_328686.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 клипов от Иванушки International.Жанр: PopПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91305E3E557E7D570416C779AC9D31C92C76CFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412703   (328500) от 23.11.2011
+
+Виктория Дайнеко - Видеография (2005 - 2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальное видео, клипы, концерт, POPПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957456   (326391) от 18.11.2015
+
+VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Art Key - Делаю Больно (Премьера!) (00:03:13)
+02. De Hofnar X Goodluck - Back In The Day (Official Video) (00:02:47)
+03. Don't Wanna Be Your Lover - Vanessa White (Official Video) (00:03:11)
+04. Jessie J, Ariana Grande, Nicki Minaj - Bang Bang (Live At Capital Summertime Ball) (00:04:12)(   Читать дальше...   )Жанр: Pop, Dance, LatinoПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D04562870F5F5FE79DB8571FB0FC2C761DDB294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581633   (322590) от 28.11.2012
+
+Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2613A1C42AB58F0C88E7B7D4E8D5CDC0767CC3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581648   (322306) от 28.11.2012
 
 The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] WEB-DLRip
@@ -533,167 +696,6 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7507029A6FF9E470CAD9DEBE11FF43B534C438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183033   (311497) от 12.11.2017
-
-Сборник клипов - Night of Love от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доп. информация
-В сборник вошли клипы Enigma и другие исполнители в этом же направлении. Красивое видео и красивая музыка. Он подходит для приятного провождения времени с любимым человеком или досуга, ну или простого релакса и отдыха. Это 1я часть сборника. Да прибудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
-001 Enigma - The Voice Of Enigma, Sadeness
-002 Enigma - Principles Of Lust
-003 Enigma - Callas Went Away(   Читать дальше...   )Жанр: New ageПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C0411B275E2C53F878E8678F4838F93C079B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583840   (310183) от 03.12.2012
-
-The Best of...(vol.2) (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка,Bright rock, Prog-rock, Glam-rock
-Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584646   (307911) от 04.12.2012
-
-Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний клипЖанр: RapПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584559   (307902) от 04.12.2012
-
-Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584650   (307582) от 04.12.2012
-
-The Best of...(vol.3) (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585195   (305745) от 05.12.2012
-
-Slim - Шлягер (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hopПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
 ```
 
 https://mybot314.ru/tekegram_catalog/

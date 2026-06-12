@@ -1,3 +1,55 @@
+###  Публикация: 1668384   (173555) от 12.10.2023
+
+Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [Ru] [ARM64 only]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FF08F9E56F006FB5BCA9B498544BC67941B330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668513   (173536) от 12.10.2023
+
+Windows 11 (9in1) by Updated Edition (12.10.2023) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на базе оригинальных дистрибутивов VSS (бывший MSDN) - Microsoft. Используется установщик от Windows 10 x64 (22H2). Установка автоматическая, выбирается только редакция и раздел на диске. Во время установки OS подключение к сети интернет для входа или создания учётной записи Microsoft не предлагается, независимо от того подключен ли у Вас физически (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB421731E0EABF16110BAAA9EF002A91A212C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669762   (172569) от 17.10.2023
 
 Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - Оригинальные образы от Microsoft MSDN [En]
@@ -635,60 +687,6 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DAA77CC17112FC9B633C7F8AB60994EEDAF77FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346370   (163375) от 19.12.2019
-
-Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.914.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80ABCD98028F9C2E1279941B3FEB974F34D085E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346383   (163321) от 19.12.2019
-
-Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.535.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FAA738ACAC94B6033BEE7FF07398A19644BDCC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,236 @@
+###  Публикация: 1176551   (355942) от 28.10.2017
+
+Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - Spring tour 2006 God Speed, прошедшего в Shibuya O-East 13 марта 2016.
+
+Источник: perfect darkDISC-1
+
+God Speed
+SUBLIMINAL(   Читать дальше...   )Производство: Япония, evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177761   (355931) от 28.10.2017
+
+Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
+2. Rise Up
+3. More Than Meets The Eye
+4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178133   (355640) от 28.10.2017
+
+Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Kreator на Wacken Open Air в 2014 году, вошедшее в состав специального издания альбома Gods Of Violence на DVD и Blu-Ray01. Mars Mantra
+02. Phantom Antichrist
+03. From Flood Into Fire
+04. Warcurse(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0566A4843182D902D037F1BEF090A6E8326BF885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177957   (355490) от 28.10.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355490.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 91100   (355091) от 01.11.2015
+
+AC/DC - Live At Donington (1991) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01.57.55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577882   (354767) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
+2. Zeppelin Media Moment
+3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577993   (354760) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying
+05. For Your Life
+06. Trampled Under Foot
+07. Nobody's Fault But Mine
+08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255918   (354389) от 08.11.2010
+
+Юрий Антонов - От печали до радости... (2005) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354389.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329376   (354308) от 04.10.2019
 
 Popa Chubby - Wild (2005) DVD9
@@ -508,226 +741,6 @@ ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B803698EC7A9DD9EB5FC64E111185EAB571D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408329   (348212) от 12.11.2011
-
-Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-PopПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724627   (347882) от 21.11.2013
-
-The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческое и триумфальное возвращение Ролинг Стоунз в Гайд-Парк вне всяких сомнений было событием лета. Более 100 тысяч исступлённых фанатов всех возрастов набились в парк на два захватывающих концерта под открытым небом, чтобы увидеть то, что Мик Джаггер, Кейт Ричардс, Чарли Уотс и Рони Вуд делают лучше всего. «Камни» представили 5 звёздных концертов, которым (   Читать дальше...   )01. Interviews, Part 1
-02. Start Me Up
-03. It's Only Rock 'n' Roll (but I Like It)
-04. Street Fighting Man(   Читать дальше...   )Жанр: Classic RockФормат: BDMVПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCAB57DBF9A6F7BBEFBAB519A1F129536D7E88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256717   (347839) от 11.11.2010
-
-Ленинград - Сборник клипов (2005) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/ Ska/ PunkПеревод: Не требуетсяПродолжительность: 1ч. 10мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578153   (347605) от 22.09.2022
-
-Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Accept на Rock Hard фестивале 5 июня 2022 года в Германии01. Zombie Apocalypse
-02. Symphony of Pain
-03. Living for Tonite
-04. Restless and Wild(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0CD784865A2500B33D1FCAA0D92225CFEB0DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725021   (347464) от 21.11.2013
-
-Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-RockРежиссер: Nick WickhamАктеры: Joe Cocker (vocals), Nick Milo (keyboards), Jack Bruno (drums), Gene Black (guitar), Oneida James-Rebeccu (bass), Herman Jackson (Hammond B3), Norberto Fimpel (sax, percussion), Nichelle Tillman, Laura Jane Jones (background vocals)Перевод: ОтсутствуетПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E556B7E210737DD49AFCEA1D16B4AC3E6889723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418658   (346683) от 25.10.2020
-
-Квартирник НТВ у Маргулиса. Хибла Герзмава. Классика и Джаз (24.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346683.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Квартирника» — атмосферный концерт народной артистки России, оперной дивы Хиблы Герзмава. Ее называют золотым сопрано России, она — уникальное явление на отечественной оперной сцене и одна из самых востребованных российских певиц в мире. Хибла выступала в Мариинском театре в Петербурге, в Бунка Кайкан в Токио, в Шатле и Шанз-Элизе в Париже, в театре Коммунале (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF12B4849ED8749E4F2D80E53C1800D5DEF08C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418792   (346437) от 25.10.2020
-
-Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346437.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Live from the Forum MCMXCVIII" - это концертный альбом и концертный фильм группы The Eagles. Это запись одного из концертов в Инглвуде, штат Калифорния, которые проходили в течение трех ночей в сентябре 2018 года. Это первый релиз с участием новых участников группы Дикона Фрея и Винса Гилла, а также Дона Хенли, Джо Уолша и Тимоти Б. Шмита. Дикон, сын бывшего (   Читать дальше...   )01. Introduction
-02. Seven Bridges Road
-03. Joe Walsh: "How Ya Doin?"
-04. Take It Easy(   Читать дальше...   )Производство: СШАЖанр: Classic RockРежиссер: Nick WickhamПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B7EC64AB05501F9D8BAE0D198AB531FBC1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578562   (345694) от 23.09.2022
-
-Всероссийский Выпускной Бал (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345694.jpg" />
-</div>
-
-
-###  Подробнее
-
-МУЗ-ТВ представляет выпускной вечер на главной сцене страны - Всероссийский выпускной бал в Кремле 2022!0:00:00 - Приветствие ведущих
-0:00:58 - JONY - Комета
-0:04:12 - JONY - Титры
-0:08:28 - ANNA ASTI - Феникс(   Читать дальше...   )Производство: Телеканал "Муз-ТВ"Жанр: PopЯзык озвучки: РусскийПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E1974DE30566B83250DC89B1ECFBF793A44615
 ```
 
 https://mybot314.ru/tekegram_catalog/

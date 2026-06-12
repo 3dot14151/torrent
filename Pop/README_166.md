@@ -1,3 +1,152 @@
+###  Публикация: 1040622   (586453) от 05.08.2016
+
+The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
+02. 565, Where Are You (6:07)
+03. Mind The Cosmic Rocker (6:55)
+04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040536   (586435) от 05.08.2016
+
+VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosonik X Jerome - Thong Song
+02. Willy William - Ego (Radio Edit)
+03. TWiiNS - One Night Stand (Radio Edit)
+04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809556   (586424) от 02.08.2014
+
+Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap 3:35
+02. Cartooney Tunes (Incl.Happy Birthday) 4:24
+03. La Bamba 4:14
+04. I'm Rock And Rollrpecker 2:28
+05. Communication Outer Space 3:09
+06. Woodpeckers From Space 5:57
+07. Give Me That Banana 4:07
+08. Do You Like Surfing ? 3:21
+09. Sky Rider 3:13
+(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301330   (586178) от 10.05.2019
+
+Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed - Back To The 60s - Side One (18:32)
+02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918848   (585941) от 16.07.2015
+
+VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yello - Homage to the mountain [0:35]
+02. Natalie Cole - If i ever lose my faith in you [5:38]
+03. Eskobar - Someone new [3:30]
+04. Secret Servise - Destiny of love [4:11](   Читать дальше...   )Жанр: Pop, New AgeПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F6FA1BB6E3B594D0AEC95DE199834E4E00A5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918687   (585860) от 16.07.2015
 
 Доминик Джокер - Дежавю (2015) [MP3|320 кб/с]<Pop>
@@ -107,64 +256,6 @@ VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552165   (585839) от 22.05.2022
-
-VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.C. Larue - I Don't Want to Lose You (14:04)
-02. Blair - Nightlife (7:19)
-03. Climax Blues Band - Couldn't Get It Righ (3:03)
-04. Billy Paul - Let the Dollar Circulate (4:56)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552156   (585836) от 22.05.2022
-
-VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maynard Ferguson - Gonna Fly Now (4:21)
-02. Duke Of Burlington - Flash (3:35)
-03. V.I.P. Connection (Arpady's) - West Coast Drive (4:40)
-04. John Forde - Don't You Know Who Did It (3:29)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,99 +766,6 @@ Lightning - Lightning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF2EB5CEB5FC890AE303506F5C76E08BF319210C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301746   (583280) от 13.05.2019
-
-VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P!nk - Walk Me Home [02:57]
-02. Sam Smith - Dancing With A Stranger [02:48]
-03. Matt Simons - Open Up [02:45]
-04. Mark Ronson - Nothing Breaks Like a Heart [03:34](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BD9FE9A80C914AE8690B1C8B3F75F769427ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358915   (582909) от 05.07.2011
-
-Максим Леонидов (экс "Секрет") - Папины Песни (2011) [WavPack|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Царевна-несмеяна (3:33)
-02. Старый клён (4:06)
-03. Сядь со мною рядом (3:02)
-04. Одинокая гармонь (3:05)
-05. Звать любовь не надо (4:43)
-06. Дорогие мои москвичи (2:54)
-07. Услышь меня, хорошая (3:14)
-08. Калитка (3:21)
-09. Грустить не надо (4:07)
-10. Что так сердце растревожено (3:31)(   Читать дальше...)Жанр: PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553448   (582883) от 25.05.2022
-
-Анастасия - Губа не дура (1997) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Губа не дура
-02. Белая птица
-03. Парусник
-04. Поздняя встреча(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD89F5BA970EAD2499419395579C13A9AEA1E49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

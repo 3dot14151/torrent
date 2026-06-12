@@ -1,3 +1,125 @@
+###  Публикация: 613057   (982455) от 04.02.2013
+
+Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+1. Once Upon A Time In The West - Man With The Harmonica
+2. A Fistful Of Dollars
+3. For A Few Dollars More
+4. Days Of Heaven - The Harvest
+5. The Five Man Army
+6. Once Upon A Time In The West - Jill's Theme
+7. The Men From Shiloh
+8. Guns For San Sebastian - Overture
+9. Two Mules For Sister Sara(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 56:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741925   (981913) от 04.01.2014
+
+David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lossless] <New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Free (4:10)
+02. As Time Goes By (4:36)
+03. Moon River (4:00)
+04. A Man and a Woman (4:32)(   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C920EEA9CE8E329EF940052F75B8518E73F096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971622   (981863) от 06.01.2016
+
+VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tita Merello - A media luz
+02. Tita Merello - Cuando tallan los recuerdos
+03. Tita Merello - El milagro
+04. Tita Merello - Para lucirse(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25192D518830E346FAC8D6C605BA0841B02D0260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972624   (981844) от 06.01.2016
+
+Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <House, Tribal, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Forest (5:33)
+02. Sweet Lullaby (3:53)
+03. Hunting (3:27)
+04. Night Bird (4:18)(   Читать дальше...   )Жанр: House, Tribal, Downtempo, AmbientПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244CFE89F4F011A1E699164FFFD5AC92B2DFD728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164052   (981529) от 11.01.2010
 
 Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD) (1997) [MP3|192 kbps]<OST>
@@ -638,122 +760,6 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356230   (978728) от 30.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD49267E11A442D8AC11F59FCE585FCBC8826B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356124   (978723) от 30.01.2020
-
-VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia tailfeathers - Buffalo Songs
-02. Asani - Niwiciwakan
-03. Asani - Oti Nikan
-04. Sandy Scofield - Layla's Lulaby(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B167B3A7F7FC8B8294D93F1F4D78907F22ED3180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356321   (978608) от 30.01.2020
-
-Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Never Free (06:59)
-02. Kashmir (04:30)
-03. Fate Whispers To The Warrior (03:54)
-04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4080FDEE7FE3F36E9A380C8C3C1543EA5C176D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356322   (978544) от 30.01.2020
-
-Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Never Free (06:59)
-02. Kashmir (04:30)
-03. Fate Whispers To The Warrior (03:54)
-04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B84431847C3354E2C710F09778A0802D61C50C
 ```
 
 https://mybot314.ru/tekegram_catalog/

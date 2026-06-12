@@ -1,3 +1,29 @@
+###  Публикация: 1713512   (111874) от 06.04.2024
+
+Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714371   (111732) от 09.04.2024
 
 МузЛофт-подкаст / МузLoft. Сборник (2024) WEBRip [H.264/1080p]
@@ -693,35 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 
 <div id="header" align="center">
   <img src="http://mybot314.ru/picture_torrent/002//save_picture_89736.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485475   (89683) от 20.04.2012
-
-Григорий Лепс: Научись летать Live (2011) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89683.jpg" />
 </div>
 
 

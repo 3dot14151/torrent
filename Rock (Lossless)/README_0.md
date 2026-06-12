@@ -1,3 +1,119 @@
+###  Публикация: 1867744   (1067070) от 27.04.2026
+
+FEX - Skyscraper (2025) [APE|Lossless|image + .cue] <Rock, Blues Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyscraper (3:44)
+02. Subways Of Your Mind (3:54)
+03. Goldrush (3:25)
+04. Heart In Danger (4:22)(   Читать дальше...   )Жанр: Rock, Blues Rock, New WaveПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACBD6D16E4E00AA692E1D04AB00D5E9E4A56017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867865   (1067056) от 27.04.2026
+
+Joe Cocker - The Best Of Joe Cocker (1993) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067056.jpg" />
+</div>
+
+
+###  Подробнее
+
+John Robert Cocker начав свой путь как неудачливый поп-певец (выступавший под псевдонимом Vance Arnold), нашел свою нишу, исполняя рок и соул в английских пабах, откуда шагнул на большую сцену. Joe умеет петь в своей фирменной хрипловатой, эмоциональной манере; и на этом релизе 1993 года представлено немало отлично написанных и мастерски исполненных композиций, записанных (   Читать дальше...   )01. Unchain My Heart (5:07)
+02. You Can Leave Your Hat On (4:15)
+03. When The Night Comes (3:59)
+04. Up Where We Belong (3:54)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470C1E86DBA65CF6442A4F646C54B630E0C96598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867459   (1066991) от 25.04.2026
+
+Kyuss - Welcome To Sky Valley (1994) [FLAC|Lossless|image + .cue] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066991.jpg" />
+</div>
+
+
+###  Подробнее
+
+I
+01. Gardenia
+02. Asteroid
+03. Supa Scoopa And Mighty Scoop(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE66C49689F6B2954AF76CF19BD5CE134FE714E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 105281   (1066850) от 26.04.2026
+
+Blondie - Greatest Hits: Deluxe Redux / Ghosts of Download - 2014, FLAC (tracks+.cue) <Rock, Disco, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sugar on the Side (feat. Systema Solar) (03:47)
+2. Rave (feat. Miss Guy) (04:02)
+3. A Rose by Any Name (feat. Beth Ditto) (03:34)
+4. Winter (04:16)(   Читать дальше...   )Жанр: Post-Punk, New Wave, Pop-RockПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50508E58DD7A062746F4C0F2656CE3713551C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867449   (1066839) от 26.04.2026
 
 Marianne Faithfull - Broken English (1979) Reissue, Remastered, 1999, Island Records [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -629,122 +745,6 @@ U2 - Easter Lily (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CBB9E26C6B59F273DBD03083A06B2C2CB0CCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863582   (1063035) от 07.04.2026
-
-Queen - Queen II (1974) 2XCD, Japanese Edition, SHM-CD, Remastered, MIX 2026, Universal Music [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063035.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Procession
-02. Father to Son
-03. White Queen (As It Began)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB439047F29EFCC7A04A7548D891A8693267E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860855   (1062809) от 27.03.2026
-
-VA - This Is... 1977 (2008) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/20. Bryan Ferry - Tokyo Joe (3:57)
-02/20. The Stranglers - No More Heroes (2:57)
-03/20. Tom Robinson Band - 2-4-6-8 Motorway (3:17)
-04/20. Mr. Big - Romeo (2:34)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Folk RockПродолжительность: 01:15:27.080 (199 644 228 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAA70F7A0E547F21AF518C6B21A6C0B9B3958C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861396   (1062808) от 27.03.2026
-
-VA - This Is... 1972 (2008) [FLAC|Lossless|image + .cue] <Classic Rock, Glam, Heavy Metal, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Move - California Man (3:37)
-02. Wizzard - Ball Park Incident (3:39)
-03. Deep Purple - Smoke on the Water (3:46)
-04. Hawkwind - Silver Machine (live at the Roundhouse London) (4:38)(   Читать дальше...   )Жанр: Classic Rock, Glam, Heavy Metal, Soft RockПродолжительность: 01:14:01.853 (195 885 732 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB07941E767124781F37EA23F7D090B486205E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861913   (1062744) от 27.03.2026
-
-Suzi Quatro - Freedom (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (Single Version) (3:14)
-02. Little Miss Lovely (3:12)
-03. Choose Yourself (4:43)
-04. Going Down (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65182E7802AB324099028925031CF365CD060F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

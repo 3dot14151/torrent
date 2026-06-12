@@ -1,3 +1,29 @@
+###  Публикация: 514948   (656622) от 25.06.2012
+
+DVJ Bazuka - Summer Love (2012) [720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F12186BDC6DE9660A8EFD3640ED33C77BFB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 677239   (651227) от 12.07.2013
 
 Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE4C67E60310F3F38423B7E80ABC788D0DE5CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682098   (624633) от 26.07.2013
-
-Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Angello & Laidback Luke Ft Robin S - Show me LoveЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C656AB3549EAA1867C46FF0D2772F176F9684F
 ```
 
 https://mybot314.ru/tekegram_catalog/

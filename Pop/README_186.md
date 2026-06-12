@@ -1,3 +1,90 @@
+###  Публикация: 1156100   (527604) от 07.08.2017
+
+D. White - One Wish (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fоllоw Mе
+02. Оnе Wіsh
+03. Wаlkіng
+04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4848C5DC41A767A6D729DB28BD558491ECE6BEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156060   (527599) от 07.08.2017
+
+Ken Laszlo - Disco collection (2002) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hey Hey Guy
+02.Tonight
+03.Don't Cry
+04.1,2,3,4,5,6,7,8(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F16F6655D80BB41AC837B67405D65B37EA7BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810741   (527595) от 07.08.2017
+
+VA - The Best Projects Of Dieter Bohlen (1989) [APE|Lossless]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheree - Ronnie Talk To Russia ! 5:36
+02. The Clock-Work Toys - No 1 Hit Medley 6:28
+03. Copy-Right - You Can Win If You Want (Adult Mix) 9:49
+04. Heaven Knows - Lucky Guy 6:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30AB3B9334D6F1D9D837AA8E4C17EE19228644C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052773   (527280) от 15.09.2016
 
 Fancy - Forever Magic (2008) [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -657,99 +744,6 @@ Bim - Two (2015) [OGG| 448-524 кб/с]<Alternative, Indie Pop, ELectronic, Acou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C1A0EF3B1A84C34B71C20AD81F63036C9E0761C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927785   (524059) от 14.08.2015
-
-Hanne Sorvaag - Talk Of The Town (2006) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk Of The Town [04:08]
-02. Let The Rain Come Pouring Down [03:19]
-03. I Don't Feel A Thing [03:34]
-04. Suewie [03:25](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2F4822E2DE952550BE0DFA013948691BFF4FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371249   (523685) от 04.08.2011
-
-A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move To Memphis (Single Version)
-02. Dark Is The Night For All
-03. Cold As Stone (Re-Mix)
-04. Angel In The Snow (Edit)
-05. Shapes That Go Together
-06. Summer Moved On
-07. Minor Earth Major Sky (Niven's Radio Edit)
-08. The Sun Never Shone That Day (Radio Edit)
-09. Velvet
-10. Forever Not Yours(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240714   (523584) от 13.08.2018
-
-VA - 5 Years Legacy Festival: Anniversary Edition (2018) 5CD [MP3|320 Kbps] <Euro-House, Eurodance, Europop, Trance, Techno, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523584.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Kosmonova vs.Fiocco - Celebrate
-02. Virtual Zone - Heaven
-03. Push - Universal Nation(   Читать дальше...   )Жанр: Euro-House, Eurodance, Europop, Trance, TechnoПродолжительность: 06:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7355D26ECDF217AD112F82D1076B2053165B4B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

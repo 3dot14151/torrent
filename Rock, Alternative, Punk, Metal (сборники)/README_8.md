@@ -1,3 +1,32 @@
+###  Публикация: 1490076   (900717) от 31.08.2021
+
+John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbps] <Rock, Art-Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother (Take 91 / Out-take / Raw Studio Mix) [00:03:59]
+02. Hold On (Take 18 / Out-take / Raw Studio Mix) [00:02:07]
+03. I Found Out (Take 7 / Out-take / Raw Studio Mix) [00:07:51]
+04. Working Class Hero (Take 10 / Out-take / Raw Studio Mix) [00:03:43](   Читать дальше...   )Жанр: Rock, Art-Rock, Pop-RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEC893B9EC86833E6FDE284C7A523FA1AA0A6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992384   (900314) от 02.03.2016
 
 VA - Мой Любимый Русский Рок (2016) [MP3|128-320 кб/с] <Rock>
@@ -716,35 +745,6 @@ VA - Necessary rock (2021) (2CD) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09BDAC60C994D9F9B6AC6FC90C962591EEAA3045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494647   (887568) от 08.09.2021
-
-VA - Open-Road Essentials (2021) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AC/DC - Thunderstruck (04:53)
- 02. Guns N' Roses - Sweet Child O' Mine (05:56)
- 03. The Rolling Stones - Start Me Up (Remastered) (03:33)
- 04. Bryan Adams - Summer Of '69 (03:36)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B714870157FB4B7AD31909D55E6AD8717126DE1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,138 @@
+###  Публикация: 1849984   (1053936) от 26.01.2026
+
+Ю.А. Жук | Патроны. Иллюстрированная энциклопедия (2023) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта богато иллюстрированная энциклопедия, написанная известным оружиеведом, экспертом-криминалистом Ю.А. Жуком, - первое в России фундаментальное издание о боеприпасах к ручному огнестрельному оружию, рассчитанное не только на военнослужащих, сотрудников правоохранительных органов, военных историков, коллекционеров, но и на обычных читателей, интересующихся развитием (   Читать дальше...   )Жанр: энциклопедияИздательство: Яуза-прессФормат: DJVU, PDFКачество: Обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFF11DF93C60A2EA9C3D052C6621F0DD094B531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849441   (1053833) от 23.01.2026
+
+Н.В. Чубарь | Пропаганда здорового образа жизни (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие подготовлено в соответствии с требованиями профессиональных стандартов для специалистов со средним медицинским образованием.
+
+Целью данного пособия является повышение уровня знаний слушателей по вопросам пропаганды здорового образа жизни.
+(   Читать дальше...   )Жанр: Учебно-методические пособияИздательство: МиниТайпФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B1566F55E84EE6AF6A931818E9667FEF8DE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849438   (1053832) от 23.01.2026
+
+Анна Большакова, Анна Чичина | Секреты здоровья кожи. Советы профессионала о том, как предотвратить обострения хронических заболеваний и построить уход, который избавит кожу от воспалений (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кожа часто зудит и появляются покраснения? Не можете избавиться от сыпи и угрей даже с помощью дорогих кремов? Сколько раз вы покупали крем «наугад», надеясь, что он подойдёт именно вам? Шелушения не исчезают, несмотря на тщательный уход?
+
+Ваша кожа не «капризная» и не «привередливая», на самом деле ей просто необходим грамотный подход. В этой книге практикующий (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76045B9AD91B32687F7378F50B23B4A05837CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849418   (1053831) от 23.01.2026
+
+Игорь Семенов | О этих паразитах надо знать! (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущие паразитологи мира утверждают, что каждый человек в течении жизни может быть заражен паразитами! Это ценное пособие станет надежным помощником каждому, кто хочет защитить себя и свою семью от неприятных последствий контакта с паразитами. В произведении описаны самые эффективные природные растения, которые выводят паразитов! Эта книга необходима каждому современному (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA560A6E2FEBA1B4E85C55DC5641CF226448CEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849425   (1053799) от 23.01.2026
+
+Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053799.jpg" />
+</div>
+
+
+###  Подробнее
+
+This encyclopedia aims to provide a ready reference to various aspects of American culture. The time frame is from the colonial period to the end of the 20th century. The areas covered are fine arts (painting, sculpture, photography); performing arts (music, ballet, theatre, film); architecture; literature; and various non-artistic forms of culture (symbolic, material, (   Читать дальше...   )Жанр: Энциклопедии, Культура, АмерикаЯзык: АнглийскийИздательство: Peter Lang GmbH, Internationaler Verlag der WissenschaftenФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F23D21E0C0921CBE1623CF5E0C151D61390056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849422   (1053798) от 23.01.2026
 
 Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (2002) [PDF] [EN]
@@ -551,141 +686,6 @@ It provides an initial traditional anatomical description of each organ or syste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62FE877B594A63C69244A19C337D2B6F601142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849395   (1053516) от 22.01.2026
-
-Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia (Two volumes in one) (2015) [EPUB] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053516.jpg" />
-</div>
-
-
-###  Подробнее
-
-What are the origins of agriculture? In what ways have technological advances related to food affected human development? How have food and foodways been used to create identity, communicate meaning, and organize society? In this highly readable, illustrated volume, archaeologists and other scholars from across the globe explore these questions and more.
-
-The Archaeology (   Читать дальше...   )Жанр: Энциклопедии, История, АрхеологияЯзык: АнглийскийИздательство: Rowman & Littlefield PublishersФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476E1C5EA1EAEF5A369B6F41E6A8D9FE924AF0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849369   (1053512) от 22.01.2026
-
-Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) [EPUB] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Completely revised and expanded since its French publication, Armoured Trains: An Illustrated Encyclopedia 1825-2016 is the first English-language edition of the authoritative work on the subject. Military forces around the world were quick to see the advantages of railways in warfare, whether for the rapid deployment of men or the movement of heavy equipment like (   Читать дальше...   )Жанр: Энциклопедии, ВоенноеЯзык: АнглийскийИздательство: Naval Institute PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B97D81F48B7D348189DE053164E0CC64DD2ADA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849088   (1053455) от 21.01.2026
-
-William R. Leben, Brett Kessler, Keith Denning | English Vocabulary Elements. A Course in the Structure of English Words. 3rd Edition (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053455.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Vocabulary Elements draws on the tools of modern linguistics to help students acquire an effective understanding of learned, specialized, and scientific vocabulary. This fully refined and updated edition helps develop familiarity with over 500 Latin and Greek word elements in English and shows how these roots are the building blocks within thousands of different (   Читать дальше...   )Жанр: Английский языкИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B1957122149C4214F1D777F0C02BC0EAF685B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849087   (1053454) от 21.01.2026
-
-Talia Swinton | English Vocabulary Mega Quiz Book. 5001 Solved Examples on Words, Meanings, and Spellings for Test Prep (2021) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053454.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Vocabulary is Social CapitalIf you want to improve or build up your word power and vocabulary in the English language, you have come to the right place. Whether you want to level up your communication skills for business purposes, for a new job, to help you pick up a new course at school or at university faster, for recreational and entertainment purposes (   Читать дальше...   )Жанр: Английский языкЯзык: АнглийскийИздательство: Independently PublishedФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555321E43C885010CB8370D77D39A63CE09B4A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849228   (1053441) от 21.01.2026
-
-Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engineering. 3rd Edition (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053441.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book contains information obtained from highly regarded resources. Reprinted material sources are
-indicated. Copyright for individual articles remains with the authors as indicated and published under
-Creative Commons License. A Wide variety of references are listed. Reasonable efforts have been made
-to publish reliable data and views articulated in the chapters (   Читать дальше...   )Жанр: Электротехника, ЭлектроникаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

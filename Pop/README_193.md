@@ -1,3 +1,200 @@
+###  Публикация: 540999   (498151) от 03.09.2012
+
+Bandolero - Reference 80 (2011) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paris Latino (Version 45T) (4:01)
+2. Cocoloco (Version 45T) (3:45)
+3. Bagatelle (Version 45T) (3:56)
+4. Reves noirs (Version 45T) (4:05)
+5. Conquistador (Version 45T) (4:44)
+6. El Bandido Caballero (4:12)
+7. Senorita Vargas (3:17)
+8. The Matador (English Cocoloco 45T)
+9. Paris Latino (Hot US-Mix)
+10. The Matador (English Cocoloco Maxi)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:75:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E89B327ED6754470593BA12B283C90763CF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381505   (498069) от 29.08.2011
+
+Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch
+02. Love Is All Around
+03. Valerie
+04. Far Away
+05. Sunshine Boogie
+06. 10.000 Angels
+07. Obsession
+08. Shine
+09. Back To The 80's
+10. Heaven Must Be Missing An Angel Tonight(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381565   (498065) от 29.08.2011
+
+F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words (Original Unreleased Full Mix)
+02. Sahara Night
+03. Pick Up The Phone (Original)
+04. Don't Go
+05. I Need You (Original 7")
+06. Music
+07. Dream Away
+08. This Time I Have To Win
+09. Take Me Back
+10. Sahara Night (Club)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235675   (497828) от 12.09.2010
+
+Лев Барашков - Золотая коллекция ретро (2005) [MP3|320 kbps]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нейлоновое сердце
+02 - Ребята 70-й широты
+03 - Не потеряй
+04 - Счастливый день
+05 - Берёзовый сок
+06 - Главное, ребята
+07 - Трус не играет в хоккей
+08 - Раздумье
+09 - Мгновения
+10 - Острова разлуки(   Читать дальше...)Жанр: Ретро
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318044   (497750) от 04.08.2019
+
+Евгения Власова - 2 Альбома (2003-2008) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На краю небес
+02. На двоих сердце одно
+03. Лавина любви
+04. Нет, я не боюсь!(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6833167D7F56F80B9C4BC64B915428B9201FC004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542993   (497302) от 04.09.2012
+
+Marie Claire D'Ubaldo - 2 Альбома (1990, 1994) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marie Claire D'Ubaldo - Аргентинская певица и композитор. Известна многим по альбому 1994-го года "Marie Claire D'Ubaldo" и композиции "The Rhytm Is Magic". Альбом пользовался огромным успехом в Италии, США, Японии и России, однако он не является дебютом Marie, как принято считать, поскольку в 1990-м году выходил менее известный и очень редкий альбом под названием "Marie Claire", который был выпущен только в Японии.Альбомы:
+1990 - Marie Claire
+1994 - Marie Claire D'UbaldoЖанр: PopПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565247   (496710) от 22.07.2022
 
 Bananarama - Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -569,178 +766,6 @@ Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2535A88822287BD252AE7406D4329129D19C8E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565368   (494672) от 23.07.2022
-
-Bananarama - Masquerade (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Favourite (3:07)
-2. Stay Wild (3:48)
-3. Velvet Lies (2:48)
-4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694A79E62AEF26E88DB22920EF332FD50D4636B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565360   (494665) от 23.07.2022
-
-Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Favourite (3:07)
-2. Stay Wild (3:48)
-3. Velvet Lies (2:48)
-4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8C751A4F15759B0AF8083A816910C28EA8B066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565355   (494564) от 23.07.2022
-
-Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820822   (494431) от 11.09.2014
-
-VA - NOW That's What I Call Club Hits (2014) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда NOW собрала на этом трехдисковом сете все сливки клубной музыки последнего времени. Кому-то покажутся уже знакомыми некоторые мелодии, но даже завсегдатаи клубов обязательно найдут здесь для себя что-то новенькое.01.  Clean Bandit feat. Jess Glynne  - Rather Be   (3:48)
-02.  Cheryl Cole feat. Tinie Tempah  - Crazy Stupid Love   (3:46)
-03.  Mr. Probz  - Waves (Robin Schulz Radio Edit)   (3:28)
-04.  Kiesza  - Hideaway   (4:13)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566D675AE5EE3AE4B03E83C1B84AC6050158EBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054189   (494209) от 19.09.2016
-
-Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boris Midney - Борис Мидный - американский диско-продюсер, композитор, маэстро, аранжировщик, дирижер и мульти-инструменталист родом из России. Является одним из главных архитекторов звука Eurodisco. Одним из первых стал использовать весь потенциал 48-дорожечной записи.
-Изначально классически обученный композитор, обратившись к диско, он обнаружил свое истинное призвание. (   Читать дальше...   )Список альбомов:
-1978 - Beautiful Bend - Make That Feeling Come Again!
-1978 - USA-European connection - Come Into My Heart
-1979 - Caress - Caress(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 07:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272283DBCD7C9D9FCDD57C9A01BF19801BDD1AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242907   (494128) от 26.08.2018
-
-VA - Party Fun 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494128.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Calvin Harris - One Kiss
-02. David Guetta - Flames
-03. Aya Nakamura - Djadja(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664C4F3B80D420FEE1EB01FE4E141534812AD26D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1032473   (646062) от 07.07.2016
+
+VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Hammamet (Original Mix) (6:31)
+02. Alex Wright - Galactica (Original Mix) (7:06)
+03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
+04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032091   (645950) от 07.07.2016
+
+VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolock -  Proggy Froggy 9:02
+02. Flucturion 2.0 -  Paper-layered Panorama 6:46
+03. Inkel -  Pulsating Vibe 7:06
+04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032041   (645693) от 07.07.2016
+
+Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8bit, Punk, Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Fly
+02. Self Esteem
+03. Come Out and Play
+04. Genocide(   Читать дальше...   )Жанр: 8bit, Punk, RockПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41AD4CD631AD0F2BE99EB8292F8A0914F87E558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906367   (645539) от 08.06.2015
+
+VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Reston - I'm Sending You (03:36)
+02. Blackman - Everybody (Nu York Lights Mix) (03:36)
+03. Don Major - At Sunset (03:35)
+04. Frank Scozzi - Unconsciousness Without Limits (03:33)(   Читать дальше...   )Производство: Liquid Lounge RecordingsЖанр: Deep HouseПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE2B509E8B78F5FFB620D8D7FD9A09AD9E892DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292545   (645287) от 30.03.2019
 
 H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip Hop, Chillwave>
@@ -600,148 +745,6 @@ Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292669   (644693) от 30.03.2019
-
-Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fatboy Slim - Right Here, Right Now
-2. Fatboy Slim - Praise You
-3. Fatboy Slim - Song For Shelter
-4. Fatboy Slim - Weapon Of Choice (Feat. Bootsy Collins)(   Читать дальше...   )Жанр: Electronic, Big Beat, BreakbeatПродолжительность: 02:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A259C7DA5BDBB521FABD8DD37113BD0BDCA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142142   (644603) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shed A Light (MDZN Remix) [03:27]
-02 - Shed A Light (Mosimann Remix) [06:02]
-03 - Shed A Light (Heyder Remix) [03:39]
-04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142235   (644469) от 13.06.2017
-
-Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Metal, Baroque, Death Metal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viande (01:55)
- 02. ieuD (03:55)
- 03. Houmous (03:32)
- 04. Opus Brain (05:26)(   Читать дальше...   )Жанр: Breakcore, Black Metal, Baroque, Death Metal, ExperimentalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142370   (644461) от 13.06.2017
-
-Нейромонах Феофан - А теперь поёт медведь (2017) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644461.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А теперь поёт медведьЖанр: Drum & Bass, ElectronicПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AA21E3A6064C732D4F03904421AED4AA0A940C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 137923   (644397) от 03.04.2022
-
-Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You 3:31
-02. Under Control 4:04
-03. Strange Things 4:16
-04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

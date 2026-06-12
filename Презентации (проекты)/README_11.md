@@ -1,3 +1,55 @@
+###  Публикация: 1498131   (859347) от 25.09.2021
+
+Проекты - VideoHive - Awards Ceremony - Awards Show - 33892943 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859347.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Awards Ceremony - Awards Show» - это шаблон для церемонии награждения или шоу талантов. Он также может быть использован для любых других тем, таких как мода, и рекламные акции, номинации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0985E297B81D89974B1784444278F59A24D8F221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376535   (858264) от 18.04.2020
+
+Проекты - VideoHive - Awards - 20645417 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858264.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Awards" - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF776A87B6F2F92ABEB05E50CCC1223165F768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109709   (856916) от 28.02.2017
 
 Проекты - Motion Array - Minimal Presentation - 26356 [AEP]
@@ -629,61 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E60FE375AA635A91A5F82EAF3CCBA7005E874AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002868   (846664) от 01.04.2016
-
-Проекты - VideoHive - Library or Bookstore Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Library or Bookstore Presentation - это простая, энергичная презентация библиотеки или книжного магазина.
-Но каждый сможет найти и другое применение этому проекту.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EA9F3C8246D984F9BE3BA12D2E2B01E6B95517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002511   (846583) от 01.04.2016
-
-Проекты - VideoHive - Industrial Impact [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0388DBEE829F06FF148A6068B7A2F941AB0C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

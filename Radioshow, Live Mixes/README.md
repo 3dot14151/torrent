@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1875531   (1072630) от 
+
+Armin van Buuren - Live @ Celebrating 25 Years A State of Trance, The Loft Amsterdam, Netherlands (2026-06-01) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Can Dance - Dawn Of The Iconoclast
+02. Ørjan Nilsen - The Late Anthem (Way Too Late Mix)
+03. Eximinds & Alexander Komarov - Over The Moon
+04. John Grand pres. ODYSSIUS - Voltage(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E7C9882448C848286CACD9CF4EB46B8E448C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875161   (1072410) от 
+
+MEDUZA - Tomorrowland Friendship Mix (2026-06-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MEDUZA ft. Henry Camamile - Don't Wanna Go Home
+02. MEDUZA & Becky Hill & GOODBOYS vs. Jamback - Lose Control vs. Positive
+03. Dansyn & DOX - Work It Out
+04. Greggio - Let's Go Down(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4295776D2870E2B4A09F78E015D2E57E630CB3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875154   (1072409) от 
+
+Gryffin - Tomorrowland Friendship Mix (2026-05-28) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gryffin vs. Korolova & Julia Sanina - Dreams vs. Higher Calling (Gryffin Edit)
+02. Snakehips & MØ & Throttle & Gryffin vs. Martin Garrix & R3HAB & Skytech - Don't Leave vs. Voodoo (Gryffin Edit)
+03. Gryffin & babyidontlikeyou vs. TUJAMO & 22Bullets - MAGIC vs. My Mind (Gryffin Edit)
+04. Disclosure & Sam Smith vs. ARTBAT (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08F60F0540A53CDA48AABA299FA55A565C9A852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874870   (1072197) от 
 
 VA - Ori Uplift - Uplifting Only Episode 695 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -656,93 +743,6 @@ DJ Sinatra's Mix:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFCC218FD0BD71D5BAA2BFA5D6EBBDC18F026814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864470   (1064811) от 
-
-VA - Ori Uplift - Uplifting Only Episode 687 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyre – Mountaineer (Etasonic Remix)
-02. Pinkque & That Girl – Way Up High (In Loving Memory)
-03. MakeFlame & h.x.e. & Claire Willis – Find That Way
-04. Emanuele Congeddu & ARCZI – Taliyah (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4FF473E627F99D88D483ACD52D796ED5B0356A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864465   (1064715) от 
-
-VA - Armin van Buuren - A State Of Trance 1272 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Chen – Echoes
-02. Ferry Corsten & Marsh – Attraction (Ferry’s Mix)
-03. 19:26 & Mariz – Ascension (Progressive Pick)
-04. Da Fresh – Broken Dream (Mr Sam Made In France Version)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E8187930DFF3CA089A0664CA19A7B2D50F0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863172   (1063624) от 03.04.2026
-
-VA - Ori Uplift - Uplifting Only Episode 686 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Bax & Alaera - In My Memory
-02. Craig Connelly & Christina Novelli - Black Hole
-03. Specific Slice & Sandro Mireno - The Fall Of Titan (Orchestral Uplifting Classic)
-04. Christina Novelli & DJ Xquizit - So Cold (Maratone Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C70AFFAE55EB87D1D7575BEA1C774490B5DAC96
 ```
 
 https://mybot314.ru/tekegram_catalog/

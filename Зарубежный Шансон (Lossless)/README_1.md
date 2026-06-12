@@ -1,3 +1,61 @@
+###  Публикация: 1270389   (157004) от 19.12.2018
+
+Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Si j’osais
+02. Rosina
+03. Poor Fool
+04. Perche(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087532   (144088) от 28.12.2016
+
+Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y'avait tant d'etoiles (1:54)
+02. Hotel Normandy (5:35)
+03. Je retien mon souffle (4:37)
+04. Ceux qui n'ont rien (5:16)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489992   (102468) от 01.05.2012
 
 Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>

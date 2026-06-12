@@ -1,3 +1,32 @@
+###  Публикация: 756987   (919301) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please, Please Me
+02. Twist And Shout
+03. From Me To You
+04. I Wont Belong(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BAF711AB77AD4F637A3583953534F67B44013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988840   (918119) от 21.02.2016
 
 VA - Дискохит 90-х (большая коллекция клипов) (1970 - 1990) VHSRip
@@ -664,32 +693,6 @@ Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Му�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635733   (907129) от 27.03.2013
-
-Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dubstep ViolinПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
 ```
 
 https://mybot314.ru/tekegram_catalog/

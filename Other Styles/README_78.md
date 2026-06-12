@@ -1,3 +1,119 @@
+###  Публикация: 1292174   (644706) от 30.03.2019
+
+VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Tools>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny Fodera Ft. Alex Mills - Always Gonna Be (Extended Accapella) (04:42)
+02. CamelPhat Ft. Ali Love - Dopamine Machine (Accapella) (08:20)
+03. Offaiah - Push Pull (Accapella) (04:38)
+04. Selace - So Hooked On Your Lovin (Mousse T.'s Accapella) (03:40)(   Читать дальше...   )Жанр: Acapellas, DJ ToolsПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119918   (644260) от 13.06.2017
+
+ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [MP3|320 Kbps] <Instrumental, Neo-Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Водопад
+02. День рождения
+03. Путь домой
+04. Мечта(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032520   (644034) от 08.07.2016
+
+John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken [00:02:39]
+02. In the Beginning [00:03:29]
+03. Artificial Time [00:05:33]
+04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032545   (644027) от 08.07.2016
+
+Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahogany Cider [00:02:59]
+02. Black Creek Trail [00:04:29]
+03. Where Three Rivers Meet [00:05:18]
+04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 215448   (643987) от 08.07.2010
 
 Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
@@ -674,122 +790,6 @@ Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033222   (639996) от 10.07.2016
-
-Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Wave [00:06:14]
-02. Second Wave [00:03:45]
-03. Third Wave [00:08:24]
-04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033228   (639872) от 10.07.2016
-
-VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Wonder - The Woman In Red [04:39]
-02. Stevie Wonder & Dionne Warwick - It's You [04:55]
-03. Ben Bridges - It's More Than You  (Instrumental) [03:15]
-04. Stevie Wonder - I Just Called To Say I Love You [06:16](   Читать дальше...   )Жанр: Soundtrack, Funk & SoulПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032824   (639698) от 10.07.2016
-
-Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hovern'engan    05:08
-02.  Tchinares    05:47
-03.  Ar Intch Lav Er    06:15
-04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142847   (639464) от 16.06.2017
-
-Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travelling Song 4:16
-02. Jekyll And Hyde 2:56
-03. Take Me Down 3:06
-04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
 ```
 
 https://mybot314.ru/tekegram_catalog/

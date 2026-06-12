@@ -1,113 +1,3 @@
-###  Публикация: 1512804   (229471) от 26.11.2021
-
-VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Sufi's Life - Arselu Tel Quess (8:45)
-1.02. Astral Waves, Zymosis, Tentura - Magic Species (Remix) (7:46)
-1.03. Merlin, Tebra - Budjenje (5:31)
-1.04. Cosmic Dust - Sadogashima (5:54)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 02:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512763   (229467) от 26.11.2021
-
-VA - Chillout Adventures, Pt. 2 (2021) [AAC|~317 Kbps] <Ambient, Chill Out, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229467.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Chronos - Ancient Bells (6:24)
-1.02. E-Mantra - Silence (5:54)
-1.03. Lydia - Bells of the Lost Valley (6:10)
-1.04. Dhamika - Sadhana (9:32)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 02:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9ABD5BEF8AE192B392B83819779BAF8D28E04D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964681   (229329) от 12.12.2015
-
-Багровый пик / Crimson Peak (2015) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дурная слава преследует дом, что возвышается над городом. С приходом зимы он утопает в кровавых снегах. Говорят, дело в глине, проступающей на поверхность. Но ни единая душа не рискует ступить на ледяной склон… кроме нее. Она влюблена в таинственного незнакомца, живущего в древних стенах со своей сестрой. Багровый пик пробудился и уже не уснет.Производство: США, КанадаЖанр: Ужасы, фэнтези, триллер, драма, мелодрама, детективРежиссер: Гильермо дель ТороАктеры: Миа Васиковска, Джессика Честейн, Том Хиддлстон, Чарли Ханнэм, Джим Бивер, Берн Горман, Лесли Хоуп, Даг Джонс, Джонатан Хайд, Брюс ГрэйПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E4760ED530AC6E6A0182A896E9C9C760CF0272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268034   (229175) от 09.12.2018
-
-Маугли / Mowgli (2018) WEBRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229175.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA832F2A26FC9D4DEC957F1EAF07C5994C1A219B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512764   (229148) от 26.11.2021
 
 Поющий по кабакам / Honkytonk Man (1982) WEB-DL [720p] ATV
@@ -713,6 +603,122 @@ VA - Keep Chilling (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B02054522407DA91D1D0AC34622BD0CA8B029FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512944   (227701) от 27.11.2021
+
+VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compuphonic, Marques Toliver - Sunset (Tim Engelhardt Remix A) (7:10)
+02. Jurek Riegler - Muddy Waters (Original Mix) (8:10)
+03. Kadosh (IL), Yost Koen - Mindrum (Original Mix) (6:37)
+04. Alessio Pagliaroli, Jinadu - Colour My Vision (Massimiliano Pagliara Remix) (9:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512890   (227693) от 27.11.2021
+
+VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kristian Heikkila - Toilet Romantik (Original Mix) (5:32)
+02. Animal Trainer - Yamato (Original Mix) (7:29)
+03. Kadosh, Yost Koen - Mindrum (Original Mix) (6:37)
+04. Betoko - Phantasy (Sezer Uysal's 'Afrekno' Remix) (8:04)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512885   (227655) от 27.11.2021
+
+VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227655.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Chronos, Taff - After Twelve (10:12)
+1.02. AuroraX - Photon Dream (10:26)
+1.03. Sufi's Life - Ice and Fire (8:06)
+1.04. Merlin, Lydia - Infinity (5:35)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 03:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD905C1D8B5992F320B299D2E2D4BE263A0C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513017   (227647) от 27.11.2021
+
+VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Sunshine (Original Mix) (4:42)
+02. Boris Backup - Introspector (Original Mix) (8:00)
+03. Florent Campana - Silver Haze (Original Mix) (5:12)
+04. Living Room - Brand New Day (Original Mix) (4:13)(   Читать дальше...   )Жанр: Deep House, Chill House, DowntempoПродолжительность: 03:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB65A9414715B69B8F8AF5F1A639FE016DD354B
 ```
 
 https://mybot314.ru/tekegram_catalog/

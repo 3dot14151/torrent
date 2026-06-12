@@ -1,32 +1,3 @@
-###  Публикация: 1032327   (645449) от 07.07.2016
-
-Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из двух концертов Vaya Con Dios 2005-2006 гг.AVO Session (Live 03.11.2005)
-01. Take Heed
-02. La Llorona
-03. Je L'ame Je L'ame(   Читать дальше...   )Жанр: Jazz/BluesРежиссер: Roli BaerlocherАктеры: Vaya Con DiosПеревод: ОтсутствуетПродолжительность: 01:53:45 (01:06:05 + 00:47:40)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518346   (643617) от 03.07.2012
 
 The Realm Of Napalm Records Vol. III (2012) DVD9
@@ -731,6 +702,32 @@ David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
 ###  Подробнее
 
 Жанр: ROCKРежиссер: BBCАктеры: David GilmourПеревод: ОтсутствуетПродолжительность: 04:32 + 06:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528850   (570559) от 29.07.2012
+
+Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:24
 
 ## Скачать торент
 ```bash

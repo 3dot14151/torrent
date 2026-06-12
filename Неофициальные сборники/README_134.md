@@ -1,3 +1,204 @@
+###  Публикация: 1000593   (857423) от 26.03.2016
+
+VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Club, Electro, Bass Music, Dubstep, Tribal, UK Garage>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moguai Feat. Cheat Codes - Hold On (Extended Mix) 03:56
+002. 4 Strings Feat. Eric Lumiere - Crazy (Original Mix) 06:47
+003. Knife Party And Tom Staar - Kraken 04:51
+004. Yoel Lewis - Monaco (Original Mix) 05:57(   Читать дальше...   )Жанр: Club, Electro, Bass Music, Dubstep, Tribal, UK GarageПродолжительность: 09:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000655   (857374) от 26.03.2016
+
+Вероника Агапова - Сборник песен (2016) [MP3|128-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бессонница
+02 - В землянке
+03 - Выше звёзд
+04 - Где-то где-то(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA882008F6FA2704C2C94EBC2F3E0B461C39103F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109653   (857367) от 28.02.2017
+
+VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kygo & Selena Gomez - It Aint Me (Snip Hitz)  5:19
+02.  Pitbull & Stephen Marley - Options (Intro Dirty)  5:18
+03.  Deorro & Lesley Roy - Tell Me Lies (Radio Edit)  3:20
+04.  FloRida & Sage The Gemini - Game Time  3:12(   Читать дальше...   )Жанр: Pop, House, Club, DanceПродолжительность: 03:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B282700F771FC9FC7B4B513139BEF8CDA7BE8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000809   (857358) от 26.03.2016
+
+VA - Club Dance Hits DFM (2016) [MP3|320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857358.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Code - Mood (Find You) (2X2A Remix)
+002. Ane Brun - Big In JapanЖанр: Dance, ClubПродолжительность: 08:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1673144C10CF56ABA5E8562BFE20C184DAF789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109190   (857349) от 28.02.2017
+
+VA - Deep House Collection Vol.110 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abbi - The Things We Had (Original Mix) 3:43
+002. Aberton - Pictures In My Mind (Original Mix) 4:55
+003. Abriviatura IV - Live Me (Original Mix) 5:34
+004. Alesso - Falling (Lisitsyn Remix) 4:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB5828CADF278520B7FED3CF1906B25FA9E9B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000776   (857311) от 26.03.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 26 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lian Ross - Say You'll Never (D.J. Alternative Mix) (6:33)
+02. Fancy - Flames Of Love (Vox Extended Mix) (5:51)
+03. Sandra - Around My Heat (Dj Sveshnikov Remix) (3:43)
+04. Depeche Mode - Personal Jesus (The Stargate Mix) (3:59)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B78F084E24202B78FD380659CFB50C65877EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109519   (857290) от 28.02.2017
+
+VA - Стопудовые зимние хиты от Европы Плюс выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olly Murs - Years & Years 4:02
+002. Dragonette - Future Ghost 3:36
+003. Malika - Разожги Во Мне Пламя 4:59
+004. Goldroom - Back To You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F60876D6747996860C0527EDC27E1E9C560CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109872   (857151) от 28.02.2017
 
 VA - Top 100 Зайцев.Нет Февраль (2017) [MP3|192-320 Kbps] <Pop, Rap, House, Club, Dance>
@@ -542,209 +743,6 @@ VA - World Latino Mix (2017) [MP3|320 Kbps] <Latin, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D23B857B6F5E3D51E6EC13D115922CDBFF8051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001024   (855532) от 27.03.2016
-
-VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sinbreed-Creation Of Reality
-002. Dark Empire-Northern Sky
-003. AtVance-Right or Wrong
-004. StormWarrior-Odinn's Warriors(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000985   (855530) от 27.03.2016
-
-VA - Весенние хиты в тачку 2016 (2016) [MP3|320 кб/с] <Dance, House, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lounge Groove Avenue — Sweet Summer Days (02:20)
-2. AronChupa feat. Little Sis Nora — Little swing (02:31)
-3. Oтпетые мошенники — А у реки (02:31)
-4. Lеприконсы — Девчонки Полюбили Не Меня (02:31)(   Читать дальше...   )Жанр: Dance, House, Pop, BluesПродолжительность: 08:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9725E9812516DA582B5DA5544A38CC1ED616ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110085   (855458) от 01.03.2017
-
-VA - Хиты в тачку. Сборник 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Светлана Губаревич - Наваждение 3:25
-002. Ян Степанов & Роман Ларин - Бывшая 2:46
-003. Фрай - Таешь Во Мне 3:13
-004. Доминика Feat. Suncreepers - Океаны 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6C47F8B09B88DF7E603826AAC0E30BC8699124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001007   (855417) от 27.03.2016
-
-VA - Зажигательный музон в машину (2016) [MP3|318-320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loquai — Nightcrawler (09:58)
-02. J.Verner — Sentindo (09:36)
-03. Essential DJ Team — Bad boyz (Club mix) (08:49)
-04. STA — Insomnia (08:42)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 18:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B110554330F1EEBA0B6EB6C04A70F211A5EA0961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109988   (855403) от 01.03.2017
-
-Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long
-02. Mannish Boy
-03. Come to Me Baby
-04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109986   (855387) от 01.03.2017
-
-Koko Taylor - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil
-02. I Got What It Takes
-03. I'd Rather Go Blind
-04. Whatever I Am, You Made Me | Whatever(   Читать дальше...   )Жанр: BluesПродолжительность: 02:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E93D80C1F23BE6CF9F84ACC8F269A2A58692F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769854   (855253) от 23.03.2014
-
-VA - Deep Mood: Smooth Deep House (selected by Alex3107) (2014) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sandrino, Frankey - Save (Original Mix)
-002. Sandrino, Frankey - The Edge (Original Mix)
-003. David August - Epikur (Original Mix)
-004. Lello B - L.O.V.E (Robbie F Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3257BAEB8EB6DF0211034CF33C029F836A3049
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1305182   (558277) от 29.05.2019
+
+VA - Modern Nu Disco (2019) [MP3|256 Kbps] <House, IndieDance, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Johanson - Walking On The Clouds (Original Mix) 4:20
+02. Andy DelaCruz - Feeling Tonight (Original Mix) 4:02
+03. Patrick Richmond - Deceiver (Original Mix) 4:16
+04. Danny Vegas - I'm Ok (Original Mix) 6:05(   Читать дальше...   )Жанр: House, IndieDance, Deep HouseПродолжительность: 01:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEF1396E809BE41C11CE96AB7E8EC355559F249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153717   (558270) от 27.07.2017
+
+VA - Midnight Lounge Vol.43: A Love Message For You (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrea Cardillo - So Delicate  5:02
+02.  Vibraphile - Happy Yesterday  4:17
+03.  Massimo D'Arrigo - Sea Calling  2:09
+04.  Marco Cimino - Vertige Tango  2:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92C4FD970B779EF7A16485617666F24B7DA0AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153691   (558200) от 27.07.2017
 
 VA - Music For Dreams: Best Of Vol.5 (Compiled by DJ Pippi) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - All I Need Is Chillout (2015) [MP3|320 Kbps] <Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37258B439959FE8BE010B645C5FE29558C4D26B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046105   (556984) от 25.08.2016
-
-VA - MOMENTS - Chill-Out & Lounge Series, Vol. 7 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capa - People & Places
-02. Derrick - Just To Be
-03. Jane Maximova - Late In The Night
-04. Ingo Herrmann - Lala-Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C364592F1E4FE5DA682B9536CC67A15552889F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045881   (556983) от 25.08.2016
-
-VA - Moments - Chill-Out & Lounge Series, Vol. 6 (2015) [MP3|320 Kbps] <Electronic, ChillOut, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - In the Palm of Your Hand (3:45)
-02. Charly'n Black - Sur La Route De Lausanne (4:52)
-03. Marcus Koch - Deeper Space (5:30)
-04. Weathertunes - The New Jazz Five (4:12)(   Читать дальше...   )Жанр: Electronic, ChillOut, LoungeПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57632B247027E0C00EE190BFA073BE9646BF392
 ```
 
 https://mybot314.ru/tekegram_catalog/

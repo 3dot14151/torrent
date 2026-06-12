@@ -1,3 +1,90 @@
+###  Публикация: 173161   (368064) от 04.11.2011
+
+RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1- NAKED
+ 2- STILL GROWING FLOWER
+ 3- 道なき未知へ
+ 4- シロイハナ
+ 5- IF I AIN’T GOT YOU
+ 6- melt away2007-2008Жанр: Jrock,metalcore,alternative metalПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415996   (367336) от 16.10.2020
+
+Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watch Me Burn [00:03:29]
+02. Disobey [00:03:12]Жанр: MetalcoreПродолжительность: 9 CD, 03:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031853C7A07A98C23ECE18311D8068F5432BB540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577965   (350174) от 21.09.2022
+
+Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350174.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Kuroi Inori
+2.	Kuroi Kage
+3.	Shoujahitsumetsu
+4.	Shikabane(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C8AC0E2AD0D825186144CB2CE43594FA554648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407677   (348216) от 12.11.2011
 
 ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
@@ -665,93 +752,6 @@ D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663250   (186785) от 21.09.2023
-
-Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Legacy Within [00:04:41]
-02. Headbanger's Journey [00:03:43]
-03. Still Alive [00:05:30]
-04. I'm Back [00:05:06](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B222CDF4528A81637693F731EB3E665C55FB817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592194   (184466) от 21.11.2022
-
-Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Wisdom
-02. Machination Utopia
-03. The Coming Tragedy
-04. The Force Of Illusion(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Power MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43651A2E0C86E5753171764419D859A15886B942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595090   (176750) от 03.12.2022
-
-Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titan [00:01:30]
-02. Cult [00:03:01]
-03. Damn [00:03:56]
-04. Flame (feat. cacophony) [00:03:43](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 2 CD, 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2255EAC8842385BB1CBEBEC6DCA71387C68DCC9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

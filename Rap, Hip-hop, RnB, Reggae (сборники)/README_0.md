@@ -1,3 +1,32 @@
+###  Публикация: 1459323   (1023296) от 01.04.2021
+
+VA - Exotic Reggae: Dub Edition (2CD) (2021) [MP3|320 Kbps] <Reggae, Dub, Riddim>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыку этого стиля без труда можно отличить от большого количества других музыкальных произведений, им присущ неспешный ритм и благозвучная умиротворённость в каждой мелодии. Здесь ясно усматривается стремление к гармонии, духу мира. Основная идея — полное отсутствие негатива, стремление к примирению с собой и окружающими, полный релакс и успокоение.CD 01:
+
+01. The Wailers - Philosophy Of Life
+02. Kumar - Love Crazy(   Читать дальше...   )Жанр: Reggae, Dub, RiddimПродолжительность: 08:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D891B9E8FD1E5218BC3FDC2893DF69F9B062422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459841   (1022998) от 03.04.2021
 
 VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
@@ -716,35 +745,6 @@ VA - Reggae On The Roof: Miami Carnival (2020) [MP3|320 Kbps] <Reggae, Dancehall
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F099501B9262F5645B3CB0819EFE9953028CC0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098362   (906177) от 31.01.2017
-
-VA - Reggae Hits (Presents: Elgujakviso) (2017) [MP3|210-320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bob Marley & The Wailers - Natural Mystic
-002 Ub40 - Signing Off
-003 Alpha Blondy - I Love Paris
-004 Junior Reid - Chanting(   Читать дальше...   )Жанр: ReggaeПродолжительность: 13:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C502273248E7236B20651F91E0BE4FAC46EF378A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1157152   (525523) от 11.08.2017
-
-VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Freaks - Deep Deep Down (Extended Mix)
-02. DJ Absinth - Revolution (Radio Version)
-03. Mykel Mars - White Beach
-04. Michael Ruland - Dreamer (Single Version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988700FFA3D11C607139651F30F89F7B01B086B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157345   (525230) от 12.08.2017
 
 VA - Progressive House Nation Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
@@ -165,6 +136,35 @@ VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550501FAD05F8A08F6273E2D6B0BEA473B977B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314145   (521328) от 12.07.2019
+
+VA - Lounge Music 2019: Chill Music (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_521328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topsy Crettz – Never Give Up (3:24)
+02. Ferjo De Gery & M.a.o.s. Beats – Fantasy (4:56)
+03. Robert Cristian – Tell Me Why (3:04)
+04. Melih Aydogan – Making Love (4:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B208E1E1463B14A551F1EB3EECC1C5FE43589A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

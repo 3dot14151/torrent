@@ -1,3 +1,148 @@
+###  Публикация: 1295004   (622052) от 11.04.2019
+
+Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. !!!!!!! (00:13)
+02. Bad Guy (03:14)
+03. Xanny (04:03)
+04. You Should See Me in a Crown (03:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C97AF17BB46B3B3BC24463C0D1EC4FFB9D3FD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910532   (621895) от 20.06.2015
+
+Tom Jones - Legendary Performer (1999) 3CD Box [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What’s New Pussycat?
+02. Green, Green Grass Of Home
+03. Unchained Melody
+04. Till Then(   Читать дальше...   )Жанр: PopПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB0FE1D8C38A406FCDA7AC5EB61FD35D554F86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467150   (621890) от 15.04.2022
+
+Чертово Колесо Инженера Ферриса (Ferris Wheel) - 5 Singles, 12 Albums (2007-2022) [MP3|320 Kbps] <Power-Pop, Dance-Punk, Horror-Electro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пусть крыша горит! [00:04:05]
+02. Беги и режь! [00:03:48]
+03. Плюнь на следы! [00:04:02]
+04. Демоны и химеры [00:04:24](   Читать дальше...   )Жанр: Power-Pop, Dance-Punk, Horror-ElectroПродолжительность: 07:45:17 (17CD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41119F875F3A422C6A49DED4E6E4D903949DD4A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909137   (621770) от 20.06.2015
+
+Blue System - Walking On A Rainbow + Hello America (2000) [FLAC|image + .cue]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster Love [4:27]
+02. Sorry Little Sarah [5:12]
+03. She's A Lady [4:59]
+04. Voodoo Nights [3:23](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994AEC4288DBE8453A1E6CDD7B401D5BC2ED2C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145286   (621642) от 25.06.2017
+
+Братья Дорохины - Братья Дорохины (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made In Russia
+02. Ты будешь моей
+03. Белая фиалка
+04. Нецелованный Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FFC82AC9A4E0AA699A3EDDDA1FC9369903E99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908497   (621550) от 20.06.2015
 
 Modern Talking - Greatest Hits Mix (1988) [FLAC|tracks+.cue]<Euro Disco, Pop>
@@ -597,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E713072CFA5B1469BC9AA5B87AEAC70C9EE121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910757   (620118) от 21.06.2015
-
-Стелла - Позови (1994) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позови (4:25)
-02. Девочка без сердца (4:20)
-03. Вот и всё (4:00)
-04. Сколько долгих дней... (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CD0D2EA4403F836B51AE365F6E0B27F0A74A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910819   (620114) от 21.06.2015
-
-МГК - Остров любви (1996) [WavPack|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новое время
-02. Остров любви
-03. Ночь
-04. Ragga Mix(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA80F7645CA410BD9DB3AB12032182CED87484D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910786   (620113) от 21.06.2015
-
-Шоколад - Улыбнись (2002) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне тебя не хватает 4:08
-02. Я еду к морю 3:28
-03. Как мне жаль 4:39
-04. Улыбнись 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0E4B603FACE49383A51AC4035187F22B6F2DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910805   (619963) от 21.06.2015
-
-Забытый Разговор - Навсегда (1997) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабское золото 3:55
-02. Навсегда 3:44
-03. 6 лет, 6 ночей 4:22
-04. Титаник 4:24(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB944EA6C9F19AC8D6DCAE2229BE00EC6E6B2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684566   (619859) от 28.07.2013
-
-Вадим Козин - Неизданное (1976) /1998/ [WavPack|Lossless]<Романс / Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю эту землю (02:52)
-02. Бульвары Магадана (02:44)
-03. Магаданская сторонка, магаданский ветерок (02:45)
-04. Я живу на улице Портовой (01:48)(   Читать дальше...   )Жанр: Романс / РетроПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
 ```
 
 https://mybot314.ru/tekegram_catalog/

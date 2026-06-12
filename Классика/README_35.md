@@ -1,32 +1,3 @@
-###  Публикация: 1252406   (409177) от 05.10.2018
-
-After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409177.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Figure One.               Written-By – Rossini
-2.	Carmencita.             Written-By – Bizet
-3.	Joy.                          Written-By – JS Bach
-4.	Freeze.                     Written-By – Rossini(   Читать дальше...   )Жанр: Neo-Classical, Pop, ClassicalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD71B8CF7E13C5623D237DA7242DC38F825E2AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167775   (408559) от 24.09.2017
 
 Vanessa Mae - The Best (2010) [FLAC|Lossless|image + .cue] <Classical Crossover>
@@ -796,6 +767,41 @@ UNSER MUND SEI VOLL LACHENS, BWV 110
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E95E1B268B607AF7D061055825F4D3B8F5C4054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571429   (387484) от 07.11.2012
+
+Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Praeludium und Fuge a-moll - Präludium - 1:47
+2. Praeludium und Fuge a-moll - Fuge - 3:37
+3. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Vorspiel - 1:52
+4. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Fuge - 4:51
+5. Fuge as-moll - 6:54
+6. Präludium und Fuge g-moll - Praeludium - 3:46
+7. Präludium und Fuge g-moll - Fuge - 4:02
+8. Elf Choralvorspiele op. 122 - Mein Jesu, der du mich - 4:29
+9. Elf Choralvorspiele op. 122 - Herzliebster Jesu - 3:06
+10. Elf Choralvorspiele op. 122 - O Welt ich muss dich lassen - 2:15(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5D328E6C358C9E4C99A8D74A79531DA20460AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

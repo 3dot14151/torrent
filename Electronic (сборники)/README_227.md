@@ -1,3 +1,32 @@
+###  Публикация: 1810389   (9384) от 04.08.2025
+
+VA - Car Music Mix 7 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunwest - FENDI2 (1:57)
+02. Masked Wolf, Alok - Astronaut In The Ocean - Alok Remix (2:08)
+03. BROHM, Thingstad - Sztoj Pa Moru (2:18)
+04. FILV. AVR YNG - Low (2:14)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB9EAB0C02295170C6228EE51027CA359AB2436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404144   (8863) от 09.08.2025
 
 VA - Tranceffect 006-303 (2011-2023) [MP3|320 Kbps|image+.cue] <Trance, Progressive Trance, Uplifting Trance, Vocal Trance, Classic Trance, Hard Trance, Tech Trance> (Обновляемая)
@@ -718,35 +747,6 @@ VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4C8676E3AD74F1F2B570A20C3F2AF2CCC62083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817757   (3149) от 12.09.2025
-
-Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Night Rides
- 02 - Feelings
- 03 - In the Morning
- 04 - Rose(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDB31E637DE95D589816ADF461B758A43AF32A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

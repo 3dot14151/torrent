@@ -1,3 +1,61 @@
+###  Публикация: 1581787   (324598) от 08.10.2022
+
+Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive
+02. Captain Nemo
+03. The Second Element
+04. Ship Of Fools(   Читать дальше...   )Жанр: Pop, Downtempo, Synth-popПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2489F02AA8A7E8512D8070C4658C1D94B0D4BAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581939   (324593) от 08.10.2022
+
+Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Say Goodbye (Con Te Partiro) (Featuring Andrea Bocelli)
+02. The Fly
+03. Why
+04. Murder In Mairyland Park(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582100   (324591) от 08.10.2022
 
 Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
@@ -316,6 +374,41 @@ Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A76D8DBC2FD92F9532947049907B98193CAAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155693   (322677) от 05.12.2009
+
+Tess - One Love To Justify (2001) [MP3|320 kbps]<EuroDance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_322677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:58)
+02. One Love (4:00)
+03. Justify My Love (3:30)
+04. Viva L'amor (3:17)
+05. Stay (3:24)
+06. In My Dreams (3:26)
+07. Get The News (3:23)
+08. Crazy (3:32)
+09. Confusion (3:08)
+10. Story Of My Life (3:47)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,93 +763,6 @@ Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182224   (317066) от 10.11.2017
-
-Collage - I Grandi Successi (1997) CD [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компиляция из альбомов 1977, 1978, 1980 годов.01. Concerto d' amore (3:38)
-02. L' istinto (3:03)
-03. Io (4:00)
-04. Proprio per te Maria (2:44)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, EuropopПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2DECE0823A796B0010CE2C71DA8B23375791CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959197   (316968) от 24.11.2015
-
-Monica Naranjo - La mas perfecta coleccion (2011) [MP3|320 кб/с]<Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	El Amor Coloca	4:01
-02.	Solo Se Vive Una Vez	4:11
-03.	Oyeme	4:58
-04.	Sola	4:08(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF677C4EFA96D91A08D565FD1DA89057D6E78931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959451   (316964) от 24.11.2015
-
-Monica Naranjo - Tarantula (2008) [MP3|320 кб/с]<Electronic, Rock, Pop, Electro, Dark Ambient, Symphonic Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316964.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Europa	7:122
-2	Todo Mentira	3:47
-3	Usted	3:45
-4	Para Siempre	5:12(   Читать дальше...   )Жанр: Latin, Electronic, Rock, Pop, Electro, Dark Ambient, Symphonic RockПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA4246D45F3048C8668A109E85A1F1235BCEE61
 ```
 
 https://mybot314.ru/tekegram_catalog/

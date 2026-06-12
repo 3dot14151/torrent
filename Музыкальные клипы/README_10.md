@@ -1,3 +1,29 @@
+###  Публикация: 637679   (897988) от 01.04.2013
+
+Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SynthpopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370467   (896861) от 27.03.2020
 
 Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
@@ -673,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75130B978045A3B8804181DAA973A7C0127A4A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995213   (884290) от 11.03.2016
-
-History of Rock (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884290.jpg" />
-</div>
-
-
-###  Подробнее
-
-A History of Rock за 15 минут. 348 рок звёзд, 84 гитариста, 64 песни, 44 ударника, в одном клипе!Производство: 00:49:25Жанр: RockРежиссер: Ithaca AudioПродолжительность: 00:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
 ```
 
 https://mybot314.ru/tekegram_catalog/

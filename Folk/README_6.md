@@ -1,3 +1,212 @@
+###  Публикация: 392412   (450050) от 16.09.2018
+
+Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
+	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552567   (447914) от 26.09.2012
+
+Шедевры Этнической Музыки - Ритуальная Музыка Индейцев Центральной Америки (2004) [MP3|320 кб/с]<Native American, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danza del Capareke (2:16)
+02. Los senores del tiempo (3:50)
+03. Nahui atl (9:23)
+04. Vines of the serpent (4:24)
+05. Oracion a los espiritus del viento nocturno (11:55)
+06. Ojo de reptile (4:23)
+07. Tlazolteootl (3:36)
+08. El agua y los suenos (5:01)
+09. Little flowers of the God (4:34)Жанр: Native American, EthnicПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03521752806FA74E440E7855643722E43013325B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941285   (445063) от 05.10.2015
+
+Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downtempo>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. feather in the wind
+02. good times
+03. why
+04. in the_moonlight(   Читать дальше...   )Жанр: Pop-Folk, Acoustic, DowntempoПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C400467E6C2EEA98F1D69DBF57E992E22C4992AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 2922   (440334) от 29.09.2012
+
+Пелагея(folk)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любо, братцы любо! (05:50)
+02. Я ехала домой (02:24)
+03. Позарастали стежки-дорожки (03:16)
+04. Не вечерняя (04:07)
+05. Думы (Ю. Ким) (03:00)
+06. Вечериночная (00:49)
+07. Отжил я свой век. Духовный с.. (01:55)
+08. Не для тебя (03:14)
+09. Не уходи (Н. Зубов/сл. народ.. (02:24)
+10. Рождественская (04:47)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552064   (438645) от 30.09.2012
+
+VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943982   (435851) от 09.10.2015
+
+Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, Irish Folk Rock, Celtic Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vagabondtown
+02. Enisgo
+03. Red Back Sheep
+04. Moon on the Highway(   Читать дальше...   )Жанр: Alternative, Irish Folk Rock, Celtic RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E516B82FA41A5A1FF822563946B5AD15806C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945435   (428644) от 12.10.2015
+
+Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaudete
+ 02. Анестезия
+ 03. Марсианский экспресс
+ 04. Никогда(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 709041   (419042) от 13.10.2013
 
 Летописи Междуречья - Странник (2012) [MP3|256-320 кб/с]<Folk-Rock>
@@ -552,209 +761,6 @@ VA - Dark Country (Extreme Music) (2012-2017) 6 альбомов [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B68ADFFED9CF544B0897F9D190D768B88F3E785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958193   (319135) от 23.11.2015
-
-Ярмарка - Фолк-шоу группа (1999) [MP3|320 кб/с]<Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой цветёт калина
-02. Мама-Мария
-03. Путь-дорожка
-04. Порушка-Пораня(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260226   (313808) от 06.11.2018
-
-Очелье Сороки - Истое (2018) [MP3|320 Kbps] <Neo-Folk, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сокол
-02. На горе мак
-03. Манечка
-04. Песнь(   Читать дальше...   )Жанр: Neo-Folk, EthnicПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CC58CA086B0557B511B40E06C42AFAF0C7492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076392   (313694) от 25.11.2016
-
-Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (04:21)
- 02. Isle of Hope, Isle of Tears (05:02)
- 03. As She Moved Through the Fair (2016 Version) (03:56)
- 04. Mo Ghile Mear (My Gallant Star) (03:37)(   Читать дальше...   )Жанр: Celtic, Folk, WorldПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260321   (312026) от 07.11.2018
-
-Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanggalkan Di Dunia (Undo The World)
-02. Sujud (Prostration)
-03. Terbertaktilah Tanah Ini (Blessed Is This Land)
-04. Penjuru Menyatu (Unified Counters)(   Читать дальше...   )Жанр: World, Other, FolkПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A37CA63B036679ED2F9835E1769C3334F3F504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846600   (301941) от 02.12.2014
-
-Иван Купала - Звездная Серия (2001) [MP3|320 кб/с]<Folk, Electronic, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:40)
-02. Коляда (04:15)
-03. Брови (Fiesta Mix) (03:33)
-04. Виноград (03:38)(   Читать дальше...   )Жанр: Folk, Electronic, CountryПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15703C6A1D6F435CB372E5ED3A543AD3B8341EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184470   (301369) от 17.11.2017
-
-Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babaloba (feat. Sidiki Diabate)
-02. Terra Bonito
-03. Nha Badados (feat. Debademba)
-04. Meu Amor(   Читать дальше...   )Жанр: World, FolkПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3C5D023F05D43174725180EE2E0C3A98C160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077532   (298045) от 02.12.2016
-
-The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]<Irish Folk, Celtic, Folk Pop, Contemporary Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Irish Rover (Live)
-02. The Boys of the Emerald Isle (Live)
-03. All on St. Patrick's Day (Live)
-04. Come Away with Me (Live)(   Читать дальше...   )Жанр: Irish Folk, Celtic, Folk Pop, Contemporary FolkПродолжительность: 19:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

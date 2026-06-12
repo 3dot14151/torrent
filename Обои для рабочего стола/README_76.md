@@ -1,3 +1,33 @@
+###  Публикация: 500131   (256941) от 22.05.2012
+
+[Wallpapers] Texture Desktop Wallpapers Pack 8
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256941.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Texture Desktop Wallpapers Pack 8
+Название: Texture Desktop Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3333х2500
+Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3894DC117FEC4C8B03075D14BAB828B27EDE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499896   (256895) от 22.05.2012
 
 [Wallpapers]Majestic castles Wallpapers  Pack
@@ -704,34 +734,6 @@ Wallpapers - Чудо в перьях или 500 великолепных обо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C7DF0A0A8B505FD9D186F6AC88D0D4D0751ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330784   (233656) от 22.05.2022
-
-[Wallpapers] Очень красивые обои [jpeg, 25 шт,от 1024x768 до 1920x1200]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для вашего рабочего стола!!!
-Украсив ими свой стол, вы будете восхищаться этой красотой долго!!!
-Скачайте и проверьте...Жанр: ОбоиФормат: jpeg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FCF4D2FAAE0DFC4205F191E8111919093EE2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

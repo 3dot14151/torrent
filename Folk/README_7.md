@@ -1,3 +1,206 @@
+###  Публикация: 958193   (319135) от 23.11.2015
+
+Ярмарка - Фолк-шоу группа (1999) [MP3|320 кб/с]<Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой цветёт калина
+02. Мама-Мария
+03. Путь-дорожка
+04. Порушка-Пораня(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260226   (313808) от 06.11.2018
+
+Очелье Сороки - Истое (2018) [MP3|320 Kbps] <Neo-Folk, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сокол
+02. На горе мак
+03. Манечка
+04. Песнь(   Читать дальше...   )Жанр: Neo-Folk, EthnicПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CC58CA086B0557B511B40E06C42AFAF0C7492B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076392   (313694) от 25.11.2016
+
+Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On (04:21)
+ 02. Isle of Hope, Isle of Tears (05:02)
+ 03. As She Moved Through the Fair (2016 Version) (03:56)
+ 04. Mo Ghile Mear (My Gallant Star) (03:37)(   Читать дальше...   )Жанр: Celtic, Folk, WorldПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260321   (312026) от 07.11.2018
+
+Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanggalkan Di Dunia (Undo The World)
+02. Sujud (Prostration)
+03. Terbertaktilah Tanah Ini (Blessed Is This Land)
+04. Penjuru Menyatu (Unified Counters)(   Читать дальше...   )Жанр: World, Other, FolkПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A37CA63B036679ED2F9835E1769C3334F3F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846600   (301941) от 02.12.2014
+
+Иван Купала - Звездная Серия (2001) [MP3|320 кб/с]<Folk, Electronic, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:40)
+02. Коляда (04:15)
+03. Брови (Fiesta Mix) (03:33)
+04. Виноград (03:38)(   Читать дальше...   )Жанр: Folk, Electronic, CountryПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15703C6A1D6F435CB372E5ED3A543AD3B8341EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184470   (301369) от 17.11.2017
+
+Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babaloba (feat. Sidiki Diabate)
+02. Terra Bonito
+03. Nha Badados (feat. Debademba)
+04. Meu Amor(   Читать дальше...   )Жанр: World, FolkПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC3C5D023F05D43174725180EE2E0C3A98C160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077532   (298045) от 02.12.2016
+
+The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]<Irish Folk, Celtic, Folk Pop, Contemporary Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Irish Rover (Live)
+02. The Boys of the Emerald Isle (Live)
+03. All on St. Patrick's Day (Live)
+04. Come Away with Me (Live)(   Читать дальше...   )Жанр: Irish Folk, Celtic, Folk Pop, Contemporary FolkПродолжительность: 19:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184838   (297157) от 19.11.2017
 
 Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
@@ -551,218 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499540   (256407) от 21.05.2012
-
-Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put on Your Shoes (03:36)
-02. Homecoming (03:34)
-03. Ghosts of Europe (05:51)
-04. Sleeping Violin (05:00)
-05. The Clown (03:03)
-06. Passing By (03:29)
-07. Rome (04:08)
-08. One Step (05:23)
-09. World in Flames (04:32)
-10. Your Hell (03:31)2001-2008Жанр: Neofolk, Apocalyptic FolkПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499451   (256363) от 21.05.2012
-
-Этнографические коллективы Краснодарского края - А у нас на Кубани... (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За Лабою огонь горит (3:26)
- 2. В 1791 году (3:09)
- 3. Зажурились черноморцы (5:21)
- 4. По над лугом шлях (2:42)
- 5. Ой мало мало мне ночку спалось (2:38)
- 6. Вы казачки казачки (2:23)
- 7. Прощай ты Уманска станица (5:04)
- 8. Не полынно ты мое полюшко (3:10)
- 9. И не пьют не едят кони вороные (3:34)
- 10. То не пыль то курит (4:35)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40821ECB6899EE0062B2AA2B1D669E3BF006AE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498602   (255791) от 19.05.2012
-
-Юрий Щербаков - Была весна - (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Казачья песняПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497661   (253546) от 16.05.2012
-
-Казачий круг - Антология  (2005 - 2007) [MP3|224-256 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk  Казачья песняПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B7298514C7F75EBAED6AB91A5F2DAD8B40342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495111   (251200) от 11.05.2012
-
-Лидия Русланова - Поет Лидия Русланова (1996) [MP3|320 kbps]<Народная Песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окрасился месяц багрянцем (2:58)
-02. Саратовские частушки (2:41)
-03. Коробейники (2:44)
-04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617826   (250232) от 08.03.2023
-
-VA - Хорошо сидим ! Песни русского застолья (1996) [MP3|320 Kbps] <Folk> [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коробейники
-02. Ой, цветет калина
-03. Дождливым вечером
-04. Ромашки спрятались(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD04C0DFAACD4BF7C6293A13EC044F7482B7F3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492009   (246489) от 04.05.2012
-
-Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Live Silently (04:00)
-02. Regret (04:37)
-03. The Purpose (04:32)
-04. In The Final Hour (04:55)
-05. Sacrifice In Vain (02:28)
-06. Over Stray Thoughts (03:42)
-07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
 ```
 
 https://mybot314.ru/tekegram_catalog/

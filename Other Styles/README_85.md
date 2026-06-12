@@ -1,3 +1,125 @@
+###  Публикация: 1037477   (612029) от 25.07.2016
+
+VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomena
+02. Jennifer
+03. The Wind
+04. Sleepwalking(   Читать дальше...   )Жанр: OSTПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037854   (611773) от 25.07.2016
+
+Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Playa
+02. Solenzara
+03. Recuerdos De La Alhanbra
+04. Marina Elena(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3490671A0FEFACC12BBF38EE5163032D447FD1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221943   (611421) от 26.07.2010
+
+VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Tyrello - Infinity, Eternity, Extasy
+02. Code 14 - No Limits
+03. Jason Tyrello - Rain Sunday
+04. Hipnotic - Share Your Dreams
+05. Jason Tyrello - What The Memories Say
+06. Mahoroba - Le Monde
+07. Dreamscape - Khamsin
+08. Plasma - Under Control
+09. Hipnotic - Past Present Future
+10. Silent Voices - Turn The Light 2 Eternity(   Читать дальше...   )Жанр: Electronic, ChillOut, Ambient, EnigmaticПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545839   (611234) от 21.04.2022
+
+Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Galdra
+2. Halloween
+3. Gwydion
+4. Wainamoinen(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147001   (611093) от 01.07.2017
 
 VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
@@ -665,122 +787,6 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296564   (606793) от 20.04.2019
-
-T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossless|tracks + .cue] <Blues Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over You (02:20)
-02. Tear This Building Down (04:37)
-03. It's Not Too Late (04:27)
-04. Humans From Earth (02:49)(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038010   (606601) от 28.07.2016
-
-Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Keyhole 4:02
-02. Privat 19:05
-03. Privée 16:43
-04. Private 25:01(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7DCD4D2A02B39FE49B9C7D3BC11196B48538E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546698   (604487) от 25.04.2022
-
-Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Cool Records [FLAC 2.0|48/24|WEB-DL|tracks] <Country Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Aye (Oh You) (3:36)
-02. I Love You so Much I'm Leaving (2:56)
-03. In Reverse (3:28)
-04. You Will Let Me Down Again (2:39)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7999677C9D0D5851B2912C895EE49B8397EA5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546611   (604425) от 25.04.2022
-
-Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Es war einmal
-02 - Rosenrot
-03 - Seemann
-04 - Hagazussa(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1610304   (1041524) от 10.02.2023
+
+Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041524.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD ONE:
+01. Glorious Sun Remix
+02. Muliya
+03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610792   (1041359) от 11.02.2023
+
+Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Of Fire [05:03]
+02. The Counterclockwise Circle Of Dance [05:46]
+03. Return From River Island [06:11]
+04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438462   (1040616) от 10.01.2021
+
+Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentine
+02. True Love (From "FROZEN: THE BROADWAY MUSICAL")
+03. Memories Of You
+04. Have I Told You Lately That I Love You?(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 03:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611909   (1040435) от 14.02.2023
+
+Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blissful Moments (3:12)
+02. Inner Pleasure (3:35)
+03. Secrets of Intimacy (3:40)
+04. Hypnotic Moods (4:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82CBB7E7D9B23EBBA0ACFC666FB7C54725FF2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438931   (1040421) от 10.01.2021
 
 John Weider - Intervals In Sunlight (1987) [FLAC|Lossless|tracks + .cue] <New Age, Jazz Rock, Folk, Acoustic>
@@ -629,122 +745,6 @@ VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617225   (1034538) от 09.03.2023
-
-VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eRa - Sempire d'Amor
-02. Delerium - Silence
-03. Beautiful World - Fearless
-04. Pandana - One Man Woman(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B15D5D350F670374AC0CD136D50126E6B652F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616943   (1034536) от 09.03.2023
-
-VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physical Motion - Ave Maria
-02. Gregoria - The Rhythm
-03. Karunesh - Call of the Tribes
-04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618145   (1034352) от 10.03.2023
-
-Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034352.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon (25th Anniversary New Mix)
-2. The Clock Ticks On (25th Anniversary New Mix)
-3. Be Mine Tonight (25th Anniversary New Mix) 
-4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444936   (1033969) от 04.02.2021
-
-Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:47)
-02. Blue...The Color of Dreams (11:28)
-03. Voices of Infinity (8:27)
-04. Pink...The Color of Love (9:56)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F7DD9CA78DCCA5EE8BB4AE3DAF871515EB6CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

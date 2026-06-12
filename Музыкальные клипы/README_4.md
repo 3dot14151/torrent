@@ -1,3 +1,29 @@
+###  Публикация: 1355568   (982201) от 27.01.2020
+
+Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982201.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lovely» — песня в исполнении Billie Eilish и Khalid вышла 19 апреля 2018 года для официального саундтрека второго сезона драматического телесериала от Netflix «13 причин почему». Песня была включена в расширенное издание мини-альбома Billie Eilish: Don't Smile at Me (2017).Производство: Sony, ATV Music Publishing LLC, Kobalt Music Publishing Ltd., Universal Music Publishing GroupЖанр: Indie, Pop, Alternative RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FB1CCE3992F04820547F78282B3FE1E9DCAFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 436010   (982166) от 13.01.2012
 
 VA - Millenium Sexy - Сборник популярных видеоклипов (2011) DVDRip
@@ -680,32 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617213   (971741) от 12.02.2013
-
-Сборник видеоклипов / Clips (music video)1080i HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов разных жанров в отличном качестве, многоканальное аудио.Жанр: разныйПеревод: ОтсутствуетПродолжительность: ~ 01:30:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1356586   (978006) от 31.01.2020
-
-Sarah Where Is My Tea - Desolate (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procrastination (3:59)
- 02. Empty Promises (4:12)
- 03. Who's Your Daddy (3:02)
- 04. To Perform Last Spurt (3:39)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EADA6A7F0CB1C6E608E9F117301426C43B4510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356588   (978004) от 31.01.2020
 
 Sarah Where Is My Tea - Love & Honor (2013) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore>
@@ -765,6 +736,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361639   (954306) от 20.02.2020
+
+Северный Воин (ex Гипоталамус) - Потерявшие Свои Имена (2005) [FLAC|Lossless|image + .cue] <Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:51)
+02. Северный Воин (4:49)
+03. Россия Мать (2:51)
+04. Война (3:15)(   Читать дальше...   )Жанр: Punk, Alternative RockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD10514960BA52D1927562C3B50035D96ED2A89C
 ```
 
 https://mybot314.ru/tekegram_catalog/

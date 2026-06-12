@@ -1,32 +1,3 @@
-###  Публикация: 1053212   (526529) от 16.09.2016
-
-Eruption - Leave A Light (1978) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave A Light (I'll Keep A Light In My Window) (06:48)
-02. Sweet Side (03:54)
-03. Up And Away (03:10)
-04. Left Me In The Rain (03:57)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3BC443070752F77D4B3BB7F47310FD2F5E40FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 371249   (523685) от 04.08.2011
 
 A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
@@ -110,6 +81,35 @@ RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242002   (516116) от 21.08.2018
+
+Boris Zhivago - Love In Russia (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_516116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	For The Love In Your Eyes	6:11
+2	Lana	                                5:14
+3	From Russia With Love	4:19
+4	Russian Girl	                4:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046C8B3BBEC8EE366F0A456EA0759C6EE869314D
 ```
 
 https://mybot314.ru/tekegram_catalog/

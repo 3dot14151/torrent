@@ -1,3 +1,32 @@
+###  Публикация: 1032331   (645457) от 07.07.2016
+
+MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amiel 02:42
+02. Whispers in the Wind 04:52
+03. Moon Sickness 06:03
+04. To Immortality 04:58(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 1:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 799951   (644296) от 27.06.2014
 
 Aki no Sora - 10 альбомов (2008-2013) [FLAC|Lossless] <Vocal, J-Pop>
@@ -737,35 +766,6 @@ Cecilia Cheung - 4 albums (1999-2001) [FLAC|Lossless]<Cantopop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819126   (609187) от 02.07.2017
-
-JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless|tracks] <Power Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2014.08.16 (JRMN-001) JORMUNGAND (C86)
-2015.08.14 (JRMN-002) Screaming Trance (C88)
-2016.08.13 (JRMN-003) Silent Enhancers (C90)Тип издания: DoujinЖанр: Power MetalФормат: KanColle VocalПродолжительность: 00:01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D0237DE8906DE4862BFBAE7B3A3AE77DB5F7EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

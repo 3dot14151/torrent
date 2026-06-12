@@ -1,3 +1,90 @@
+###  Публикация: 1820460   (556) от 27.09.2025
+
+VA - Music News For Forum vol.135 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva Tronza feat. TUSOVKA & SMRIN - POLOVINA (02:08)
+ 002. 58TAKASHI & Liko - Щас чё (02:31)
+ 003. Aars - Любовь (02:45)
+ 004. Abriviatura IV & Soundsperale - Always Burning (04:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C37FDD51CA3C3EEF878269322E49AB9FB1733B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820359   (502) от 27.09.2025
+
+VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Supafly vs Fishbowl - Let's Get Down (Warren Clarke Main Mix)
+02-Aaron Smith Feat. Luvli - Dancin (PHNTM Groovy Dub Mix)
+03-Dr. Kucho! feat. Jodie - Belmondo Rulez 2.0 (It's All About You) (Bob Sinclar club mix)
+04-Casanovy - I Need Your Lovin (Milk & Sugar Rmx)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820731   (264) от 28.09.2025
+
+VA - National Pop Dance Music Vol.121 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_264.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kep1Er - Hell Or Heaven (02:54)
+ 002. Andrea Berg - Nachstes Mal Sag Ich Dann Nein (03:13)
+ 003. Frannko - Despierta Alma (03:48)
+ 004. Malik Adouane - Strange Lotus (05:38)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 09:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD23FA9536C3AC1A967CBBA41A4759AADD40B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766009   (128) от 29.09.2025
 
 AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock & Roll, Heavy metal>

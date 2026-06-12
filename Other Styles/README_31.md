@@ -1,3 +1,119 @@
+###  Публикация: 997635   (871752) от 18.03.2016
+
+Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106824   (871560) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997648   (871459) от 18.03.2016
+
+Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496505   (871397) от 18.09.2021
+
+Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Sutra
+02. Buddha of the Wild and Green
+03. Deer in the Morning (Chenrezig)
+04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106831   (871391) от 20.02.2017
 
 2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -623,120 +739,6 @@ Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:498918D2B7B0DD9A2099C7CF12D0CA5A23F4D730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375242   (866934) от 13.04.2020
-
-Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turning
-02. Sun Dappled
-03. Ripples
-04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221512   (866892) от 01.03.2011
-
-Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866892.jpg" />
-</div>
-
-
-###  Подробнее
-
-(10:33) 01. Part 1
-(08:12) 02. Part 2
-(06:57) 03. Part 3
-(10:50) 04. Part 4
-(03:39) 05. Part 5Жанр: New age, Neoclassical, InstrumentalПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374472   (866847) от 13.04.2020
-
-Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadeness
-02. Mea Culpa
-03. Le Roi Est Mort, Vive Le Roi!
-04. Return To Innocence(   Читать дальше...   )Жанр: Enigmatic, New age, PopПродолжительность: 03:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0147A29BCBBDD8915DFC3D9A9530739C43622AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188876   (866445) от 03.04.2010
-
-VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Relax, MeditativeПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

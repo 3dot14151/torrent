@@ -1,3 +1,119 @@
+###  Публикация: 1221861   (689307) от 27.04.2018
+
+ЕVгеника - Оренбургский пуховый платок (2017) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оренбургский пуховый платок (3:11)
+02. Ой, мороз (2:27)
+03. Ивушки (3:53)
+04. Виновата ли я (2:02)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A513F90EE009DC39A6B8E6AAF714CE29DAF2A2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133882   (689250) от 15.05.2017
+
+Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия любви (Original Soundtrack) (2016) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 26 rue Commines, Lyon (01:55)
+02. La fuite (01:22)
+03. Gabrielle (01:18)
+04. Un nouveau depart (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134212   (689247) от 15.05.2017
+
+Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovers (Intro & Title) (03:04)
+02. Tell Her! (01:22)
+03. Lying to Lucy (01:38)
+04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC029DB42DF1E1FACD4685232BC14AF8F878A683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133471   (689244) от 15.05.2017
+
+Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominus [02:37]
+02. Everlasting Legacy [02:27]
+03. Reborn [02:57]
+04. I Am Yours [04:39](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9BA818019F1611A0D9486CB171FF49E22AE6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134216   (689217) от 15.05.2017
 
 Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -623,122 +739,6 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289030   (686641) от 16.03.2019
-
-The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Principles of Salt (03:10)
-2. Frozen Through (02:35)
-3. She's Alright (03:12)
-4. Crooked Pines (04:29)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403895   (686579) от 22.08.2020
-
-VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That’ll Be The Day (Unedited Film Version) [01:50]
-02. Mockin’ Bird Hill (Film Version) [01:30]
-03. Rock Around With Ollie Vee (Unedited Film Version) [02:14]
-04. Tennessee Waltz [01:53](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289563   (686476) от 16.03.2019
-
-VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Hand In Hand
-2.	Medley: Golden Slumbers, Carry That Weight, You Never Give Me Your Money, The End
-3.	Orinoco Flow
-4.	The First Time(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288699   (686470) от 16.03.2019
-
-VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Rock Me Amadeus / The Classic Touch
-02.	Kyrie
-03.	Brothers In Arms
-04.	St. Elmo´s Fire(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
 ```
 
 https://mybot314.ru/tekegram_catalog/

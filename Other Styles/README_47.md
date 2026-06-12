@@ -1,3 +1,119 @@
+###  Публикация: 1201852   (791441) от 26.01.2018
+
+Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cómo Me Quieres (3:45)
+02. Lady and Man (4:18)
+03. Maria También (3:11)
+04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274819   (791120) от 10.01.2019
+
+Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unknown (5:06)
+ 02. Leaving The Darkness Behind (4:47)
+ 03. Amazing Grace (4:54)
+ 04. Second Chances (3:00)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0812B98000FB701D0FC89039620AB235A11EAF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275215   (791117) от 10.01.2019
+
+Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centering Meditation
+02. Morning Air
+03. A Peaceful Drift
+04. Cosmic Waters(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275133   (791096) от 10.01.2019
+
+Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets of the Sea
+02. Reverence
+03. River of Dreams
+04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201949   (790970) от 27.01.2018
 
 Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
@@ -628,122 +744,6 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:016656C863E3ED94228EF3E3919295CF44361EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511614   (788316) от 22.11.2021
-
-Квітка Цісик - Пісні з України (1980) Kvitka Cisyk, Kacey [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Іванку, купи ми рум'янку
-02. Пісня про рушник
-03. Стоїть гора високая
-04. Ой, видно село(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202309   (788166) от 02.02.2018
-
-Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wedding Dress – 2:48
-2. Omie Wise – 4:23
-3. Will the Circle be Unbroken? – 4:06
-4. When I Get Home – 4:55(   Читать дальше...   )Жанр: Folk Rock, JazzПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203047   (788164) от 02.02.2018
-
-Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Lake
-02. Green Field
-03. Blue Falls
-04. White Mountains(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203543   (788160) от 02.02.2018
-
-Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temple Base Chakra
-02. Temple Spleen Chakra
-03. Temple Solar Plexus Chakra
-04. Temple Heart Chakra(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

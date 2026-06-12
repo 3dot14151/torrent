@@ -1,3 +1,90 @@
+###  Публикация: 1308841   (553518) от 16.06.2019
+
+VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553518.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Charlie Charles - Calipso 3:11
+02. Takagi & Ketra - Jambo 2:37
+03. Ultimo - Rondini Al Guinzaglio 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043913C0760D83B942E24AF267433074A7193B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308838   (553499) от 16.06.2019
+
+Камоn!!! - Каблы, Камоn!!!  (2010) [FLAC|Lossless|tracks + .cue]<Euro-Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каблы, Камоn!!!
+02. Брюнетка
+03. Метросексуал
+04. Кибрлав(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5BB7FFF9D0807A120B1FC9043CFCA0C81C9AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308836   (553486) от 16.06.2019
+
+группа Рождество - Один из Вас (2011) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Давай, давай
+02. Бабье лето
+03. Игла
+04. Одноклассница(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B433BAE65F58A0917C622B92EE5D13DE0C00BBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236950   (553313) от 22.07.2018
 
 VA - 100X Zomer (2018) 5CD [MP3|320 Kbps] <Dance>
@@ -664,93 +751,6 @@ VA - Hit Explosion - Latin Workout (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3922E33F17A4BA8BE77AB62A3D67B88A66BB2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046902   (550815) от 28.08.2016
-
-Dschinghis Khan - Best Of Dschinghis Khan (2012) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan (03:04)
-02. Himalaya (04:17)
-03. Pistolero (04:18)
-04. Wir sitzen alle im selben Boot (04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F76BCFC333FFBFDC91525301E3EEF45FD204000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237703   (550626) от 25.07.2018
-
-Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Room (7:03)
-02. Just Take My Body (6:49)
-03. Higher (4:48)
-04. Thank You Baby (7:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D825AFEE797752D97F592E6C8F8BB3DF516D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237629   (550620) от 25.07.2018
-
-Madame Monsieur - Vu d'Ici (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Comme une reine (3:49)
-02 Mercy (3:59)
-03 Tourner la page (3:15)
-04 Ne me laisse pas (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889C7C5E6D25CB0B83E3DED5165AB9DA4CB85F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

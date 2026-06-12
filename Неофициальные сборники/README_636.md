@@ -1,3 +1,98 @@
+###  Публикация: 596815   (130753) от 31.12.2012
+
+VA - Близко к Диско (2012) 2CD / RG Музыка Ltd. / [MP3|320 кб/с]<italo-disco,pop,rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130753.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 (04:50:55)
+01. Sandra - (I'll Never Be) Maria Magdalena
+02. Billy Joel - A Matter Of Trust
+03. Noemi - All'infinito
+04. Gilla - Bend Me Shape Me
+05. Alphaville - Big in Japan
+06. Camomilla - Buenas Noches (Original)
+07. Roxanne - Charlene (Long Version)
+08. Moon Ray (Raggio Di Luna) – Comanchero
+09. Tango - Computerized Love (Original)(   Читать дальше...   )Жанр: italo-disco,pop,rockПродолжительность: 08:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6EDB31E4FF5CA289D1CBC2077914464E8FEB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596598   (130673) от 31.12.2012
+
+VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T1One при участии Карэн Кочарян (Karen) - Милая ( T1One Prod.)
+02. KReeD ft. Алексей Воробьев - Больше чем любовь
+03. ПИЦЦА - Париж
+04. Дима Карташов - Нашей с тобой песне название не нужно
+05. Максим Сэмпл - Танцы в минус
+06. Aleksandr Aliev aka HammAli - Любить друг друга никто не сможет запретитьЖанр: RapПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524757   (130460) от 18.01.2022
+
+VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANDEROV, SAYFO - Вера (2:54)
+02. Ann Ci - С новым годом! (3:26)
+03. KAMENSKIY - Стать первым (2:24)
+04. Mireia - Холодно (3:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5574DFB3CFACA153A0D42B5016E19CA7E7A594E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524836   (130439) от 18.01.2022
 
 VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
@@ -760,99 +855,6 @@ VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489364   (129270) от 28.04.2012
-
-VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy P - Take My Hand (Flashtunez Remix Edit)
-02. Quickdrop - Dont Go Away (Original Edit)
-03. Nero feat. Sub Focus - Promises
-04. David Guetta feat. Usher - Without You (Redtzer Remix Edit)
-05. Dancecore Deejay - S&M (Jweb Remix)
-06. Nova Scotia feat. Jenny Johnston - Kaliedoscope Skies (Club Edit)
-07. Bangbros - Stampfen (Nachgeladen) (Sunset Project Remix Edit)
-08. Kato Jimenez feat. Luis Vazquez vs. Jesus Sanchez - Wannabe (Miguel Valbuena Hands Up Club Mi
-09. Dash Berlin feat. Emma Hewitt - Disarm Yourself (Shibbybangs vs. R-Boy Bangleg Mix)
-10. Jens O. vs. Ti-Mo - Give & Take (Radio Edit)2012Жанр: Dance, ClubПродолжительность: 06:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9568692BAD42A9891BC700683FFCECA2BCE24963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525421   (129252) от 21.01.2022
-
-VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный глубоким и плотным звучанием мелодического техно, «Techno Minimal: Special Party» предлагает плейлист оригинальных, сотрясающих пространство мелодий и непосредственное вдохновение для Ваших творческих идей.001. Ran-D - Dance With The Devil
-002. Bastinov - No Regrets
-003. Refuzion - Good Time
-004. Coone Ft. Atilax - Yours Truly(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 08:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525380   (129247) от 21.01.2022
-
-VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep House, Soft Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы не любите работать в тишине, а ваши пальцы лучше всего стучат по клавишам под фоновую музыку, тогда новый 395-й релиз от Beatport именно для Вас. Такая музыка позволят Вам зарядиться энергией для работы и эффективно реализовать свои творческие замыслы.001. Bliz Nochi - Tender Touch
-002. Owen Ni - Instant Message
-003. State Of Low - Kikimora
-004. Peter Mac - Flying(   Читать дальше...   )Жанр: Chill, Deep House, Soft ElectronicПродолжительность: 10:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

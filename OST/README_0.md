@@ -1,90 +1,3 @@
-###  Публикация: 1356058   (980540) от 29.01.2020
-
-Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Darkwave>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West of Arkham (03:52)
-02. The Gardners (04:02)
-03. Contact (04:57)
-04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CA784237E2D3AEDA543F285DE71233F4FC53AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356269   (980515) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356229   (980356) от 29.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973429   (980258) от 08.01.2016
 
 Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
@@ -763,6 +676,92 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977738   (965539) от 21.01.2016
+
+Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:00)
+02. Tsunami (02:37)
+03. Aftermath (02:41)
+04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359772   (963273) от 13.02.2020
+
+Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardman Diner
+02. Death Machine Title Sequence
+03. Dante's Lair
+04. Shark Attack?(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978366   (962293) от 24.01.2016
+
+Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love (Jellybean Remix)
+02. The Power Of Love (Instrumental)
+03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

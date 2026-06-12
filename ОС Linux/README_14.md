@@ -1,29 +1,3 @@
-###  Публикация: 1415081   (380471) от 10.10.2020
-
-elementary OS 5.1.6 Hera [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380471.jpg" />
-</div>
-
-
-###  Подробнее
-
-elementary OS — дистрибутив операционной системы Linux, разрабатываемый в соответствии с концепцией минимализма интерфейсов. Целью проекта является предоставление максимально простого и удобного окружения. Elementary OS основан на Ubuntu (18.04.4 LTS) и в качестве рабочего окружения использует графическую среду Pantheon. В качестве темы оформления используется Elementary (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B57B19B1963AB21721A11574464F70FFA065F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175016   (380328) от 17.10.2017
 
 Debian GNU/Linux 9.2.1 + nonfree Stretch [i386] 4xDVD
@@ -689,6 +663,34 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C6DC8C7C76C95FA7DAD299C06198C56D6DA19FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953673   (343924) от 06.11.2015
+
+Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 23. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server и Fedora Cloud, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon и SOAS (Sugar on a Stick).
+
+Дополнительно поставляется образ для Docker и сборки для различных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E3B3E297D020304D9DF6F1FE061DEA4A6EB2DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

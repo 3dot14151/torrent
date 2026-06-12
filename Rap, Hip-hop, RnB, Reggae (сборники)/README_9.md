@@ -1,3 +1,32 @@
+###  Публикация: 1270587   (155744) от 20.12.2018
+
+VA - Dark Beats: French Rap (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albi - Sommeil
+002. Christian - Garcon Riche
+003. Dread Mactar - Kan J'rap
+004. 4Keus - Brooklyn(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 05:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2A541BA5C63F7EB7DA4595FF907037D5D6D8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270588   (155698) от 20.12.2018
 
 VA - Essentials Rap Hits Releases (2018) [MP3|320 Kbps] <Rap, Hip-Hop>

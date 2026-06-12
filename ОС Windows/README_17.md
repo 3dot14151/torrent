@@ -1,3 +1,29 @@
+###  Публикация: 916339   (590797) от 08.07.2015
+
+Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптимальный сервер для малого бизнеса — Windows Server 2012 R2 Essentials — упрощает интеграцию дополнительных облачных приложений и сервисов, таких как Microsoft Office 365 и Microsoft Azure. Windows Server 2012 R2 Essentials помогает до минимума сократить время, усилия и средства, затрачиваемые на обслуживание ИТ-инфраструктуры.Язык интерфейса: Русский, Английский и другие (Multi19)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D287B5B9E5B330B8EEE3C7D1D56F47449C4685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916656   (590254) от 09.07.2015
 
 Microsoft Windows XP Home with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
@@ -653,32 +679,6 @@ Microsoft Windows 10 Home Single Language 10.0.10240 RTM (x86-x64) WZT [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1228649622D328D6CE15D93A4D4AA2AEDE93D457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920709   (578558) от 23.07.2015
-
-Microsoft Windows 10 Enterprise 10.0.10240 RTM (x86-x64) WZT [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F17B29EE2B5B3AC3B07AD4E80BBD16EC9797E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

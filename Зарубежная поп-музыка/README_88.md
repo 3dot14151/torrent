@@ -1,3 +1,93 @@
+###  Публикация: 1759779   (103260) от 10.11.2024
+
+Мика Ньютон - 2 Альбома (2005-2006) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аномалия
+02. Арлекино
+03. В плену
+04. Пожарные(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E015DE838164B04EFD9D38F7F9C00800455EAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489224   (101841) от 28.04.2012
+
+Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Guilty
+ 02 Tell Him
+ 03 People (Single Version)
+ 04 Papa, Can You Hear Me_
+ 05 I’ve Dreamed of You (Single Versi
+ 06 The Way We Were
+ 07 No More Tears (Enough Is Enough)
+ 08 Smile
+ 09 Stranger In a Strange Land
+ 10 In the Wee Small Hours of the Mor(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9504363E507DCD57B18A5FD5EA2564ABD18ED8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 60932   (100734) от 06.10.2025
+
+(Pop) Sandra [1985-2009] [Дискография]
+
+>>След.
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 09:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25FFEF25B6C6F1004FB62E30C29E6F5412DCE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481701   (99444) от 12.04.2012
 
 Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indie-Pop>
@@ -796,110 +886,6 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466103   (81450) от 11.03.2012
-
-Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/с]<Eurodance, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry, Baby (Long Version)
-02. No Ordinary Love (Eurodisco Promo Mix)
-03. Soldier (Extra Dance Beat Version)
-04. Stay With Me (Eurodisco Long Version)
-05. One Thing (Extra Dance Beat Version)
-06. Can`t Give You Anything (Slow Down Eurodisco Mix)
-07. Gigolo (Moscow Fm Mix)
-08. The Sweet Hello The Sad Goodbye (Extra Dance Beat Version)
-09. Stay With Me (Air Piano Instrumental)2012Жанр: EurodanceПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466110   (81425) от 11.03.2012
-
-2 Unlimited - The Very Best Of 2 Unlimited (1995) [MP3|320 кб/с]<Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Do What's Good For Me
-02 No Limit
-03 Get Ready For This
-04 Twilight Zone
-05 No One
-06 Jump For Joy
-07 Tribal Dance
-08 The Magic Friend
-09 Workaholic
-10 Let The Beat Control Your Body(   Читать дальше...   )1995Жанр: EurodanceПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466076   (81385) от 11.03.2012
-
-Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give A Little Love
-02. All I Wanna Do
-03. Coco Jambo
-04. Space Gate
-05. Up'N Away
-06. Cachito Bandito
-07.Hasta Manana
-08. Where The Sun Goes Down
-09. F.B.I.
-10. I Won't Let U Down(   Читать дальше...   )2000Жанр: EurodanceПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1297954   (602658) от 25.04.2019
+
+VA - Redux Presents: The Vocal Selection Vol.1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon The Dentist & Triode – Fall For You (Extended Mix)
+02. Dreamy & Maratone & Emma Chatt – Out From Under (Eryon Stocker Remix)
+03. Zara Taylor & Sven E & A-Tronix – Forgiven (Extended Mix)
+04. Shaun Greggan & Vika – Nothing Like You (Six Senses Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552487303400BAB8867DF57BB2B2B205D6CD200F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298038   (602646) от 25.04.2019
+
+Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Jackets (6:27)
+ 02. Got To Be Love (4:42)
+ 03. Hollywood (7:14)
+ 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149063   (602587) от 09.07.2017
+
+VA - Platinum Lounge Vol.2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade & Masquenada Family - Pretender (feat Noel McCalla)
+02. The Cabildos - Collection Samba (original mix)
+03. Alkemx - Time To Lounge (original mix)
+04. Nuva - Walking Across An Old Bridge (original mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0BDF19F9FACAAD99A9DEEC0D4A15D0175EDC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148946   (602581) от 09.07.2017
+
+VA - How to Squat Lifting Bodyworkout (2017) [MP3|320 Kbps] <Big Room, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phatt – Button
+02. Pabla Tevo – Giant
+03. Nadeem Ruil – Mylan
+04. Laura Nes – High School(   Читать дальше...   )Жанр: Big Room, Deep House, Tech HouseПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6FECB79A1B8D7B268A6FB9D1013E14EEF3A790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148972   (602555) от 09.07.2017
+
+VA - July Top 30 Relax Hits (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamans – Birds
+02. Grapes Grey – The Sea
+03. Fa Nur – Spring Wave
+04. Alex Lead – Morning in Dublin(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59A75D743552FF00493B47D7804BDF48A13AFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149175   (602549) от 09.07.2017
 
 Gmo & Dense - Distances (2017) [MP3|320 Kbps] <Ambient, Balearic, Downtempo>
@@ -600,151 +745,6 @@ VA - The Remixes, Vol.04 (2019) [MP3|320 Kbps] <House, Progressive House, Minima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90F0B4161BF4A868A6B89BC954501F7AE7F2C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298544   (601759) от 28.04.2019
-
-VA - Milchbar Seaside Season 11 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Sweet Spot (Original Mix) 3:38
-02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
-03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
-04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD1335C4CD99558721988CFA1821534845A2728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298499   (601752) от 28.04.2019
-
-Cinematic - The World In Slow Motion (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep in My Eyes (Pure Affection Mix)
-02. Only You (Del Mar Mix)
-03. In My Soul (Stretch Your Mind Cut)
-04. Noises 2017 (Your Time Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AC15475B66F2D0C43597072EBE77D81E797EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298442   (601748) от 28.04.2019
-
-VA - Best Of Trance Vol 1 (2019) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony S - The Spirit (Radio Edit) 3:20
-02. Rene Ablaze - Fast Life (Radio Mix) 4:14
-03. Damian Wasse - World Wide Sunrise (Radio Mix) 4:44
-04. Javah & Xan - Vice Of Life (4 S'trings Radio Edit) 2:56(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875E257046788185B260CE21FC1B1847D294DE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298496   (601690) от 28.04.2019
-
-VA - Back To The Old Skool: Happy Hardcore / Hardcore (2019) [MP3|320 Kbps] <Happy Hardcore, Speedcore, Bouncy>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601690.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Ramos Supreme & Sunset - Crowd Control (Slipmatt Remix)
-02. DJ Seduction - Sample-Mania(   Читать дальше...   )Жанр: Happy Hardcore, Speedcore, BouncyПродолжительность: 03:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F070DAF1CD170EC26EE123334B5E0E013F3433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298816   (601631) от 29.04.2019
-
-VA - Forms of Hands 19 (2019) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Rhythmic Noise, IDM, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ICD-10 - Blister (4:26)
-02. Supersimmetria - Vacuum Energy (4:41)
-03. Katran - Mirror Reflection (4:38)
-04. 16Pad Noise Terrorist - Evilment (4:27)(   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, IDM, TechnoПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53D51908BE7F4EEA911C08F2375C172325E8D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

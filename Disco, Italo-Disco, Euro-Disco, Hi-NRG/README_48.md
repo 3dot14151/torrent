@@ -1,32 +1,3 @@
-###  Публикация: 1730816   (52990) от 17.06.2024
-
-Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelings Of Love (7:57)
-02. Lower And Faster (7:32)
-03. Your Love (6:27)
-04. Back To You (7:20)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C3A6DAE9FE6B2217BB5800257B6636A5082CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730982   (52878) от 18.06.2024
 
 VA - Pool Paradise (2024) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -745,6 +716,35 @@ VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95413F948A22CA4C4DD5F0227E4FDE337B29E3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772991   (31046) от 13.01.2025
+
+The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion
+02. Helpless
+03. Calling All Boys
+04. DangerЖанр: Electronic, Pop, Hi NRG, Synth-pop, DiscoПродолжительность: 00:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9389380DAE919B31A2C11F73B343A74DAFA3CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

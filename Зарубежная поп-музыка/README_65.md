@@ -1,3 +1,96 @@
+###  Публикация: 273466   (275846) от 21.12.2010
+
+Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Not Time For Revolution                          00:03:49
+02.Out Of The Dark                                      00:03:35
+03.Shake                                                      00:03:38
+04.Der Kommissar 2000                               00:03:45
+05.Mutter, Der Mann Mit Dem Koks Ist Da    00:03:34
+06.Hit Me                                                      00:03:42
+07.Cyberlove                                               00:03:34
+08.Egoist                                                     00:03:08
+09.Naked (Full Frontal Version)                   00:06:02
+10.Matth. XI, 15..                                        00:03:40Жанр: Pop/RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265276   (275205) от 27.11.2018
+
+VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275205.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Morandi - Kalinka
+2. Eldzhey - Rvanie jinsy
+3. Ariana Grande - Breathin(   Читать дальше...   )Жанр: Dance, Pop, R&B, Hip-HopПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265317   (275204) от 27.11.2018
+
+VA - Ministry Of Sound: Heartstrings (2018) 3CD [MP3|320 Kbps] <Pop, Folk, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275204.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Shotgun - George Ezra
+02. I Miss You - Clean Bandit feat. Julia Michaels
+03. Naked - James Arthur(   Читать дальше...   )Жанр: Pop, Folk, Soft Rock, BalladПродолжительность: 03:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265281   (275187) от 27.11.2018
 
 VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
@@ -659,93 +752,6 @@ VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2CFAF880F25C51FABAF2837316FC6E7DF7210A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190098   (268892) от 08.12.2017
-
-Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Outside Your Love (3:01)
-02. Lost In Wonderland (4:12)
-03. Don't Make It So Hard (3:20)
-04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266988   (268391) от 04.12.2018
-
-VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tw3lv, Jack Wilby - Together
-02. Lulleaux, Giang Pham - Contact
-03. Afsheen, Rebecca Ferguson - Uncrazy
-04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338854   (268192) от 17.11.2019
-
-VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alegria – Sin Pijiama (3:11)
-02. Junta & Alessandra Boni – Criminal (3:55)
-03. Cupido – Despacito (feat Sonya Queen) (3:55)
-04. Josua – Taki Taki (3:37)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 04:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

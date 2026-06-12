@@ -1,32 +1,3 @@
-###  Публикация: 198637   (810587) от 06.05.2010
-
-Mylene Farmer - Stade de France (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avant la lumière
-02. D`entre les morts
-03. Paradis inanimé
-04. L`âme-stram-gram(   Читать дальше...   )Долгожданный DVD9 концерта! Без пережиманий как есть!Жанр: PopПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199557   (796137) от 20.01.2018
 
 David Gilmour - In Concert (2002) DVD9
@@ -736,6 +707,35 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD22F455836C199387591E509915277B606F903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126265   (766170) от 17.04.2017
+
+J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия 80-минутной сессии, записанной в Лос-Анджелесе в июне 1979 года, но фактически отсутствовавшей в поле зрения меломанов вплоть до 2001 года. Отшельник Кейл – уроженец Оклахомы. В большей степени известность ему принесли песни, написанные им, но ставшие популярными, благодаря другим исполнителям ("After Midnight"и "Cocaine"Эрика Клэптона (   Читать дальше...   )1. T-Bone Shuffle
+2. Nowhere To Run
+3. Cocaine
+4. Ten Easy Lessons(   Читать дальше...   )Производство: Classic Pictures EntertainmentЖанр: Bues, RockРежиссер: Robert GarofaloАктеры: J.J. Cale,Leon Russell & BandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9102BB70154C0825801D59E8A963B62029896F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

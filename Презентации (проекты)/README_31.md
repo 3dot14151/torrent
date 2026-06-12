@@ -1,3 +1,55 @@
+###  Публикация: 1232787   (596139) от 26.06.2018
+
+Проекты - VideoHive - Around The World (Broadcast Pack) - 10295119 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Around The World - это полный пакет (начальные титры, финальные титры, нижняя треть, фоны, переходы и многое другое), для создания различных роликов для ТВ-шоу, рекламы курортов, туристических услуг.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACE74138DB5E41FE8286A18C96BAEFE6B73CDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232842   (596032) от 26.06.2018
+
+Проекты - VideoHive - Silver Awarding Pack - 20427314 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silver Awarding Pack - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F0FB0764F1875BBD9B4011C0F23213BBE09135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039503   (595708) от 01.08.2016
 
 Проекты - VideoHive - Political Events 3 - 16850924 [AEP]
@@ -636,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E950E78C15D58514DCDA7DCB572A00E06706F581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040191   (587220) от 04.08.2016
-
-Проекты - VideoHive - New Restaurant Presentation - 6066608 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Restaurant Presentation - это сборник для создания презентации меню ресторана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E44745208E3F5534A4AB2CF88623CD800123BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040307   (587209) от 04.08.2016
-
-Проекты - MotionVFX - Wheel Of Footage [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для бизнес-презентации, рекламы товаров, услуг и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAB680EC553C076D988AD79C4B76398752A7ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

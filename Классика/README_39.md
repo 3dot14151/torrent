@@ -1,32 +1,3 @@
-###  Публикация: 1419604   (335485) от 30.10.2020
-
-Royal Philharmonic Orchestra - Rock Classics 11 853 (1995) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Breath You Take (3:57)
-02. Wind of Change (5:14)
-03. We Are the Champions (4:54)
-04. Lonely Boy (4:21)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777675EED2CB58EEC2BA83F535586BAFA187AD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419572   (335351) от 30.10.2020
 
 Royal Philharmonic Orchestra - Rock Classics 11 851 (1995) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -742,6 +713,35 @@ Vanessa-Mae - Virtuoso Album (2000) [FLAC|Lossless|image + .cue] <Classical, Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29A4EC5BC5A9E68F8F9D5ECD1D8D31C81443050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420940   (321546) от 03.11.2020
+
+VA - Pop Classics Volume 1-3 (1990) 3 СD [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1
+01. Symphonic Rock Orchestra - Here, There And Anywhere (2:38)
+02. Symphonic Rock Orchestra - Hey Jude (4:32)
+03. Royal Philharmonic Orchestra - I Got Plenty O' Nuttin' (5:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE75A260926063A5C1050F352E38CC1C965BD33
 ```
 
 https://mybot314.ru/tekegram_catalog/

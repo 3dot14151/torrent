@@ -1,3 +1,130 @@
+###  Публикация: 162542   (990210) от 03.01.2010
+
+Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servant of Peace (7:13)
+02. Liberation's Door (11:01)
+03. Crimson (5:02)
+04. Mother's Blessing (8:11)
+05. Har Har Ram Das Guru Hai (8:19)
+06. Pritham Bhagaautee (7:05)
+07. Charan Sat Sat (6:54)
+08. Ardas Bhayee (9:24)
+09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609967   (990195) от 29.01.2013
+
+VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990195.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Orchester Bruno Bertone - One Moment In Time
+(4:15) 02. Orchester Bruno Bertone - Forever Young
+(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
+(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
+(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
+(2:20) 06. Orchester Tony Anderson - Swanee River
+(3:35) 07. Orchester Tony Anderson - Septemberwind
+(2:58) 08. Orchester Tony Anderson - Woman
+(3:24) 09. Orchester Tony Anderson - Josie
+(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353843   (989888) от 20.01.2020
+
+Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands [02:27]
+02. The Harmony of Nature [02:50]
+03. Moutains [01:51]
+04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353849   (989883) от 20.01.2020
+
+Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boundless [02:21]
+02. Deceiver [02:30]
+03. Such a Heroine [03:20]
+04. Kill Zone [02:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353840   (989850) от 20.01.2020
 
 Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -652,128 +779,6 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D6947401DC6314606BDA7371A23DBD642FE422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613057   (982455) от 04.02.2013
-
-Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-1. Once Upon A Time In The West - Man With The Harmonica
-2. A Fistful Of Dollars
-3. For A Few Dollars More
-4. Days Of Heaven - The Harvest
-5. The Five Man Army
-6. Once Upon A Time In The West - Jill's Theme
-7. The Men From Shiloh
-8. Guns For San Sebastian - Overture
-9. Two Mules For Sister Sara(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 56:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741925   (981913) от 04.01.2014
-
-David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lossless] <New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Free (4:10)
-02. As Time Goes By (4:36)
-03. Moon River (4:00)
-04. A Man and a Woman (4:32)(   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C920EEA9CE8E329EF940052F75B8518E73F096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971622   (981863) от 06.01.2016
-
-VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tita Merello - A media luz
-02. Tita Merello - Cuando tallan los recuerdos
-03. Tita Merello - El milagro
-04. Tita Merello - Para lucirse(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25192D518830E346FAC8D6C605BA0841B02D0260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972624   (981844) от 06.01.2016
-
-Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <House, Tribal, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest (5:33)
-02. Sweet Lullaby (3:53)
-03. Hunting (3:27)
-04. Night Bird (4:18)(   Читать дальше...   )Жанр: House, Tribal, Downtempo, AmbientПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244CFE89F4F011A1E699164FFFD5AC92B2DFD728
 ```
 
 https://mybot314.ru/tekegram_catalog/

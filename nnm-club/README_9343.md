@@ -1,154 +1,24 @@
-###  Публикация: 1534320   (695980) от 01.03.2022
+###  Публикация: 1004985   (696089) от 19.06.2016
 
-Хьелль Ола Даль | Инспектор Франк Фрёлик (Книга 2). Последний расчет (2020) [MP3, Михаил Росляков]
+Елена Звёздная | Урок шестой: Как обыграть принца Хаоса (2016) [FB2]
 
->>нет
->>нет
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_695980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Найден труп Катрине Браттеруд, бывшей проститутки и наркоманки, завершающей курс реабилитации в медицинском центре «Винтерхаген». Похоже, девушка стала жертвой насильника. Убийцей может быть кто-либо из сотрудников центра, с которыми Катрине накануне провела вечер, и один из ее бойфрендов – нынешних или бывших. Но инспектор Гунарстранна не склонен доверять версиям, (   Читать дальше...   )Жанр: Зарубежные детективыПродолжительность: 14:38:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534426   (695979) от 01.03.2022
-
-4K YouTube to MP3 4.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695979.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 28.02.2022Разработчик: © 2022 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D915A09E8E1CCE4CE1D0BDFDEBD47B064629ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534385   (695978) от 01.03.2022
-
-Sketch 84 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 11.0 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10449A6FBFBD413A59FC38699300126481EA222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403060   (695957) от 17.08.2020
-
-Уверенность / Confidence (1933) DVDRip [H.264] [hand made colored] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные на ферме Кролика Освальда очень довольны своей работой. В частности, куры с удовольствием занимаются производством яиц. Правда, курица немного тревожится, когда ее яйцо слишком мало или когда она ничего не может отложить. Но в целом времена хорошие. Ситуация меняется, когда призрак по имени Депрессия поднимается со свалки и путешествует по миру, сея страх (   Читать дальше...   )Производство: США, Walter Lantz ProductionsЖанр: Рисованная анимация, Музыкальный, КороткометражныйРежиссер: Уильям НоланПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06DA9A83AAADB86CB9B09A919BB6B90596A492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402587   (695956) от 17.08.2020
-
-Журнал | Autopista [ES] №3148 (август 2020) [PDF] [Es]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autopista является журналом декана автомобильного сектора в Испании и справочником для экспертов и читателей в целом. На его страницах вы найдете общую информацию об отрасли, новости о продуктах, тщательный анализ моделей с помощью тестов и сравнений, а также обо всем, что происходило каждую неделю в основных спортивных событиях автомобиля. Кроме того, каждую неделю (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FB11C61F9FB6B3FFE852115D90F0D5D2F31E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403036   (695955) от 17.08.2020
-
-Кристофер Паолини | Предания Алагейзии. Эрагон. Вилка, ведьма и дракон. Книга 1. (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристофер Паолини «Эрагон. Вилка, ведьма и дракон» – долгожданная новинка, возглавившая все рейтинги продаж в Великобритании.
+Шестой роман цикла «Академия проклятий».
 
-Прошел год с тех пор, как Эрагон покинул Алагейзию. Он нашел идеальное место для строительства нового дома Всадников и драконов, и ежедневно ему приходится решать множество задач. Впрочем, несмотря на разногласия, все и упрямые гномы, и воинственные (   Читать дальше...   )Жанр: Детская фантастика/Зарубежное фэнтези/Фэнтези про драконовПродолжительность: 05:06:26
+Никогда не соглашайтесь работать в Службе Безопасности Империи! Никогда! А если вашему темному лорду все же удастся соблазнить вас этой идеей, будьте готовы к тому, что придется ниточка за ниточкой распутывать шестой по счету заговор против императора, разыгрывать незабываемое представление в стенах Императорского банка с (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3412D457ECA3BC6B24B02DC5DEE4F4CEE23162B
+magnet:?xt=urn:btih:07B5F18AE56DE03008B173E84D03A80F8DA0B779
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403116   (695954) от 17.08.2020
+###  Публикация: 1533998   (696088) от 01.03.2022
 
-Веселая старая душа / The Merry Old Soul (1933) DVDRip [H.264] [hand made colored] [EN]
+VA - Maretimo Records - Masterpieces, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Освальд у дантиста. Выдернутый зуб крепко сидит. В этот момент радио сообщает: «Старый король Коул любит блюз», и Освальд мчится на своей машине. Он собирает коллекцию комиков: Чарльз Чаплин, Стэн Лорел, Оливер Харди и т.д.  Лорел и Харди принесли большую кучу пирогов, и между ними разгорается драка. Шут, который ревновал Освальда, похищает его во время битвы и затаскивает (   Читать дальше...   )Производство: США, Universal Pictures, Walter Lantz ProductionsЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Уолтер Лэнц, Уильям НоланПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:08:01
+01. DJ Maretimo - Cafe Internacional (Jumairah Skyscrapers Mix) (6:56)
+02. Cinematic - Typhoon (Phunky Waves Mix) (6:24)
+03. Stereo Gringos - Arte Moderna (Lounge Doctor Mix) (4:53)
+04. In Credo - Siesta del Sol (Laid Back Summer Cut) (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 06:13:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5228472EB0C35973211292B63E343F6AC3C39AF
+magnet:?xt=urn:btih:F88297A65ED7029F8091D1531073E9AC5D9B947A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,21 +55,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402888   (695953) от 17.08.2020
+###  Публикация: 1534057   (696087) от 01.03.2022
 
-Анна Романова | Игра по моим правилам (2020) [EPUB]
+VA - Deep & Joy, Vol. 1 (2022) [AAC|~325 Kbps] <House>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_695953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Меня зовут Джессика Уайт, я личный телохранитель. Обычно меня нанимают для незаметной охраны, так как во мне не видят угрозы. Мой новый объект - молодая, глупая девушка по имени Эшли. И можно подумать, что нет ничего сложного в том, чтобы защищать третьесортную актрису второго плана, у которой брат и он же мой новый босс, невероятно горячий мужчина с необузданным (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
+01. Jones, BRock, Nicole Cross - Losing My Religion (Jay Frog Remix) (3:15)
+02. Kosmoss - Bright Lights (3:22)
+03. Luis Hermandez - Trust In Me (3:21)
+04. Flauschig - Forgive Me (Point85 & Maex Remix) (2:40)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D700CB40419FA1250A43072F5D08B7D67A2637A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533999   (696086) от 01.03.2022
+
+VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Hayman - So Beautiful (Skyscraper Cut) (5:45)
+02. Dreamscape - Nautica (Ambient Mix) (4:09)
+03. Island Sun - Calm Sea (Full Moon Mix) (5:05)
+04. Richard van Arp - Artico purcente (Aqua Wellness Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FFDC826DCA5DA33CBAE3845B30873614967693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534336   (696085) от 01.03.2022
+
+VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
+02. Dave de Tommaso, Davide Aru, Dacosta - Timeless (3:33)
+03. Digby Jones, Airglo - Cielo (Night Stars at Cafe Del Mar Mix) (3:49)
+04. Gary B, Ken Fan - Volar (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534227   (696084) от 01.03.2022
+
+VA - Sensual Lounge Musique Vol.2 (Selected By Simon Le Grec) (2018) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grec - Forbidden Love 3 (Radio Mix) (4:25)
+02. Michael e - If It Takes Forever (4:49)
+03. But & Memo - Black Betty (Alexander Metzger Chillout Mix) (6:30)
+04. Ingo Herrmann - Phase One (2:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:42
 
 ## Скачать торент
 ```bash
@@ -208,25 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403106   (695952) от 17.08.2020
+###  Публикация: 1534334   (696083) от 01.03.2022
 
-Линн Грэхем | Отложенное счастье (2020) [MP3]
+VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill House>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мерри Армстронг забеременела, проведя ночь с начальником – красивым и избалованным греческим миллиардером Ангелом Валтиносом. Грек щедро заплатил, чтобы она держалась от него подальше и хранила в тайне имя отца ребенка. Но шестнадцать месяцев спустя он снова ворвался в жизнь Мерри с ультиматумом. Она должна выбрать между замужеством без любви и заранее проигранной (   Читать дальше...   )Жанр: Зарубежные любовные романыПродолжительность: 03:52:58
+01. Magmatunes - Sunset Lovers (Original MIx) (5:23)
+02. Martin Hiska - Sundays (3:49)
+03. Chillson, Marc Hartman - Different World (4:46)
+04. Legacy202 - 100 Galaxies (Original Mix) (6:47)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 02:12:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B41362943A58A98ACBC88F05DC79C428D2CEE8D9
+magnet:?xt=urn:btih:835FF99D3DCF70FFC05CABF67B5A7422890CF3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,50 +200,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403099   (695951) от 17.08.2020
+###  Публикация: 1534404   (696082) от 01.03.2022
 
-Dreamworld - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamworld - это проект братьев Клауса (вокал, электронные барабаны, конгас, тарелки, гонг, синтезатор и гитара) и Рольфа Фихтера (вокал, синтезатор, меллотрон, вибрафон, флейта, электрогитара, акустическая гитара и бас), - двух мультиинструменталистов из Германии, которые играют синтезированную музыку в последовательном и просторном прогрессивном рок-ключе. Второй (   Читать дальше...   )01. Lady Sunrise (3:43)
-02. Endless Flight (6:38)
-03. Stay, Don't Go Back (4:59)
-04. No More War Again (3:32)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54078D27A1A6739DAED685B60FC2C40A71AB311E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403006   (695950) от 17.08.2020
-
-Драматург Микки / Mickey's Mellerdrammer (1933) DVDRip [H.264] [hand made colored] [EN]
+VA - Sub-Division Recordings - Partitions, Vol. 1 (2021) [AAC|~322 Kbps] <Drum & Bass>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_695950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Микки Маус и его друзья поставили театральную драму "Хижина дяди Тома".Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Уилфред ДжексонПеревод: отсутствуетСубтитры: вшитые отключаемые на английскомПродолжительность: 00:08:18
+01. Güzi, Woolf - Balance (3:43)
+02. ZONER - By Your Side (4:33)
+03. G-H, STYTCHD - Certi (4:26)
+04. Güzi - Continuum (4:29)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:58:57
 
 ## Скачать торент
 ```bash
@@ -289,28 +229,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403004   (695949) от 17.08.2020
+###  Публикация: 1534211   (696081) от 01.03.2022
 
-David Guetta & MORTEN - Tomorrowland One World Radio Future Friday 2020-08-07 [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
+The Soul Crusaders - The Future (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future (Original Mix) (5:31)
+02. Don't Look Back (Original Mix) (4:51)
+03. What It Feels Like (Original Mix) (4:06)
+04. Open Sea (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AA264EF7810C9110160AEDABF6DCFDB9B1DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534060   (696080) от 01.03.2022
+
+VA - Deep & Joy, Vol. 3 (2022) [AAC|~315 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kosmoss - You (3:04)
+02. Darles Flow - Northern Lights (5:40)
+03. Melvin Reese - Give Me Void (5:46)
+04. Mo'jardo - I Am Fashion (4:43)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8002E4F5D0F342C7896AE27D543F85E89FA343E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534372   (696079) от 01.03.2022
+
+VA - Infinite Chillout (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schlichting - Rethinking (6:00)
+02. Kusuma Orchestra - One for the Books (5:57)
+03. Rheingold Ensemble - Passing Clouds (5:58)
+04. Koenig Eltz - Alluded (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57DEF48C8A8459D8054D943C45553443E884F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534004   (696078) от 01.03.2022
+
+VA - Chillout Essentials 2022 (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Duty - Little Moments of Love (6:22)
+02. Proxy Brides - Echoes of Childhood (5:30)
+03. Silbermaus - Feverish Vibe (5:33)
+04. Ackeret - Unofficial Meeting (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF82DAA83B8FF9F6CF92AD06B192EA0B60DEC159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534225   (696077) от 01.03.2022
+
+VA - Sensual Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grec - About Us (7:17)
+02. Project Blue Sun - Shining Star (7:37)
+03. Menzi - Summer Is Coming (4:26)
+04. Simon Le Grec - Sophie's Heartache (Lounge Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534006   (696076) от 01.03.2022
+
+VA - Vanlife Chill, Vol. 9 (2022) [AAC|~323 Kbps] <Lounge, Chill Out>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass - Tsuki (Original Mix) (4:38)
+02. Tapelapse - Ocean Sunset Breeze (3:57)
+03. VAN - I Remember (Original Mix) (9:43)
+04. Bodean - Innocent Morning (4:50)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:36:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533993   (696075) от 01.03.2022
+
+The Maldive Lovers - Sweet & Lovely (Sunday Chill Out Vibes) (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Luck (2:39)
+02. Soothing Target (2:07)
+03. Airy Sleep (2:05)
+04. True Moments (1:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E61C96C3F6F21F84A6BACD18DF627BE8A4E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534380   (696074) от 01.03.2022
+
+Darkroom: Photo & Video Editor 5.8.5 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Guetta & MORTEN ft. Eyelar - Kill Me Slow
-02. David Guetta & MORTEN - Detroit 3 AM
-03. David Guetta & MORTEN - Nothing
-04. John Dahlbäck vs. Toby Green - Chased vs. Work It (MORTEN Mashup)(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 00:57:15
+Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53623B4C7BBC9E8FA38D4F31C1BA11498B6C94E4
+magnet:?xt=urn:btih:B1DFB6BBD45528FB2F36B1B790E86C8853753A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,83 +458,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403090   (695948) от 17.08.2020
+###  Публикация: 1534418   (696073) от 01.03.2022
 
-VA - Sue McLaren - Unbroken-The Best Of (2020) [MP3|320 Kbps] <Trance, VocalTrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sue McLaren - Unbroken (Original Mix)
-02. Chris Metcalfe & Sue McLaren - Stardust (Radio Edit)
-03. Kaimo K & Sue McLaren - Call It What It Is (Original Mix)
-04. Sue McLaren & Suzanne Chesterton pres. Siskin - Beautiful Lie (Original Mix)(   Читать дальше...   )Жанр: Trance, VocalTranceПродолжительность: 04:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072ABC640098EC710103CE2FBEB18380FD3BD355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403000   (695947) от 17.08.2020
-
-V.A. - Bar Lounge Costes Vol.3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Balearic, Downtempo>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_695947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Starry Night (Original Mix)
-02. Eivissarts - The Unknown (Original MIx)
-03. Chris le Blanc, Florito - Time to Go (Revisited Remix)
-04. Chillson, Marc Hartman - Like the River Flows(   Читать дальше...   )Жанр: Lounge, Balearic, DowntempoПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402878   (695946) от 17.08.2020
-
-Кейт Аткинсон | Джексон Броуди (Книга 3). Ждать ли добрых вестей (2020) [MP3, Владимир Голицын]
+Хьелль Ола Даль | Инспектор Франк Фрёлик (Книга 3). Человек в витрине (2020) [MP3, Лора Луганская]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В романе «Ждать ли добрых вестей?» действие происходит не в университетском Кембридже и не среди толп туристов, съехавшихся на Эдинбургский фестиваль, хотя шотландская столица вновь обеспечивает живописный фон происходящим событиям. А толчком к ним послужило кошмарное преступление тридцатилетней давности, всколыхнувшее тихий Девоншир и всю Англию; и вот осужденный (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыПродолжительность: 11:09:03
+Убит пожилой владелец антикварного магазина Рейдар Фольке-Есперсен. Обнаженный труп выставлен на всеобщее обозрение в витрине магазина. На лбу и груди убитого нарисованы буквы, цифры и непонятные знаки.
+Подозреваемых немало: молодая вдова; сын, который терпеть не может свою мачеху; братья, которым не терпится продать магазин, и неизвестная красавица, фотографию которой (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыПродолжительность: 12:00:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1764072952D7F06377D94F72FFA394D846A4D684
+magnet:?xt=urn:btih:876DE3A6840E3AF40BC76099267C21465804E0B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402592   (695945) от 17.08.2020
+###  Публикация: 1534297   (696072) от 01.03.2022
 
-Журнал | Fast Car [UK] №9 (сентябрь 2020) [PDF] [En]
+Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 
->>Автомобили
->>Автомобильные журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fast Car - британский автомобильный журнал, освещающий рынок модифицированных автомобилей и автомобильную культуру. Это был первый британский журнал, посвященный этому жанру. Он принадлежит Kelsey Media, базирующейся в Westerham, Kent. Журнал выходит 13 раз в год.Жанр: Автомобильный журналФормат: PDF
+01. Magma (6:34)
+02. O Fogo (4:47)
+03. The Light (6:24)
+04. Half Liquid (3:48)(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C09ECB576C9F243A7E0B2F43A191DD02FA2902D4
+magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402991   (695944) от 17.08.2020
+###  Публикация: 1534055   (696071) от 01.03.2022
 
-Neil Young - Homegrown (2020) [FLAC|Lossless|tracks + .cue] <Rock>
+The Soul Crusaders - The Best Of… The City (2018) [AAC|~336 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Separate Ways (03:33)
-02. Try (02:49)
-03. Mexico (01:41)
-04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:22
+01. Satelites (5:53)
+02. Stargazer (4:56)
+03. My Kind of Love (5:03)
+04. Standing in Your Shadow (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F02FD93486CDD59967AEC1489C7EE655BEBDF98
+magnet:?xt=urn:btih:DCB824E97430C2589BEF722C9ACDB093A2B63F80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +543,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403079   (695943) от 17.08.2020
+###  Публикация: 1534406   (696070) от 01.03.2022
 
-RegCool 1.126 + Portable [Multi/Ru]
+VA - Sub-Division Recordings - Partitions, Vol. 2 (2022) [AAC|~330 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beskar - Star Destroyer (4:08)
+02. Oli Lewis - Stock Photo (5:13)
+03. Ruckus - System Error (4:54)
+04. Beskar - Thunder Wasp (4:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DD59D0BB7C944804ECE4BFBC42FF6228A57D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534393   (696069) от 01.03.2022
+
+Duplicate Finder and Remover 1.9 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Удалите «повторяющиеся» файлы и освободите место на вашем Mac с помощью Duplicate Finder и Remover. Приложение предназначено для легкого поиска дубликатов файлов, включая фотографии, видео, песни и другие документы. Просто перетащите папки в приложение, чтобы начать процесс.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73EC2175BEB7B91574C7236FF22EB333D8E50118
+magnet:?xt=urn:btih:427BB207A1C71481CF33CDC286788410CD363C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,28 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403078   (695942) от 17.08.2020
+###  Публикация: 332898   (696059) от 06.05.2011
 
-VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+S:cage - 2 Albums (2004-2006) [MP3|320 kbps]<Rhythmic Noise, Industrial, Ambient>
 
->>Electronic
->>Trance (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
-02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
-03. Gary Maguire - Secrets (Original Mix) (7:29)
-04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
+01. Madness (13:37)
+02. Vapour (6:04)
+ 03. Collapsing Breath (6:09)
+ 04. Gone (Undone) (5:36)(   Читать дальше...   )Жанр: Rhythmic Noise, Industrial, Ambient |Продолжительность: 02:10:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,109 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403084   (695941) от 17.08.2020
+###  Публикация: 1403029   (696048) от 17.08.2020
 
-DJ Samsara & DJ Furvus - A Conversation Between Two Trees (2012) Critical Beats [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sun
-01. Rabitza - Acid Mebius (08:16)
- 02. Lauge & Baba Gnohm - Nostalgi (08:40)
- 03. Astropilot & Panda's Dream - Sunbeam Flowers (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient, Downtempo, Ambient, Psy-Trance •Продолжительность: 02:16:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A9D71CC1D70F584DCFFB345C65623097F9FA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402962   (695940) от 17.08.2020
-
-Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Австрии / MotoGP 2020. Austrian GP (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695940.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB98E199A5B89EF0954184A36116C0DC98372BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403049   (695939) от 17.08.2020
-
-Детское Королевство - Песенки про зоопарк. Часть 1 (2020) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ужин в зоопарке
-02. Танец крокодила
-03. Хорёк Роко
-04. Утёнок(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8E9FF1179639E8ECAAB6FDE16591A13DC8F47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403031   (695938) от 17.08.2020
-
-Андрей Белянин, Игорь Касилов | Гаврюша и Красивые. Книга 1. (2015) [MP3]
+Максим Глазунов | Снеговик (2020) [MP3]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все началось с того, что первоклассник Егорка обнаружил у себя в квартире домового. Обычного, невысокого, с рыжей бородой, в лаптях и рубашке навыпуск. Правда, рассказывать сказки на ночь его новый друг не умел. Зато отлично втягивал в саму сказку и Егора, и его родителей, а потом и сама сказка решила заявиться в реальный мир. Почему нет? Тем более что получением (   Читать дальше...   )Жанр: Детская литература/Фантастика/Юмористическое фэнтезиПродолжительность: 08:50:57
+Снеговик» — волшебная новогодняя история из сборника повестей и рассказов «Рыцарь туманного Авалона»: сборник повестей и рассказов; — М. : Максим В. Глазунов, 2019; ISBN 978-0-463-42409-4, победитель конкурса святочного рассказа.Жанр: Детская литература/РассказПродолжительность: 00:17:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B891D36CAA41BCE17DE177136F66985D84DFA7B
+magnet:?xt=urn:btih:0E53C645CA6EB2C7BF82959B9A146F5EED1706A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,28 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288369   (695937) от 11.03.2019
+###  Публикация: 1403086   (696047) от 17.08.2020
 
-KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
+Елена Нестерина | Улица кошмаров. Магазин «Белые тапочки». (2019) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Losen (5:19)
-02. Charinskiy (5:48)
-03. Asfalt (5:47)
-04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
+В старом доме у старого кладбища жил со своими родителями мальчик по имени Анджей. Одноклассники его не любили и дразнили то могильным червяком, то кладбищенским жителем, но чаще всего продавцом белых тапочек… А все потому, что родители его торговали похоронными принадлежностями и магазин их, находящийся в том же домике у кладбища, уже давно прозвали «БЕЛЫЕ ТАПОЧКИ»…Жанр: Детский детектив/Приключения/ФантастикаПродолжительность: 02:39:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
+magnet:?xt=urn:btih:B9D211D6AAC53E0217536B86FEEE7FA6C6B584E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,28 +679,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287847   (695936) от 11.03.2019
+###  Публикация: 1403089   (696046) от 17.08.2020
 
-Pathology - The Time Of Great Purification (2012) [WavPack|Lossless|image + .cue] <Brutal Death Metal>
+Елена Нестерина | Улица кошмаров. Домик у кладбища. (2019) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Imprisoned By Fear (2:14)
-02 - Tyrannical Decay (2:48)
-03 - Corporate Harvest (2:17)
-04 - Torment In Salvation (2:26)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30:09
+Такой жизни, как у Анджея, не было больше ни у кого из ребят. То ему приходилось часами сортировать белые тапочки, а то биться смертным боем с толпами настоящих вампиров, штурмующих его дом. И в этом не было для Анджея ничего удивительного – ведь жил он у самого кладбища, там же, где располагался магазин «Белые тапочки», торгующий похоронными принадлежностями. А (   Читать дальше...   )Жанр: Детский детектив/Приключения/ФантастикаПродолжительность: 02:59:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D42C1BE9F41F2258CC6570C31A4864B5EC2DBAB5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,28 +705,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288437   (695935) от 11.03.2019
+###  Публикация: 1403024   (696045) от 17.08.2020
 
-Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
+Фред Адра | Уроки фантазии. Алекс и снежные тени. (2004) [FB2, EPUB, MOBI]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Georgia Brown [6:42]
-02. Onsaya Joy [15:36]
-03. Green Dolphin Street [7:23]
-04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
+Внезапно, непредсказуемо снежная буря обрушилась на Древнюю Столицу. Снежные тени — зловещие посланцы чужого мира — несут разрушение и смерть. Нарушились законы, призванные держать мир в установленных границах. А значит, сейчас возможно все!
+Удастся ли трем подросткам — Алексу и сестрам-близнецам, — оказавшимся в доме, заваленном сугробами, разгадать тайну колдовства, (   Читать дальше...   )Жанр: Детская литература/Проза/ФантастикаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
+magnet:?xt=urn:btih:097D2DDAC2E2BF9022B11F09F32BC7CBAEC005B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

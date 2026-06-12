@@ -1,3 +1,58 @@
+###  Публикация: 1002868   (846664) от 01.04.2016
+
+Проекты - VideoHive - Library or Bookstore Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Library or Bookstore Presentation - это простая, энергичная презентация библиотеки или книжного магазина.
+Но каждый сможет найти и другое применение этому проекту.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EA9F3C8246D984F9BE3BA12D2E2B01E6B95517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002511   (846583) от 01.04.2016
+
+Проекты - VideoHive - Industrial Impact [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Предназначен для редактирования в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0388DBEE829F06FF148A6068B7A2F941AB0C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111658   (846401) от 06.03.2017
 
 Проекты - VideoHive - Diamond Flow - 5577271 [AEP]
@@ -631,59 +686,6 @@ Vintage Studio - Making Of - этот проект состоит из неск�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA3FD3D9F4D9F2E08EF8D11953AA9DB6C02E6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004551   (836038) от 07.04.2016
-
-Проекты - MotionVFX - Arrow Slide [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arrow Slide - проект, который подойдет для корпоративного видео, рекламы, путешествий.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190BACBDF140131D14342C15C36AFAEDE90DDE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004461   (836034) от 07.04.2016
-
-Проекты - VideoHive - Plexus Inspire Corporate Tech Intro [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plexus Inspire Corporate Tech Intro - Сплетение вдохновляющих корпоративных технологий. Это быстрый и эффективный шаблон интро, и хороший выбор для высокотехнологичных заставок, игровых видео, информационно-технических программ, научных или исследовательской мероприятий, хакерских сюжетов и видео по программированию.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398C220952EFFD7B71F64CB2D0B2F78A3A190829
 ```
 
 https://mybot314.ru/tekegram_catalog/

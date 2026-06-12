@@ -1,3 +1,108 @@
+###  Публикация: 475811   (85494) от 31.03.2012
+
+VA - Лучший Русский Шансон (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Воровайки - Душа Любви (4:41)
+2. Бумер - Соседка (3:36)
+3. Анатолий Полотно и Федя Карманов - Не жалей! (3:40)
+4. Алые Зори - Горчит Калина (2:33)
+5. Андрей Калинин - Ауди ТТ (2:38)
+6. Катерина Голицына - До свиданья (3:31)
+7. Владимир Гольдфайн - Ты Писала... (3:16)
+8. Ванинский порт - Стоп-авто-стоп (4:26)
+9. Анатолий Могилевский - Погадай (3:20)
+10. Король Лир - Просто Любимая (3:55)2012Жанр: ШансонПродолжительность: 06:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7AFE50769400CCA34BF24E1499B758F4CFA741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475817   (85475) от 31.03.2012
+
+VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85475.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тимати feat. Григорий Лепс - Реквием по любви
+002 Лигалайз - Время собирать камни
+003 Та сторона - Другой рай
+004 Октябрь - Скажи мне, милая
+005 Гига и Sokolovsky - Мама
+006 Руставели - Карт-бланш
+007 Noize MC - Вселенная Бесконечна
+008 Хамиль (Каста) feat. Космокот - Двигай вперед
+009 DJ Groove feat. Гарик DMCB - Я не знаю кто мы
+010 Витя Матанга - Как она меня выносит2012Жанр: РэпПродолжительность: 06:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD06AB81B125D0E5C33FC4C9B1514CCEA4B37BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475788   (85459) от 31.03.2012
+
+VA - TOP 100 Зайцев.нет (29.03.2012) (2012) [MP3|126-320 kbps]<Pop|Dance|Club|Rap|Chanson|Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85459.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 michel telo - ai se eu te pego
+001 aura dione feat. rock mafia - friends
+002 biffguyz - ya tebya bum bum bum
+003 polina gagarina - spektakl okonchen
+004 vintazh i dj smash - moskva
+005 shima shyma - okean
+006 aslan feat misty - znayu
+007 viagra - allo mam
+008 david guetta - titanium feat. sia
+009 bumboks - bez tebya ne proshche bez tebya ne legche(   Читать дальше...   )2012Жанр: Pop|Dance|Club|Rap|Chanson|RockПродолжительность: 05:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F1D86D4B113E0F6EFDBEC7487F33F258E09D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475275   (85289) от 30.03.2012
 
 VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
@@ -791,111 +896,6 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08559440F9693403C162716564C5707062A7A0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471808   (83652) от 22.03.2012
-
-VA - Лучшие Из Лучших Зарубежный №19 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83652.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Adele - Set Fire To The Rain
-002 Pitbull feat. Lil Jon - Shake Them Dice And Roll
-003 Lady GaGa - Americano
-004 Adam Lambert - For Your Entertainment
-005 Mishelle & Randi - Only You
-006 Rihanna - Birthday Cake
-007 Julian Perretta - Stitch Me Up
-008 Chris Parker - Symphony
-009 Sean Paul feat. Ester Dean - How Deep Is Your Love
-010 Like Chocolate feat. Alex Mica - Maria Maria (Radio Edit)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAFF6DC7BB093825A33AF74655BF2B8786355F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471453   (83633) от 22.03.2012
-
-VA - Лучший Русский Хит (2012) [MP3|128-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83633.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Би-2 - Девушки
-002. Roma Kenga - Ты Будешь Счастливой (Mexx Beat Remix)
-003. Aruba Ice Mike Prado Feat. Letichev Sky - Счастливыми Стать (Extended Mix)
-004. Mmdance - Ломай Себя Полностью
-005. Mainstream One - Я С Тобой
-006. Лавика - В Городе Весна (Dj Melloffon Remix)
-007. Группа Маша Пирожкова - Корпоратив (Dj Miv Full Remix)
-008. Группа Элемент - Она Такая
-009. Dj Meg, Тимати, Сергей Лазарев - Moscow To California
-010. Vlad Bostan - Задыхаюсь(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A0D9A7D7978FF954D264EB857D6B0E13876ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471607   (83629) от 22.03.2012
-
-VA - XXXL Популярный 50/50 Весна (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Света - Не новая игра
-02. Miss Nine & Baggi Begovic - Hit The Road
-03. Иван Дорн - Синими, Желтыми, Красными
-04. Madonna feat. Nicki Minaj & M.I.A. - Give Me All Your Luvin'
-05. Aslan feat. Misty - Знаю, знаю
-06. Frisco Disco feat. Ski - One Way Ticket
-07. Юлия Волкова - Сдвину Мир
-08. Train - Drive By
-09. Елка - Около тебя (Andry Makarov Remix)
-10. The Disco Boys - Around The World (Radio Mix)2012Жанр: PopПродолжительность: 05:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36070FD7B78819427CE0EC144F9D60D50348A57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1668723   (173317) от 13.10.2023
+
+Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees (рус. Би Джиз) - британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )Список альбомов:
+1967 - The Bee Gees 1st (RSO, MW 2069, Japan, Reissue 1973)
+1968 - Horizontal (ATCO Records - SD 33-233, US)
+1968 - Idea (Polydor - 583036, UK)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 14:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0DBF2D847A8372BCD2A1F3324FB958CFEB704C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670975   (171385) от 24.10.2023
+
+VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Do - Eins, Zwei, Polizei
+02. The B.C. 52's - The Flintstones
+03. Masterboy - Feel The Heat Of The Night
+04. Fun Factory - Take Your Chance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0545688C1C68C455B929E8A93E02416A7AFDBB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671004   (171205) от 25.10.2023
+
+David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 Kbps] <Electronic, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David A. Stewart feat. Candy Dulfer - Lily Was Here
+02. David A. Stewart feat. Candy Dulfer - Lily Was Here (Space Centre Medical Unit Hum)
+03. David A. Stewart feat. Candy Dulfer - Lily Robs The BankЖанр: Electronic, JazzПродолжительность: 00:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671964   (170932) от 26.10.2023
 
 VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
@@ -658,93 +744,6 @@ VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598811   (161799) от 20.12.2022
-
-Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You
-02. When You Danced With Me
-03. Little Things
-04. Don't Shut Me Down(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FEA4AF60D838C3D36136B3BD525A212611C9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674224   (161384) от 05.11.2023
-
-VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Boys - Don't You Know
-02. Thing! Big - Wouldn't It Be Good
-03. 2 Unlimited - Let The Beat Control Your Body
-04. D.J. Bobo - Everybody(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4A12462DA36C7F70156591787D5C1461C710FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674427   (161377) от 05.11.2023
-
-VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double You - Part-Time Lover
-02. Corona - The Rhythm Of The Night
-03. Zooo - You And I
-04. Supertrack And D.J. Company - Michelle(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5158D6D1CD66B0733A5D21CFDDB530562D82B95E
 ```
 
 https://mybot314.ru/tekegram_catalog/

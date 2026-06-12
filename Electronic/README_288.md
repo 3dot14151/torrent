@@ -1,3 +1,61 @@
+###  Публикация: 1241117   (522204) от 15.08.2018
+
+VA - 2 Years Suanda Base (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirkie Coetzee - Aurora (Extended Mix)
+02. Ahmed Helmy - Quasar (Extended Mix)
+03. Mantra - Take Me Higher (Extended Club Mix)
+04. HamzeH - Orbit (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622618FB6B38DF537453E58212088AEA4F2A3675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241110   (522200) от 15.08.2018
+
+VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Loops - No Wounds (Original Mix)
+02. Lorenzo al Dino - So Nice (Erich Von Kollar Extended Remix)
+03. LVNT feat. Inga Maria - Temporary (Original Mix)
+04. Fonzerelli - My Digital Heartbeat (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550501FAD05F8A08F6273E2D6B0BEA473B977B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241116   (522199) от 15.08.2018
 
 VA - Vocal Anthems Ibiza (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -223,6 +281,35 @@ VA - Markus Schulz-Global DJ Broadcast-Top 20 July 2019 [MP3|320 Kbps] <Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BC410F3A90D8D636CF36D3EE957A5717732FD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314145   (521328) от 12.07.2019
+
+VA - Lounge Music 2019: Chill Music (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_521328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topsy Crettz – Never Give Up (3:24)
+02. Ferjo De Gery & M.a.o.s. Beats – Fantasy (4:56)
+03. Robert Cristian – Tell Me Why (3:04)
+04. Melih Aydogan – Making Love (4:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B208E1E1463B14A551F1EB3EECC1C5FE43589A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,93 +745,6 @@ VA - Pop Bangers, Vol. 2 (2019) [MP3|320 Kbps] <Deep House, Tech House, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFACC620FA51C3C8016C244EE6CCE715A23D2F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241502   (519380) от 18.08.2018
-
-VA - Progression Vol.7 (Mixed By Jon Bourne) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Szabo - Budapest (Original Mix)
-02. Danny Chen feat. Nicole Rodriguez - Everything We Lost (Monoverse Remix)
-03. Anden State - Flame (Original Mix)
-04. Westlake (US) - Bengala (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF2C7C6B74DC2AD9873A5E8DF31FA1B7E075C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182386   (519364) от 14.07.2019
-
-Rena Jones - Discography 4 Releases (2005-2013) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (04:35)
- 02. Shadows (05:06)
- 03. Wishes (04:14)
- 04. Returning To The Source (05:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical/IDM/DowntempoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D2A1A44D3193912F8AAF26E1F3C7B8B732ADD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241635   (519299) от 18.08.2018
-
-VA - Trance In Space 6 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bvibes - Supersonic (Radio Edit)
-02. Brent Rix - Hyper Drive (Radio Edit)
-03. Six Senses & Claire Willis - Won't Let You Down (Radio Edit)
-04. Riialto & F.G. Noise - Edgy (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D405EF9759A48812D3DA28E1252AF710CB8803D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

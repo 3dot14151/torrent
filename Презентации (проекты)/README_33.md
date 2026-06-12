@@ -1,3 +1,55 @@
+###  Публикация: 1042708   (577831) от 13.08.2016
+
+Проекты - VideoHive - Broadcast Design - Primetime News Open - 152968 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания новостного канала или выпуска новостей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB49D879B33848849BFB8844BB7517CBB0EA2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233827   (577641) от 01.07.2018
+
+Проекты - VideoHive - Cyberpunk Billboard - 21494589 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk Billboard - это попытка сделать гибкий и универсальный проект с оригинальной идеей, применить рекламные щиты в мире киберпанка.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CD14C5B90F591377186FBDBD0EC687B9CFB4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150356   (577412) от 16.07.2017
 
 Проекты - VideoHive - Business Hi-Tech Screens - 20020469 [AEP]
@@ -630,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CEB8BBABEE6E75114B983826D4C9CC925E46ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234595   (568890) от 06.07.2018
-
-Проекты - VideoHive - Breaking Glitch Presentation Slideshow - 18125628 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте слайд-шоу с новостными вставками и эффектами цифрового сбоя (Glitch).
-Шаблон идеально подходит для: вступления к зомби-видео или апокалипсиса, военным темам, корпоративному видео или веб-презентациям.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98C52DB2FBD4E2E7C51DC1194D488F5C8D779BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234471   (568889) от 06.07.2018
-
-Проекты - VideoHive - Square News Package - 18834205 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Square News Package - это пакет для новостного вещания и подкастинга, с вступительными и он-лайн эфирными графическими элементами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56630AD37E789A60B75717173A63B03CDAC607A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

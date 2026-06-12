@@ -1,3 +1,148 @@
+###  Публикация: 911400   (618150) от 22.06.2015
+
+Ben Liebrand - Iconic Groove (2015) 2CD [MP3|320 кб/с]<70's Retropop, Synth Pop, Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Weekend (feat. James ''D-Train'' Williams) (06:54)
+02. We Are the Night (feat. James ''D-Train'' Williams) (06:17)
+03. Get On Up (feat. Caroline Dest) (06:55)(   Читать дальше...   )Жанр: 70's Retropop, Synth Pop, Disco, FunkПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CDBA705C66809FED4CF3DE8D57FD792A8600CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145968   (618097) от 27.06.2017
+
+Revelacion - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская диско группа 1970-х годов, автором, продюсером и оператором которых был Jean-Marc Cerrone. Выпустили в свет всего два предлагаемых альбома.01. The House Of The Rising Sun + Revelacion Suite (15:44)
+02. Crocos Dance Part 1 (5:02)
+03. Crocos Dance Part 2 (3:19)
+04. Time For Love (6:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AFEEBECEAD12546E6BF092618765D9C8C78063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145932   (618094) от 27.06.2017
+
+La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandolay (6:20)
+02. Only The Lonely (Have A Reason To Be Sad) (4:32)
+03. Can You Dance (3:27)
+04. Can't Kill The Beat (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145854   (618083) от 27.06.2017
+
+Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Historia de un amor - duet with Laura Pausini
+02. No me platiques - duet with Beto Cuevas
+03. Bésame mucho - duet with Nelly Furtado
+04. Quizás quizás quizás - duet with Michael Bublé(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145936   (618079) от 27.06.2017
+
+Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bailando (feat. Marisa, DJ Patrick Samoy)
+02. Vamos a la Playa (feat. Shelby Diaz)
+03. Bandolero (feat. Marisa, DJ Patrick Samoy)
+04. Suavemente (feat. Miguel Fernandez)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911335   (618027) от 22.06.2015
 
 VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
@@ -618,151 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED455F30EF073B6A0F9683B94B534A38E6734B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036999   (615745) от 23.07.2016
-
-Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
-02. Von Zeit zu Zeit [0:05:03.43]
-03. Lowin und Lamm [0:06:09.42]
-04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037054   (615662) от 23.07.2016
-
-VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akcent feat. Lidia Buble - Serai (3:19)
-02. Arando Marquez feat. Hevito - No Me Digas (2:51)
-03. Alexandra Stan feat. Mohombi - Balans (3:08)
-04. Alex Parker - Tropical Sun (3:21)(   Читать дальше...   )Жанр: Dance,  PopПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230463   (615628) от 12.06.2018
-
-VA - Radio Italia: Summer Hits 2017 (2017) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vasco Rossi - Come nelle favole (4:12)
-02. Giusy Ferreri - Partiti adesso (3:14)
-03. Brunori Sas - Lamezia Milano (3:52)
-04. Giorgia - Credo (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0117F3F514E41DA5CE0D59348296E8FBEAF64034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230438   (615523) от 12.06.2018
-
-VA - Еще одна вечеринка! Выпуск 3 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Кузьмин - Я не забуду тебя (DJ Groove Ремикс)
-02. Забытый разговор - Арабское золото (Ремикс '96)
-03. Президент & Амазонка- Лучшие друзья
-04. Валерий Сюткин - 7000 над землей (Хаус Микс '96)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F04E33FFF63B9FACF81C51FF93933FF0FF1093C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230441   (615396) от 12.06.2018
-
-Алена Апина и группа Комбинация - До и после (1994) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615396.jpg" />
-</div>
-
-
-###  Подробнее
-
-До
-01. Американ бой
-02. Рашен гелз
-03. Русский хип-хоп(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4535C350C0F6FB2DF47F29FB4A8EF12246930E48
 ```
 
 https://mybot314.ru/tekegram_catalog/

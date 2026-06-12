@@ -770,28 +770,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304124   (559644) от 28.05.2019
+###  Публикация: 365228   (559896) от 19.07.2011
 
-VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
+Hossam Ramzy - El-Sultaan (Classical Egyptian Dance) (2003) [MP3|320 kbps]<egypt ethnic music>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Travis Tritt – Start the Car (04:29)
-2. Cowboy Troy – Hook ‘Em Horns (Single Version) (02:49)
-3. Tamra Rosanes – On the Road Again (03:12)
-4. Michael Ray – Drivin’ All Night (03:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:26:55
+[03:03] 01.  Eddalla Ala Kefak (Play Hard, To Get What You Wish For)
+[04:20] 02.  Tool Omri Ba-Hebbak (I Loved You All My Life)
+[03:10] 03.  Rannet Khol-Khali (The Ringing of My Ankle Bracelet)
+[06:01] 04.  Ana Albi Elik Mayyal (My Heart Favours You)
+[05:54] 05.  Ya A-Az Min Eyini (You Are More Precious Than My Eyes)
+[06:34] 06.  Bait El-Ez Ya Betna (Ours Is a House of Goodness)
+[09:15] 07.  Ya Bent El-Sultaan (Daughter of the Sultan)
+[08:10] 08.  Yama Layali (Many a Night)Жанр: egypt ethnic musicПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
+magnet:?xt=urn:btih:CC395706A69C62931634EB1C91B8ECDD8179D21D
 ```
 
 https://mybot314.ru/tekegram_catalog/

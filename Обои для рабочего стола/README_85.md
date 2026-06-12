@@ -1,3 +1,29 @@
+###  Публикация: 1781106   (26800) от 22.02.2025
+
+Обои - Suslik - Wallpapers - Nissan GT-R 2K 2560x1440 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpapers - Nissan GT-R 2K 2560x1440, 20 pcsФормат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8733CEA96297D05341871621A795AF44152604CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780422   (26799) от 22.02.2025
 
 Обои - Eternal Mix Wallpapers Part 20 [JPG]
@@ -663,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786462   (24096) от 20.03.2025
-
-Обои - Eternal Mix Wallpapers Part 43 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
 ```
 
 https://mybot314.ru/tekegram_catalog/

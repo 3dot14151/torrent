@@ -1,29 +1,3 @@
-###  Публикация: 594868   (133043) от 27.12.2012
-
-VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC|Lossless]<Classical, Chamber, Waltz, Polka, Galop, Landler>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, Chamber Music/Recitals, Renaissance Period, Waltz, Operetta, Polka, Galop, Landler, MedleyПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594900   (132546) от 28.12.2012
 
 The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC|Lossless]<Classical Songs>
@@ -752,6 +726,35 @@ George Gershwin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27D2DEF6D71AA27CD879E87C359B9B39D19C400B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707180   (113447) от 15.03.2024
+
+VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Misha Fomin - 12 Etudes, Op. 10 - No. 3 in E Major (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84791F48CBC0EA5501E53B986CD99CF4B8C80CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

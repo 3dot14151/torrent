@@ -1,3 +1,61 @@
+###  Публикация: 1169903   (401227) от 29.09.2017
+
+Michael Jackson - Scream (2017) Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401227.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Place Hotel (a.k.a. Heartbreak Hotel)
+2. Thriller
+3. Blood on the Dance Floor
+4. Somebody's Watching Me (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2011F9FE59B9898C75BA67BE20174538CFED4543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170801   (398685) от 02.10.2017
+
+Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Lips Are Burnin' (2:38)
+02. All My Love (2:08)
+03. Baby Blue (What You Gonna Do) (2:54)
+04. She Loves The Whip (3:03)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A718B426177D393C1909FDFDA02F6B547FD86D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170778   (398453) от 02.10.2017
 
 Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
@@ -717,64 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EAADCDB76014985754358E9838ACD27BD362444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414658   (383407) от 09.10.2020
-
-Макс Барских - 1990 (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383407.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Армагеддон (Intro)
-2. Армагеддон
-3. Самолёт (Intro)
-4. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750A45135D7772E517641DC8EF45FA1B4E165974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174968   (383272) от 16.10.2017
-
-Gina X Performance - 4 Albums (1978-1984) Reissue CD, LTM, 2005 [MP3|320 Kbps] <Electronic, Synth-pop, Disco, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все альбомы немецкой группы "Gina X Performance", с вокалисткой "Gina X" (настоящее имя Gina Kikoine) работавших в стиле крутого артхауса, электро-диско и синти-попа. Их хиты становились клубными и классическими  по обе стороны Атлантики, а "No G.D.M." остается культовым благодаря electro/synthcore компиляциям.Список альбомов:
-1978 - Nice Mover (Gina X Performance)
-1980 - X-Traordinaire (Gina X Performance)
-1981 - Voyeur (Gina X Performance)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Disco, New WaveПродолжительность: 04:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1644BB4AA9506AC8439022E122189A635A7C6819
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1836917   (255587) от 13.11.2025
+
+Проекты - VideoHive - Business Event Promotion - 31843 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступление для разных презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1303B8516C056CBC07F4203F28D25C7620769A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836582   (254359) от 11.11.2025
+
+Проекты - VideoHive - Elegant Ballet Dancers Video display presentation - 137576 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон семнадцатого айфона для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5B3DCE66769F542A3E824778D27E7E8E2A007E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835319   (250998) от 05.11.2025
 
 Проекты - VideoHive - Promo Showcase - 59846572 [MOGRT]
@@ -627,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C655BD45A6D5C781D1157F147B7B394CE8DF634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968804   (150116) от 25.12.2015
-
-Проекты - VideoHive - 3D CD cover mock-up [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для презентации Вашего CD бокса.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBC832C0D8A2BB94D74F481280D1A0EA910D61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968745   (150104) от 25.12.2015
-
-Проекты - VideoHive - Glitch Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стильного и креативного фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE794285C23C59A8393D73C9948203316FD23F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1745434   (105073) от 26.08.2024
-
-VA - Classical Music Inspired by Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-03. Vyacheslav Gryaznov - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
-04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08777EC3CA447DEE73A883F66FB782F378DD1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744691   (105015) от 27.08.2024
 
 Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Lossless|image + .cue] <Classical, Opera>
@@ -806,6 +777,41 @@ The organ the Church of Our Lady of Sorrows, Toronto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475387   (85305) от 30.03.2012
+
+Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie (1791)/2002/[APE|Lossless]<Classsical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Introitus
+1.	Requiem (Coro, Soprano) 05:22
+2.	Kyrie (Coro) 02:33
+Sequentia
+3.	Dies Irae irae (Coro) 01:41
+4.	Tuba Mirum (Soprano, Contralto, Tenore, Basso) 03:10
+5.	Rex Tremendae (Coro) 02:05
+6.	Recordare (Soprano, Contralto, Tenore, Basso) 05:15
+7.	Confutatis (Coro) 02:28
+8.	Lacrimosa (Coro) 02:53(   Читать дальше...   )2002Жанр: ClassicalПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

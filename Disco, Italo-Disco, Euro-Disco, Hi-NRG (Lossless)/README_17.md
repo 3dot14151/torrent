@@ -1,3 +1,32 @@
+###  Публикация: 1062397   (441591) от 13.10.2016
+
+Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Chance (feat. Tony Allen) (3:37)
+02. Funk Makossa (feat. Manu Dibango) (3:19)
+03. Bodytalk (3:44)
+04. Funk Makossa (Todd Edwards Remix) (feat. Manu Dibango) (6:16)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410782   (433874) от 22.09.2020
 
 Michael Fortunati - The Best Of Disco Covers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
@@ -738,35 +767,6 @@ Italo Disco - Angel of the Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5062205BD22435E504AB5C1268CFDC5E441ADE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326474   (383243) от 21.09.2019
-
-Fun Fun - Color My Love (2017) Limited Edition, RE. [FLAC|Lossless|tracks + .cue] <Italo-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Give Me Your Love (Album Version) (5:31)
- 02/12. Baila Bolero (Extended Vocal Swedish Remix) (7:00)
- 03/12. Color My Love (Club Mix) (7:24)
- 04/12. Sing Another Song (Album Version) (5:07)(   Читать дальше...   )Жанр: Italo-Disco, 80sПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AB5BECE9921104541854F1203BDE5F1ABAF890
 ```
 
 https://mybot314.ru/tekegram_catalog/

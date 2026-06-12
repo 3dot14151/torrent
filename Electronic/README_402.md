@@ -1,3 +1,247 @@
+###  Публикация: 1835709   (251670) от 07.11.2025
+
+VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (2025-10-25) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Alle Farben ft. Ava Silver - Lost In Time (Intro Edit)
+02. Armin van Buuren & JOA - Heavy (DJ KUBA & NEITAN Remix)
+03. ID - Amsterdam ID
+04. Armin van Buuren & Adam Beyer vs. D-Shake - Techno Trance(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835662   (251665) от 07.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Mireno & Alaera – Awakening (Piano Intro Mix)
+02. Mhammed El Alami & NELLY TGM – We Are One
+03. BiXX – Appreciation
+04. DreamLife & Aleksey Gunichev – Good Night My Dream(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835656   (251662) от 07.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuri Kane ft. Kate Walsh – Right Back
+02. Gareth Emery ft. Christina Novelli – Concrete Angel
+03. Gareth Emery & STANDERWICK ft. HALIENE – Saving Light
+04. Above & Beyond ft. Zoë Johnston – No One On Earth (Gabriel & Dresden Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495948   (251644) от 13.05.2012
+
+Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251644.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:54) 01. Fly Away
+(5:00) 02. La Dolce Vita
+(5:57) 03. Belanna
+(5:12) 04. Mon Palais De Solitude
+(4:02) 05. Amoroso
+(5:53) 06. Tomae
+(3:35) 07. Lola
+(2:04) 08. Leja Men Dewai
+(6:19) 09. Distance Love
+(3:33) 10. Buddha Reggae(   Читать дальше...   )2006Жанр: Ethno-Lounge, New ageПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08ABE43B0185B9FDB225A17A9D899F54719B715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495343   (251641) от 13.05.2012
+
+VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolombo - Shape Your Life (feat. Vince L - Martin Dawson Remix)
+02. Hot Since 82 - Let It Ride (Nicolas Masseyeff Remix)
+03. Larse - So Long (Manuel Tur Remix)
+04. Johan Ilves & Migova - Femme Desire (Adana Twins One Night In Paris Remix)
+05. Noir Westboy - Shes Got My Heart (Larse Remix)
+06. Los Suruba - Spanish Pantalones (Hot Since 82 Remix)
+07. Tiger Stripes - I Found U (Kellerkind Remix)
+08. Superhero - It's Not For You (feat. C Layne - The Mekanism Remix)
+09. Noir - Times Of My Life (feat. Alexander Perls - Noir Habischman Remix)
+10. Pirupa & Pigi - Sweet Devil (Amine Edge & DANCE Remix)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1543DC36791DC6E7CF97DA6DA872E1A59BAFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495109   (251320) от 11.05.2012
+
+Skrillex & Damian Marley - Make it Bun Dem (Digital Single) (2012) [FLAC|Lossless]<dubstep, electronic, reggae>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Skrillex & Damian “Jr Gong” Marley – “Make It Bun Dem”
+
+
+Skrillex и Дэмиан Марли, младший сын Боба Марли, записали совместный трек 'Make It Bun Dem'. Демо этого трека было доступно ранее в сети под названием 'Rudeboy Bass'.2012Жанр: dubstep, electronic, reggaeПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835613   (251252) от 06.11.2025
+
+VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Bad Dreams (HUGEL Remix) (3:02)
+02. Bennett - Vois sur ton chemin (Techno Mix) (2:58)
+03. David Guetta - Beautiful People (Extended) (4:20)
+04. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:28)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061F12FBFF016A6A722314F819317401C8D2CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835353   (250962) от 06.11.2025
+
+AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliette (Vocal Remix) (4:18)
+02. Miami Beach (Beach Vocal Remix) (4:14)
+03. From Dusk Till Dawn (Dusk Vocal Remix) (4:42)
+04. Testarossa (Rossa Vocal Remix) (4:36)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835337   (250957) от 06.11.2025
 
 VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -513,238 +757,6 @@ VA - UV 250 (Mixed by Paul Thomas) (2023) [MP3|320 Kbps] <House, Progressive Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F7608A79DAF770AF9429BDBC1FD8EB7BCECEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619320   (249665) от 16.03.2023
-
-VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Intro mix) [04:14]
-02. Mike Van Fabio & Kim Kiona - Don't Run Away (Last Soldier extended remix) [06:20]
-03. U-G - Shikisai (extended mix) [07:36]
-04. NyTiGen & AFTERUS - Free Fall (extended mix) [06:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0191E5AB4390E5BA36EE453151312A077778D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619232   (249628) от 16.03.2023
-
-VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Andrey Zhitnev, Pavel Kuznetsov - Introduction
-02 - Amateon - Solar Wind
-03 - Galspace Project - Start On
-04 - Synth Elements - Starfall(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CFAD268512283DED7D17BA306C3F5EA567B48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619767   (249593) от 17.03.2023
-
-M83 - Fantasy (2023) [FLAC|Lossless|WEB-DL|tracks] <electronic pop, synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water Deep (3:11)
-02. Oceans Niagara (4:32)
-03. Amnesia (4:03)
-04. Us And The Rest (5:32)(   Читать дальше...   )Жанр: electronic pop, synth-popПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C7B8D6E554BD11D052B7E5E7F395AC57AEAFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620100   (249546) от 18.03.2023
-
-VA - Vocal Trance Collection (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exeland feat. Natune - When You're Near (Catchfire Remix) (7:23)
-02. Liddell - Fighting Daylight (Original Mix) (6:57)
-03. Edplacid Patiño - The Phoenix (Extended Mix) (6:24)
-04. DJarle & Kanyle - Ride My Waves (Victor Special Remix) (7:57)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADF19D0F97995BE81535AEDEB176BDA19C9BAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620107   (249507) от 18.03.2023
-
-M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water Deep (3:11)
-02. Oceans Niagara (4:32)
-03. Amnesia (4:03)
-04. Us And The Rest (5:32)(   Читать дальше...   )Жанр: electronic-pop, synth-pop, IndieПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BBC087BBBB5E67F4773ADCC683934FDFEDF008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620155   (249468) от 19.03.2023
-
-Eguana - Night Ambient (2023) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Thoughts [06:32]
-02. Naked Ocean [08:00]
-03. Instinctive Anxiety [06:25]
-04. Experienced Feeling [07:06](   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22E361C8D3B3D4D7E768948E16C90760ECDAB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620473   (249398) от 20.03.2023
-
-Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willkommen 1:09
-02. Nachtflug 5:56
-03. Die Nacht... Du Bist Nicht Allein ( Mit Thomas D ) 4:26
-04. What's Coming ( Mit Jette Von Roth ) 4:26(   Читать дальше...   )Жанр: Trance, Downtempo, AmbientПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920E14705878D9AEB0A64DD3A06FF0E77A6B062D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620536   (249381) от 20.03.2023
-
-VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Introduction - Pavel Kuznetsov
-02 - AlimkhanOV A. - Space Odyssey
-03 - Oblivion - Running On The Milky Way
-04 - Laserlight - Flight Of The Dream(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 02:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1FD22D79276FB03C0A72197848A2032D56A100
 ```
 
 https://mybot314.ru/tekegram_catalog/

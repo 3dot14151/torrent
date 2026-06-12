@@ -1,32 +1,3 @@
-###  Публикация: 1302468   (581204) от 15.05.2019
-
-Krisma (Chrisma) - 7 Albums (1977-1989) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Krisma (раньше Chrisma) является итальянской музыкальной электронной группой новой волны, основанной Маурицио Аркьери и Кристиной Моузер в 1976. В 1980 группа официально поменяла свое имя от Chrisma до Krisma и стала ближе к синтипопу. Из студийных альбомов выпустила только предлагаемые в раздаче.Список альбомов:
-1977 - Chinese Restaurant
-1979 - Hibernation
-1980 - Cathode Mamma(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 04:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E72904AABD0FD461B8DE16C1E6EE0246635B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041966   (580458) от 11.08.2016
 
 Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
@@ -107,41 +78,6 @@ Blancmange - британский электронный нововолновы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A53ED9AA48810179DB967F32ECC37496ED7631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363533   (566811) от 15.07.2011
-
-Depeche Mode - Best Of The Best (Remix Version) (2011) [MP3|320 kbps]<Pop, Dance>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_566811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Puppets (Rryksopp Remix) (4:41)
-2. World In My Eyes (Kaiser Uranium Cicada Remix) (7:03)
-3. Strange Love (David Dieu Remix) (6:08)
-4. Enjoy The Silence (Ken C Remix) (6:58)
-5. Personal Jesus (Covenant Remix) (8:24)
-6. A Question Of Lust (Remix) (5:10)
-7. Black Celebration (Kaiser Metro FX Dub Remix) (10:38)
-8. Freelove (MC Remix) (5:45)
-9. I Want You Now (Kaiser Extended Piano In Motion) (5:47)
-10. Halo (X-Tended's Reinterpreted Dance Mix) (5:52)(   Читать дальше...)Жанр: Electronic, Synthpop, Techno, Dance, Club, HouseПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F9F8665AD6B29A1C000ACC15B78DF7B7FAC531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -751,6 +687,64 @@ Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930467   (510785) от 27.08.2015
+
+Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skull and Shark (04:50)
+02. Chaos (04:50)
+03. Lawless (04:26)
+04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932194   (509985) от 28.08.2015
+
+Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mountain (4:25)
+02. Revel in Your Time (4:07)
+03. Tech Noir (4:57)
+04. Shadow Fury (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, DreamwaveПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
 ```
 
 https://mybot314.ru/tekegram_catalog/

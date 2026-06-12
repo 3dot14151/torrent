@@ -1,115 +1,3 @@
-###  Публикация: 452640   (76741) от 17.02.2012
-
-Мания величия / La folie des grandeurs (1971) BDRip [H.264 | iPad]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луи Де Фюнес в роли жадного сборщика налогов, обворовывающего короля. Его слугу Рюи Блаза играет Ив Монтан. Разбитной веселый мошенник постоянно издевается над хозяином и строит ему козни.
-Так он использует неописуемую алчность и жажду лести человека, считающего, что «бедные должны быть бедными, а богатые должны стать еще богаче», и подбивает Де Фюнеса соблазнить (   Читать дальше...   )Производство: Франция, Испания, Италия, Германия (ФРГ) /  Gaumont International, Mars Film, Coral FilmsЖанр: КомедияРежиссер: Жерар УриАктеры: Луи де Фюнес, Ив Монтан, Алис Саприч, Карин Шуберт, Альберто де Мендоса, Дон Хайме де Мора-и-Арагон, Эдуардо Фахардо, Антонио Пика, Хоакин Солис, Венантино Венантини и др.Перевод: ДублированныйСубтитры: Английские, Русские, ФранцузскиеПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447781   (75545) от 11.02.2012
-
-Мерлин / Merlin [сезон 4, эпизоды 13 из 13] (2011) BDRip [720p] ATV2/iPad
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история юного мага, ставшего впоследствии самым знаменитым и могущественным волшебником из всех, когда-либо живших на земле.
- Действие начинается с того дня, когда юный волшебник впервые оказывается в королевстве Камелот, и повествует о событиях, предшествующих легендарной истории о Мерлине и короле Артуре. Действующий король Камелота уже более двадцати лет ведет (   Читать дальше...   )Жанр: Фантастика, Драма, ПриключенияРежиссер: Джеймс ХоузАктеры: Джон Хёрт, Колин Морган, Брэдли Джеймс, Ричард Уилсон, Энджел Колби, Кэти МакГрат, Энтони Хэд, Руперт Янг, Оуэн Мэкен, Адетомива Едун и другиеПеревод: Многоголосый закадровыйЯзык субтитров: Русские АнглийскиеПродолжительность: 13 серий по ~ 43 минуты
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772415   (71773) от 11.01.2025
-
-VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love
-02. Gary's Gang - Keep On Dancin'
-03. Eddy Rosemond - Wake Up And Move...Funky
-04. Village People - Y.M.C.A.(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D78AB5A80CC05917AC0BC0E72C6940D39E8701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772588   (71751) от 12.01.2025
-
-Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Stop
-02. Get Up, Do You Wanna Funk (Special Effects Mix)
-03. Go Go Yellow Screen
-04. Steppin' Out (Special Mix)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774208   (71536) от 21.01.2025
 
 VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
@@ -736,6 +624,122 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62FC4BCEDCF0E83B06ED8A5A6752DB27F03EB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773633   (30218) от 21.01.2025
+
+VA - The Best Of Made Up Records Vol. 2 (1999) [AAC|320 Kbps] <Electronic, Euro-Disco, Eurodance, Eurobeat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debby Jason - Day By Day
+02. Gina - Baby Baby Baby
+03. Sheila Steward - No 1 Emotion
+04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Eurodance, EurobeatПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F620DE25A4F056153532537830E6B684BB186C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774783   (30001) от 23.01.2025
+
+VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - Tonight
+02. Spagna - Easy Lady
+03. Koto - Jabdah
+04. Fancy - Bolero (Hold Me In Your Arms)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6547D2D00B63F2477C3F20D3B8CD3ECAE8988E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774781   (30000) от 23.01.2025
+
+VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Silver Pozzoli - Around My Dreams
+02.  Ivan - Fotonovela
+03.  Steve Allen - Letter From My Heart
+04.  Moses - We Just(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1E12D1E8B5666B54D83CB672012E1EB03EE9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774935   (29894) от 24.01.2025
+
+VA - Italo Dance Classics Volume 4 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Righeira - Vamos A La Playa
+02. P. Lion - Happy Children
+03. Valerie Dore - The Night
+04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F39BFC3A8AD7CBF45D26D8F7FA7458DB053F35
 ```
 
 https://mybot314.ru/tekegram_catalog/

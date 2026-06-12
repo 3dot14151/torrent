@@ -1,3 +1,32 @@
+###  Публикация: 1294684   (627317) от 08.04.2019
+
+2 Mello - Mindstreaming, Vol. 1 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Chillhop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Intro (1:58)
+02. Kaiju Things (3:19)
+03. Cruise In Neon (1:49)
+04. Cover Charge (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental Hop, Beats, ChillhopПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294691   (625793) от 09.04.2019
 
 A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
@@ -716,35 +745,6 @@ Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E73EA8FC5CDA9DFDFAD333BBCA65C1C578DFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417572   (358064) от 20.10.2020
-
-Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz & Coffee Part 4 (ft DJ Million Faces) (3:01)
-02. It's All Good (ft DJ Million Faces) (3:23)
-03. Raw.Lofi (ft DJ Million Faces) (2:55)
-04. Real Talk (ft Predominance & DJ Million Faces) (3:28)(   Читать дальше...   )Производство: Revolutionary RhythmЖанр: Hip-Hop, Jazz Hop, Underground Hip-HopПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

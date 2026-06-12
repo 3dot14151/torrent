@@ -1,3 +1,317 @@
+###  Публикация: 1312731   (530616) от 05.07.2019
+
+3D модели - SQUIR - Audi RS6 sedan 2015 [Mental Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530616.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  AudiФормат: Mental Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5727D644EB999D280C868681FB86AE7BAB0E45B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051907   (530588) от 12.09.2016
+
+Экшены - GraphicRiver - Splash Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splash - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3C838405ED93F1B7DD5D8C36D2A3E1E2E8B1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312724   (530548) от 05.07.2019
+
+3D модели - BMW M6 Gran Coupe 2014 [MAX, OBJ, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530548.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BMWФормат: MAX, OBJ, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3A03587C90727B1895C78A3C0BD25D7B76C6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312735   (530540) от 05.07.2019
+
+3D модели - SQUIR - Fiat Tipo 2016 [Mental Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530540.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  FiatФормат: Mental Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57BBF1109AF2019C5683278EF2E54749DE1A67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051569   (530505) от 12.09.2016
+
+Экшены - 5 Digital Painting Photo Effects Vol.1 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530505.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 Digital Painting Photo Effects Vol.1 - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9111F8E94B106F3A9129DD5E46363572A1008B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312630   (530454) от 05.07.2019
+
+3D модели - Hum3D - Bufori Geneva with HQ interior 2016 [V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530454.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  BuforiФормат: V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550A08811E1B694E41793925D082270193DED273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051858   (530415) от 12.09.2016
+
+Векторный клипарт - Городецкая роспись в векторе [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городецкая роспись по дереву в векторе. Многие оценят их по достоинству.
+6 AI, EPS | + JPG PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0815839850888E180AFA4D0C52988255F04DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927002   (529504) от 12.08.2015
+
+Векторный клипарт - Собачки в векторе [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисованные собачки разных пород в векторе с превью в JPEG.
+Все для компактности на одном листе.Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5249ADB5CBF280B60556C1142A464563E12A3BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927127   (529401) от 12.08.2015
+
+Векторный клипарт - Котята в векторе [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисованные котята в векторе с превью в JPEGФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F531A0425F424AD8091258DB6DA6088E9FA01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926605   (529331) от 12.08.2015
+
+Сборник инструментов Photoshop - DAZ3D - Ron's War Essentials [ABR, TPL, ASL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ron's War Essentials - огромный набор инструментов Photoshop, созданный знаменитым Ron Deviney, который пригодиться Вам снова и снова и поможет в Ваших творческих начинаниях. В этом пакете, стратегически запланированной войны, есть специальные эффекты для творчества художника. Здесь есть Photoshop кисти, PSD слои огоня, инструменты Photoshop и стили слоя, предназначен (   Читать дальше...   )Формат: ABR, PSD, TPL, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF74C5D83DCE064ADD4C81A54AF8A3CC6853CA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051956   (529137) от 13.09.2016
+
+Экшены - GraphicRiver - Dynamic - Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB87458B74475CAEE1C0495A4D758E96FC642C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312991   (529097) от 06.07.2019
+
+Звуковые библиотеки - Junior Porciuncula - Yamaha S90 ES v1.6 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529097.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 фортепианных патчей из Yamaha S90 ES, тщательно семплированных с использованием mLan16 (Digital FireWire).Можно выбирать основной патч (кнопкой с названием патча или желтым индикатором слева над ней), подключать к нему второй для лееринга (красным индикатором справа над кнопкой патча), а также дополнительные пэды (управляются колесом модуляции) и реверберацию. (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NKX, NKI, NKM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF45D81F1682D65645FD07290F836A9B3897825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052103   (528994) от 13.09.2016
 
 Экшены - GraphicRiver - Retro Painting Machine - Vintage Effect Action [ATN]
@@ -356,325 +670,6 @@ Abstract 2.0 - экшен для Вашего творчества.Формат:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD557110A7CEEE302CF473EB314A31391D8C78C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052838   (527271) от 15.09.2016
-
-Экшены - MixArt Vol.1 - Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527271.jpg" />
-</div>
-
-
-###  Подробнее
-
-MixArt - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301B55CB53147EEB368ABF669D24EA7E662E1FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052841   (527263) от 15.09.2016
-
-Экшены - CreativeMarket - Sandblast Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandblast - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FED43064F512CF9F16BE09D4EFCDC0BE0EBB89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369058   (527249) от 29.07.2011
-
-3D модели - Evermotion - Archmodels Vol. 069 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 66 моделей детских игрушек и уличных атракционов.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA4EE80A58BCE19F553DB664AC252F5B14C046E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052573   (527216) от 15.09.2016
-
-Экшены - GraphicRiver - Motionflow Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motionflow - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395146CD3047B452A1FFB57E34CB3255FAB19431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052748   (527214) от 15.09.2016
-
-Экшены - GraphicRiver - Magic Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE64BFF47AB3705D965240C0B3E7E1B7BA3D752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052850   (527205) от 15.09.2016
-
-Экшены - CreativeMarket - Soft Focus Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft Focus - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD0778E21C5F400D0A6D2468FB0799275D81CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052743   (527163) от 15.09.2016
-
-Экшены - GraphicRiver - 5 Spread Shape Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527163.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 Spread Shape - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529534E8C3D745CE9C7B284FD393602529B47EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369178   (526558) от 30.07.2011
-
-3D модели - Evermotion - Archmodels Vol. 084 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 30 моделей военной техники.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781A79CD4E02AD2C2119E8C3F6EF203C2AC956D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368908   (526554) от 30.07.2011
-
-3D модели - Evermotion - Archmodels Vol. 068 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 50 высокодетализированной кухонной утвари: варочные плиты, холодильники и пр.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7989CEAB6FC2BA2617945F3F43334B95DD6425A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053039   (526520) от 16.09.2016
-
-Экшены - CreativeMarket - Watercolor Profesional Painter 2 [ATN, ABR, TPL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Profesional Painter 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, TPL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0135757743915FF04CBA1C67485CD3E2173DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053236   (526471) от 16.09.2016
-
-Векторный клипарт - Hohloma floral pattern vector [CDR, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хохлома в векторе. Многие оценят их по достоинству.
-33 CDR, EPS | + JPG PreviewФормат: CDR, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F20E61976858AEDCDD0FB46C1B71F8B8F93C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369740   (525977) от 31.07.2011
-
-Шаблоны - GraphicRiver - Photo Presentation Frame [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблоны для стильной презентация фото реалистичных поларойдов.Формат: PSDРазрешение файлов: 1772x1252
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D931D8339FAA1BCE96E7FE28C0737CD70217C06C
 ```
 
 https://mybot314.ru/tekegram_catalog/

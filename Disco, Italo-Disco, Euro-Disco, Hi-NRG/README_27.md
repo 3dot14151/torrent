@@ -1,61 +1,3 @@
-###  Публикация: 1320311   (473371) от 17.08.2019
-
-Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Moves On (6:01)
-02. Said You Didn't Love Him (3:13)
-03. Front Row Romeo (Instrumental) (4:23)
-04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058241   (470953) от 30.09.2016
-
-Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский диско-проект от продюсеров Willi Morrison & Ian Guenther, в основном известных по THP Orchestra и др.01. Headin' South (7:50)
-02. On Our Way (9:38)
-03. Love Is (11:45)
-04. Tight Pants (6:02)Жанр: Disco, Funk-SoulПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357896C001852F37DC61AB5C4496EF36C2A612A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245796   (470070) от 07.09.2018
 
 Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -252,6 +194,35 @@ Grand Tour - On Such A Winter's Day (1977) LP [MP3|320 Kbps] <Electronic, Funk S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D64518FC308B624EA65236A226CFDADFF9393A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568130   (466029) от 06.08.2022
+
+Modern Sound Quartet - Horoscope (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_466029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lion (3:21)
+02. Virgin (3:04)
+03. Aquarius (3:13)
+04. Sagittarius (3:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD815B8A7B0BB475587E0AC083E9B6934D99A57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -757,6 +728,35 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569082   (455703) от 11.08.2022
+
+Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Hearts	4:11
+02. Jungle In My Heart	3:38
+03. I Don't Know Her Name	3:23
+04. Jenny, Come Home	3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

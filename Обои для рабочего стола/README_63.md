@@ -1,3 +1,29 @@
+###  Публикация: 950529   (370043) от 26.10.2015
+
+Обои - Computer Desktop Wallpapers Collection 1355 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые обои на ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AC5F17F6156B7E6A79372C483CFE16ECD903FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950638   (367759) от 27.10.2015
 
 Обои - Computer Desktop Wallpapers Collection 1356 [JPG]
@@ -641,32 +667,6 @@ Stunning HD Digital Art Space Wallpapers (17.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0BF425F0317AB0ADC6F1DC6A1408AABE8782508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577467   (357654) от 19.11.2012
-
-[Wallpapers] Обои для рабочего стола тачки(часть 6)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357654.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз по просьбе одного из наших одноклубников весь релиз посвящен отечественному автопрому,а точнее "АВТОВАЗУ".Все модели разложены по папкам.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7507892B19CBDAF6510D3A54B68DA2CF15501FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

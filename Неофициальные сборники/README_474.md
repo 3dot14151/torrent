@@ -1,3 +1,32 @@
+###  Публикация: 1326562   (383498) от 21.09.2019
+
+VA - Power Trance Surgery: Euphoric Mix (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astrofegs - Frameshift
+002. A.R.D.I. - Precious Time
+003. Dj Tiesto - Urban Train (Cosmic Gate Remix)
+004. Matt Bowdidge - Psycho(   Читать дальше...   )Жанр: TranceПродолжительность: 10:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A8ED025FCCA9398C2CDCD46E21F31428AE423D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326680   (383496) от 21.09.2019
 
 VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
@@ -716,35 +745,6 @@ VA - Acoustic Covers for Weddings (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AEAFF69FA6D08E380695803878B37D02C9E8FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326607   (382516) от 21.09.2019
-
-VA - Sea Party Dance House (2019) [MP3|320 Kbps] <Dance, Club. House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zeheit - Between Countries
-002. Brasslover - Waiting The Drop (Dub Mix)
-003. Made - I'm Coming Up
-004. Dachs - Fiore Blu (Original Mix)(   Читать дальше...   )Жанр: Dance, Club. HouseПродолжительность: 13:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5B7F88BF86FE074EA9F6D5D5B16F5FEA175349
 ```
 
 https://mybot314.ru/tekegram_catalog/

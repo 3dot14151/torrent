@@ -1,3 +1,148 @@
+###  Публикация: 1544920   (613167) от 20.04.2022
+
+Death Loves Veronica - Lucid Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Came Here for You (00:04:38)
+02 - Stay (00:03:36)
+03 - Alone (00:03:37)
+04 - Blood King (00:02:37)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807EFAB68C60E81232D004D49435F0E568E844D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146799   (613075) от 30.06.2017
+
+VA - Sunrise Mood Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Diventa Project - The Sun Goes Down (Original Mix)  3:37
+02.  Van - Carnaval (Original Mix)  5:36
+03.  Lazy Hammock - We Want Peace (Original Mix)  4:31
+04.  Lemongrass - Deep River (Original Mix)  6:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A550FCFB24BB26BAC507CAC0DC5C4CACD51858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146906   (613073) от 30.06.2017
+
+VA - Dont Worry Be Sexy Vol.2: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark From London - Midsummer Nights - Original Mix
+02. Vivid Sun - Vivid Sun - Alexis Cyprus Mix
+03. Yovann Blue - Feel so High - Original Mix
+04. Patrik Ford - Oklahoma - Original Mix(   Читать дальше...   )Жанр: Funky, Club House, Deep HouseПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17C12C524DAC2BCC6CA5C5204A4506A9BE33AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146946   (613071) от 30.06.2017
+
+VA - We Love Deep-House B*tches Vol.4 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viktor Astoria - This Is 4 You - Original Mix
+02. Patrik Ford - Oklahoma - Original Mix
+03. Alfred Greytto - April - Sound of Deep Mix
+04. Yovann Blue - Feel so High - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ED3E7DEF18C8055CCB89ECAB40BBE3A96F8755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545354   (613021) от 20.04.2022
+
+WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости нас, Юра
+02. Когда хочу, тогда и дура
+03. Разберись уже с этим
+04. Помолчи со мной о чём-нибудь(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B3525C3490A7D6061CF22270F38EC762244D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146796   (612965) от 30.06.2017
 
 VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -612,151 +757,6 @@ VA - Paradise Lovers.St Valentines Day Edition (2016) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1743C6629BAB1F935F7F8546C6B6144E0898D654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037859   (610313) от 26.07.2016
-
-VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiteout -  Washed Away (feat Vika - Original Mix) 5:16
-02. Ruta & Lucid Blue -  Like A Dream (Original Mix) 4:24
-03. Roman Messer -  Imagination (feat Ange - Denis Airwave Remix) 6:30
-04. Adagio Sensus & Ellie Lawson -  Easy For You (Frainbreeze Remix) 6:11(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037982   (610311) от 26.07.2016
-
-VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
-02. Soundsome - Intentional Delay (Original Mix) [07:38]
-03. Die Hoehenregler - Lust (Original Mix) [07:25]
-04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296527   (610248) от 18.04.2019
-
-VA - Synthwave, Vol. 3 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina - My Mistake (4:04)
-02. Le Matos - The Kid (6:00)
-03. Das Mortal - Hotline Miami II (3:47)
-04. Germany Germany - With You (feat. Kotomi) (4:16)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5B0A92E62170B5AF01D10F0F075F1E633EEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296533   (610226) от 18.04.2019
-
-VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LGHTNNG - Desert King (3:58)
-02. Neon Nox - Checkpoint (feat. Rebecka Stragefors) (5:25)
-03. Sellorekt / LA Dreams - Remnants (3:51)
-04. NINA - Beyond Memory (3:35)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5A94C72FF45BD732868EEC69F37463E7D52C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188676   (610200) от 15.06.2018
-
-TEVOL - Label-Pack 4 Releases (2016-2017) [FLAC|Lossless|tracks] <Dub Techno, Minimal, Techno>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greev (08:49)
- 02. Greev (Idealist remix) (06:35)
- 03. Sofar (08:36)
- 04. Sofar (Andre Kronert remix) (06:54)Жанр: Techno/Deep TechnoПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10C1D197D8071CD87C77FE8B7A6AE8E038405D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

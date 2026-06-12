@@ -1,32 +1,3 @@
-###  Публикация: 589725   (147865) от 15.12.2012
-
-Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, Мстислав Ростропович - Rachmaninov & Glinka Songs (1976/2006) [FLAC|Lossless]<Опера, вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Памяти Галины Павловны Вишневской и Мстислава Леопольдовича Ростропович1. Rachmaninov - 'Noc pecal'na' (The Night is mournful), op.26 no.12 (1906)
- 2. Rachmaninov - 'Ne poi, krasavica' (Oh, never sing to me again), op.4 np.4 (1890?)
- 3. Rachmaninov - 'Muzyka' (Music), op.34 no.8 (1912)
- 4. Rachmaninov - 'Vesennaja voda' (Spring Waters), op.14 no.11 (1896)(   Читать дальше...   )Жанр: Опера, вокалПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519178   (146960) от 25.12.2021
 
 VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -783,6 +754,32 @@ Concerto Grosso no. 1 (1976-77)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594868   (133043) от 27.12.2012
+
+VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC|Lossless]<Classical, Chamber, Waltz, Polka, Galop, Landler>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, Chamber Music/Recitals, Renaissance Period, Waltz, Operetta, Polka, Galop, Landler, MedleyПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

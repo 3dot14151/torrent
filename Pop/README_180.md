@@ -1,3 +1,90 @@
+###  Публикация: 1238367   (547081) от 29.07.2018
+
+Crown Heights Affair - Essential Dancefloor Artists Volume 1 (1994) [FLAC|Lossless|tracks + .cue] <Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming A Dream (Special 'Blended With Love' Re-Edit) (6:39)
+02. Foxy Lady (Special 'Blended With Love' Re-Edit) (6:02)
+03. Dancin' (Original 12' Mix) (6:16)
+04. Far Out (Original Full Album Version) (6:22)(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C54425D5C7788000EF39B4030790B40297BC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310375   (547008) от 24.06.2019
+
+VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Schlager Sommer Megamix 2019, Pt.1
+02. VA - Schlager Sommer Megamix 2019, Pt.2
+03. Norman Langen - Dieses Gefühl
+04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309922   (546965) от 24.06.2019
+
+Блокбастер - Коллекция (2001-2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прощай (3:15)
+02. Помнишь, как было (3:40)
+03. Падал снег (3:37)
+04. Упрямый дождь (3:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3266D4894E6CDFFD2781AA4978F72D77A9B02191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310057   (546885) от 24.06.2019
 
 VA - POLAND - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, Ballad, Retro>
@@ -664,93 +751,6 @@ VA - Italo Disco Romantique Vol. 1 (Extended Romantique Mixes) (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29952AD1BAE9847930A524DC51DA6E6C08E8BBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311009   (544276) от 27.06.2019
-
-Madonna - Madame X (2019) Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellin with Maluma (4:58)
-02. Dark Ballet (4:15)
-03. God Control (6:19)
-04. Future ft. Quavo (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C969713A847ACC2FAE29C753077F909530667763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049058   (544249) от 04.09.2016
-
-VA - 12 Inch Dance: 80s Pop (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Spandau Ballet - Gold (12'' Mix) [07:15]
-02 Duran Duran - The Reflex   [06:34]
-03 Soft Cell - Torch   [08:27]
-04 Tears For Fears - Shout   [08:01](   Читать дальше...   )Жанр: PopПродолжительность: 03:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A08045A00E694BDEBAC76A9C34690534A331D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049041   (544248) от 04.09.2016
-
-Plazma - Take My Love (2000) Reissue, 2004, CD Land [FLAC|Lossless|image + .cue] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take My Love
-02. The Sweetest Surrender
-03. Memories
-04. Jump In My Car(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA04AC97039566E881DF2677F4E697E8A8B931
 ```
 
 https://mybot314.ru/tekegram_catalog/

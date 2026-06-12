@@ -1,4 +1,236 @@
 https://t.me/izofen
+###  Публикация: 1875662   (1072802) от 
+
+VA - Official FIFA World Cup 2026™ Album (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lisa - Goals (3:01)
+2. Future - Game Time (3:27)
+3. Jessie Reyez - Illuminate (3:04)
+4. Daddy Yankee - Echo (2:16)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBA01218CEF001C9DFD348730273087F4C1AB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875354   (1072801) от 
+
+Fausto Papetti - Instrumental Collection (2002) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feelings - 3:33
+02 - Yesterday - 3:29
+03 - I Just Call To Say I Love You - 3:11
+04 - Love Theme from Godfather - 2:32(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C872B122FED0D3F461C79D39F016726198D0163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875711   (1072742) от 
+
+VA - The Orient Collective: Rituals of the Sunfire (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak - Pyramid of Light (8:02)
+02. Marga Sol - Pura Luhur (4:38)
+03. Kaisser Bouzriba - Dreamers (6:31)
+04. Don Lockwood - River Flows (5:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42297EA24EA144A651B36CA6C43E0746CA48740D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874814   (1072703) от 
+
+Blonker - Die Zeit Der Traume (1985) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidewalk Cafe 3:07
+02. African Kalimba 4:26
+03. Sleepwalk 2:18
+04. Midsummernight 3:26(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED07BF785A8DC8D70ECF92E3275B30346CB30E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874944   (1072699) от 
+
+Carroll Baker - Hymns Of Gold (1985) CD, 1991, J & B Records [FLAC|Lossless|image + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Me (Lord) (3:34)
+02. You Light Up My Life (3:01)
+03. It Is No Secret (What God Can Do) (3:38)
+04. Let's All Go Down to the River (1:56)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A5A4C00E2452349918EA7528AE1FE158E7BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874945   (1072698) от 
+
+VA - The Lost Boys (Original Motion Picture Soundtrack) (1987) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INXS & Jimmy Barnes - Good Times (3:53)
+02. Lou Gramm - Lost In The Shadows (6:37)
+03. Roger Daltry - Don't Let The Sun Go Down On Me (6:12)
+04. INXS & Jimmy Barnes - Laying Down The Law (4:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF82AA0F5098112A3BCE8CEA43B8839940B796B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875562   (1072647) от 
+
+Magic Melody Makers - Romance in France (Dreamland Music House) (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset on the Seine (1:50)
+02. Eiffel Tower Embrace (3:04)
+03. Montparnasse Memories (4:14)
+04. Charming Champs-Élysées (1:28)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399C1B4E885C341CCA78A6346D56C451E50142B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875393   (1072530) от 
+
+Magic Melody Makers - Italian Seasons (Dreamland Music House) (2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring in Trastevere (Primavera a Trastevere) (2:43)
+02. Lemon Trees of Sorrento (Alberi di Limone a Sorrento) (2:39)
+03. April Espresso (Espresso d’Aprile) (2:19)
+04. Terrace in Bloom (Terrazza Fiorita) (3:39)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2A5FD70ABFBA529B56B26BE808F3D7BA82703F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874806   (1072170) от 
 
 Blonker - Fantasia & Inside  (1997) Super 2 Series, Reissue, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
@@ -513,238 +745,6 @@ VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99A607D8FE724D739FC17DF713F7C48EEDB87D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869712   (1068449) от 08.05.2026
-
-Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 北川保昌 - Thoughts 3:09
-2. 北川保昌 - To The Moon 4:09
-3. 北川保昌 - A Little Girl 0:56
-4. 北川保昌 - The Beginning 2:48(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1363D8437AB1988D4FA3D83FB43096B1E92F20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868855   (1067681) от 02.05.2026
-
-VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Lockwood - Morning Clouds (5:38)
-02. Kaisser Bouzriba - Hayeti (5:08)
-03. Marga Sol - Memoria (4:45)
-04. Johny Luv - Palinka (7:32)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1721ADD32322ACF1848319010E1E2332797574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867499   (1066971) от 25.04.2026
-
-VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaytor - Nomad Bazaar (4:04)
-02. Ivan Suvorov - Orchard (5:43)
-03. Gavr - Kamishek (7:22)
-04. The Friend - Vodun (6:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456187E8FE5C79CC5570004A792DECF45D86F163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867545   (1066928) от 25.04.2026
-
-Paul Mauriat - Magic (1982) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come vorrei
-02. Empty Garden
-03. New York New York
-04. Hard To Say I'm Sorry(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78D1A7224ED9105F176D4C057CB9034FEF0FEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867233   (1066774) от 24.04.2026
-
-VA - Король и Шут. Навсегда (2026) [MP3|320 Kbps] <Punk Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066774.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Андрей Князев/Алексей Горшенёв/КняZz - Лес (OST «Король и Шут. Навсегда»)
-2. Андрей Князев - Ром (OST «Король и Шут. Навсегда»)
-3. Король и Шут - Фокусник (OST «Король и Шут. Навсегда»)
-4. Король и Шут - Отражение (OST «Король и Шут. Навсегда»)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77475A3BEDF68AD9037AD369873BFF069E4E40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866962   (1066732) от 24.04.2026
-
-David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World (3:27)
-02. Someday Soon (4:12)
-03. That's What the Lonely Is For (3:40)
-04. Show the Way (3:44)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 55:06.333 (145 809 300 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4E9E0D3AF4B5DA4707AB816302ABDF1D85DB7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866507   (1066304) от 21.04.2026
-
-Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyler Bates - Big Wick Energy (1:48)
-02. Lola Colette - Nowhere to Run (2:54)
-03. Tyler Bates - Sand Wick (2:30)
-04. Tyler Bates - Change Your Nature (1:47)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060138B3A3DB1703D191736EE36A106B1BA0BBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866526   (1066299) от 21.04.2026
-
-Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening (1:44)
-2. Kung-fu  (3:49)
-3. Refrigerator (1:57)
-4. Making Buns (1:42)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AE75D0324869831C89F16C47E6A5298CE32AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

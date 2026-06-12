@@ -1,3 +1,90 @@
+###  Публикация: 1731780   (52457) от 22.06.2024
+
+VA - Oriental Deep 5 (2024) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Esteban - Four Legs (8:50)
+002. Diego Galloso - La Dama De Los Lobos (8:33)
+003. Valer den Bit - Nadezhda (8:25)
+004. Ferlock - Vranjanka (8:17)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4767355FBE15D774B7C39B5CE2FBE584CEB94F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731506   (52349) от 23.06.2024
+
+VA - РАДИО БАТЯ - 013 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Валерия - Капелькою (03:54)
+02. Terence Trent D'Arby feat. Des'Ree - Delicate (04:17)
+03. ЭGO - Фитилёк (03:14)
+04. Plazma - Angie (Gimme Fire) (04:26)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D1A514A4E4406A49CA1D4A1ED7EAEBDE96C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732382   (52204) от 24.06.2024
+
+VA - Music News vol.392 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anna Kravt - Танцы Среди Огня (03:32)
+ 002. 6LACK - Fuck The Rap Game (04:10)
+ 003. Aars - Такси (02:40)
+ 004. Acko & Snoop Dogg & CHXBB feat. Half Deezy - Go Gettas (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889A8D51C185187400B8AF34FE687F1207DA1DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732503   (52124) от 25.06.2024
 
 VA - РАДИО БАТЯ - 014 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
@@ -655,93 +742,6 @@ VA - Music News vol.396 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81470508526C19987393A97320D42A1B5FC5FD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735449   (50640) от 08.07.2024
-
-VA - Music News vol.398 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANETTA RO - Напополам (03:50)
- 002. 89ers feat. Rimini Rockaz - Kingston Town (02:47)
- 003. Alex Mica - Derana (03:10)
- 004. Alexander Pierce feat. Илья Тимошек & Bixame - Метель (04:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8D85BEEEEB0D6EB49CC15C5FEB07F54AAC8088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220326   (50506) от 10.07.2024
-
-VA - Spacesynth 4Ever Vol.1-7 (2016-2018) [MP3|320 Kbps] <Electronic, Spacesynth, Spacedisco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel F - Spacesynth Remix (Cover by Anton Eriksson) (2:23)
-02. Olivio Amon - Chernobyl (Original Mix) (6:12)
-03. Jsc - Outside The Galaxy (5:32)
-04. Sir NutS feat. Usa - Space Base (4:00)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SpacediscoПродолжительность: 12:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840B58A8572BF8972B22257957CEA087E88ED04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736165   (50397) от 11.07.2024
-
-VA - Spacesynth Forever (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abakus - New Era (5:33)
-02. Alphawave - Sky Hunters (5:06)
-03. Amateon - Space Elegia (4:13)
-04. Amateras - Cosmos Line (Ray Orion Remix) (6:17)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 04:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497CB0D0871F253C8A377C4BD1874024F23333E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

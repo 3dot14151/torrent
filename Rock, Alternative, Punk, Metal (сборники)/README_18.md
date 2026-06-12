@@ -1,3 +1,32 @@
+###  Публикация: 1126578   (765366) от 18.04.2017
+
+VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Day To Remember - Bad Vibrations 3:34
+002. Aeges - Weightless 4:27
+003. Aeverium - Can't Break Me Down 4:24
+004. Aeverium - Resurrected 4:58(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F591BF5094FE34A8353EE83F59EBBAE25C8C5ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126579   (765365) от 18.04.2017
 
 VA - I Love Music! - Indie amp Soft Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock, Indie>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215615   (757801) от 26.03.2018
-
-VA - 100 Hits Rock Vol.2 (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хелависа - Кракатук
-02. Звери - Я – молодец
-03. Хелависа - Шей
-04. Звери - Белое Красное(   Читать дальше...   )Жанр: RockПродолжительность: 06:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D66AF0CA83A0B543FCB1F085669A30723CEC9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

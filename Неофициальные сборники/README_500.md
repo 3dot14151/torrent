@@ -1,3 +1,32 @@
+###  Публикация: 1257130   (347371) от 25.10.2018
+
+VA - When Night Meets House (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aqua Sin Gas - Follow Me
+002. Felon Ft. Notelle - Ive Been Hoping
+003. Mor Avrahami - Kumei (Original Club Mix)
+004. Nicola Fasano - Finally(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA53CDA022A898DA5D9AA3DCC587B9A1AE819F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257132   (347034) от 25.10.2018
 
 VA - Premium 100 Love Dance (2018) [MP3|320 Kbps] <Dance>
@@ -743,35 +772,6 @@ VA - 100 Rock Ballads Vol.1 (2019) [MP3|320 Kbps] <Rock, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:596C1AC9B6F9D9E9CAE4B82EE86FBB05C0610BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073142   (345388) от 16.11.2016
-
-Lenny Wolf - Thy Kingdom Come (2016) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345388.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Living Out Of Touch 04:16
-02. What Love Can Be 05:13
-03. Get It On 04:20(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52CA136FE2A8EDF5A23E9AA35AF7A1D38B652F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 595790   (132312) от 29.12.2012
+
+VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dash Berlin feat. Chris Madin - Silence In Your Heart (Antillas Remix) (7:14)
+02. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Alexander Popov Remix) (6:09)
+03. Fred Numf & Etienne Overdijk - Endorphin (Original Mix) (6:52)
+04. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix) (6:15)
+05. James Dymond - Solar Decent (Original Mix) (8:58)
+06. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Shogun Remix) (8:21)
+07. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:17)
+08. Rave CHannel - Illusion (Original Mix) (8:05)
+09. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix) (6:43)
+10. James Dymond - Sunset Bench (Original Mix) (8:28)Жанр: TranceПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A384C695404B3F7FFE5FC413A5E401BEBA69D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595787   (132293) от 29.12.2012
+
+VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tritonal - Azuca - Club Mix
+02. Arty - Gentle Touch - Juventa Club Mix
+03. Adam Szabo - Lego - Original Mix
+04. Daniel Kandi - 3 Strikes UR In - Original Mix
+05. Lange - Crossroads - Original Mix
+06. Boxer - Utah Beach - Max Braiman Remix
+07. Tritonal - Everafter - Mike Shiver Remix
+08. C-Systems - Love Is Strong - Estiva Remix
+09. Fast Distance - Ys - Original Mix
+10. Robert Nickson - Suffer - Shingo Nakamura Remix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595783   (132227) от 29.12.2012
+
+VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out Of Heaven 03:53
+02. Rihanna - Diamonds 03:45
+03. The Lumineers - Ho Hey 02:43
+04. Taylor Swift - I Knew You Were Trouble. 03:39
+05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
+06. Ke$Ha - Die Young 03:33
+07. Maroon 5 - One More Night 03:39
+08. Flo Rida - I Cry 03:43
+09. Phillip Phillips - Home 03:30
+10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595789   (132215) от 29.12.2012
 
 VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
@@ -758,101 +863,6 @@ VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596815   (130753) от 31.12.2012
-
-VA - Близко к Диско (2012) 2CD / RG Музыка Ltd. / [MP3|320 кб/с]<italo-disco,pop,rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130753.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 (04:50:55)
-01. Sandra - (I'll Never Be) Maria Magdalena
-02. Billy Joel - A Matter Of Trust
-03. Noemi - All'infinito
-04. Gilla - Bend Me Shape Me
-05. Alphaville - Big in Japan
-06. Camomilla - Buenas Noches (Original)
-07. Roxanne - Charlene (Long Version)
-08. Moon Ray (Raggio Di Luna) – Comanchero
-09. Tango - Computerized Love (Original)(   Читать дальше...   )Жанр: italo-disco,pop,rockПродолжительность: 08:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6EDB31E4FF5CA289D1CBC2077914464E8FEB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596598   (130673) от 31.12.2012
-
-VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T1One при участии Карэн Кочарян (Karen) - Милая ( T1One Prod.)
-02. KReeD ft. Алексей Воробьев - Больше чем любовь
-03. ПИЦЦА - Париж
-04. Дима Карташов - Нашей с тобой песне название не нужно
-05. Максим Сэмпл - Танцы в минус
-06. Aleksandr Aliev aka HammAli - Любить друг друга никто не сможет запретитьЖанр: RapПродолжительность: 06:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524757   (130460) от 18.01.2022
-
-VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANDEROV, SAYFO - Вера (2:54)
-02. Ann Ci - С новым годом! (3:26)
-03. KAMENSKIY - Стать первым (2:24)
-04. Mireia - Холодно (3:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5574DFB3CFACA153A0D42B5016E19CA7E7A594E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

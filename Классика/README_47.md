@@ -1,32 +1,3 @@
-###  Публикация: 1594164   (177921) от 01.12.2022
-
-Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022) 2×CD [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- Alban Berg
-01. Piano Sonata, Op.1
-(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594318   (176580) от 03.12.2022
 
 VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -739,6 +710,35 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589725   (147865) от 15.12.2012
+
+Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, Мстислав Ростропович - Rachmaninov & Glinka Songs (1976/2006) [FLAC|Lossless]<Опера, вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Памяти Галины Павловны Вишневской и Мстислава Леопольдовича Ростропович1. Rachmaninov - 'Noc pecal'na' (The Night is mournful), op.26 no.12 (1906)
+ 2. Rachmaninov - 'Ne poi, krasavica' (Oh, never sing to me again), op.4 np.4 (1890?)
+ 3. Rachmaninov - 'Muzyka' (Music), op.34 no.8 (1912)
+ 4. Rachmaninov - 'Vesennaja voda' (Spring Waters), op.14 no.11 (1896)(   Читать дальше...   )Жанр: Опера, вокалПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

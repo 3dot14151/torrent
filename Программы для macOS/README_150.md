@@ -1,3 +1,55 @@
+###  Публикация: 1515603   (169436) от 07.12.2021
+
+MacX DVD Ripper Pro 6.6.2 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169436.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмотра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB3E00D155C619E88663EE777059CB8900A24FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672567   (169414) от 28.10.2023
+
+Loop Mash Up - Music Maker for Mac 1.2.12 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2023 Music TopiaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4ADC3464EC04AAAC48A9632F319B82104C99898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672351   (169411) от 28.10.2023
 
 bliss for Mac 20230927 U2B Intel/ARM [En]
@@ -627,59 +679,6 @@ Worksheet Crafter Premium Edition 2022.3.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549AA3618A1A1E38EB1921AF58446EBCA21ED5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596988   (168275) от 12.12.2022
-
-CodeRunner 4 v.4.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168275.jpg" />
-</div>
-
-
-###  Подробнее
-
-CodeRunner - универсальный редактор для программиста
-CodeRunner - отличный редактор для программиста с возможностью тестирования и запуска приложений написанных на любом из 22 языков программирования: AppleScript, C, C++, С#, Objective-C/Objective-C++, Java, Javascript (Node.js), jQuery, LaTeX, Lua, Perl, PHP, Python/Python 3, Ruby, Shell script или SwifТип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © Nikolai KrilПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C05FBE3DB836EE8C681F44ABD44573F1C009047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596889   (168221) от 12.12.2022
-
-FonePaw WhatsApp Transfer for iOS 1.6.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте приложение FonePaw WhatsApp Transfer for iOS для синхронизации всех чатов WhatsApp где угодно и когда угодно.Тип издания: macOS SoftwareРелиз состоялся: 25.11.2021Разработчик: © 2014 - 2022 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD26EC2762617EE00FC33D5699E23CD0BAAEB07
 ```
 
 https://mybot314.ru/tekegram_catalog/

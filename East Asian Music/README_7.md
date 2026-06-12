@@ -1,3 +1,32 @@
+###  Публикация: 819126   (609187) от 02.07.2017
+
+JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless|tracks] <Power Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.08.16 (JRMN-001) JORMUNGAND (C86)
+2015.08.14 (JRMN-002) Screaming Trance (C88)
+2016.08.13 (JRMN-003) Silent Enhancers (C90)Тип издания: DoujinЖанр: Power MetalФормат: KanColle VocalПродолжительность: 00:01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D0237DE8906DE4862BFBAE7B3A3AE77DB5F7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818350   (608975) от 02.07.2017
 
 ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
@@ -738,35 +767,6 @@ Melonbooks Records — Touhou Compilation CD-BOOK (2019) Touhou Vocal /Doujin/ [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E17E76BDCCCCCD4D63776982D7136B620D4754E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308591   (553703) от 15.06.2019
-
-Fuling Cat Mark — 8 альбомов (2013-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, Shibuya-kei>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2017.08.11 スターライトワンピースター (C92)
-2017.12.29 ギブミースカートショータイム (C93)
-2019.05.05 星の砂漠のマルクパージュ (   Читать дальше...   )Тип издания: DoujinЖанр: J-Pop, Shibuya-keiФормат: Touhou VocalПродолжительность: 00:04:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337CDD71BEB5F622B1298DD8BCAA00266F84E5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

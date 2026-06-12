@@ -1,3 +1,32 @@
+###  Публикация: 1486968   (1003860) от 04.08.2021
+
+Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of Dawn (3:48)
+02. Headed For A Fall (4:09)
+03. Getaway (3:46)
+04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607094   (994701) от 22.01.2013
 
 VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
@@ -714,35 +743,6 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51290CE84072D29B5D905755392961CA95405F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374712   (870764) от 11.04.2020
-
-Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under A Violet Moon (04:24)
-02. Castles And Dreams (03:34)
-03. Past Time With Good Company (03:24)
-04. Morning Star (04:41)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
 ```
 
 https://mybot314.ru/tekegram_catalog/

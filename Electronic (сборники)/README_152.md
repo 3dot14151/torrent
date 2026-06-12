@@ -1,3 +1,38 @@
+###  Публикация: 562146   (405623) от 19.10.2012
+
+VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405623.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:47] 01. SL Curtiz, Domovnik - Timeline (Edy Valiant Remix)
+[06:26] 02. Futuristic Polar Bears, Danny Howard - Red Man Rising (Miami 2012 Edit)
+[06:12] 03. DJ Ortzy, Nico Hamuy - Lose Control (feat. Alex Peace) (Original Mix)
+[06:37] 04. A.C.N. - Epic (Original Mix)
+[06:44] 05. Muzzaik - The Rhythm of Life (feat. Stephan Parker) (Belocca Remix)
+[07:39] 06. Francesco Diaz, Young Rebels - Fiesta (Original Mix)
+[06:04] 07. Lucas Reyes, Peter Brown - We Shall Overcome (Original Mix)
+[07:20] 08. David Costa, Nick Fisher - Sunshine (Club Mix)
+[05:39] 09. Funky Truckerz - Work It (Original Mix)
+[06:45] 10. Futuristic Polar Bears, Jonathan Ulysses - Want You Back (In My Life) (feat. Pryce Oliver) (Vox Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C194F73A4BC9F3C3BF2E66B237381B148814E8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562280   (405613) от 19.10.2012
 
 VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
@@ -764,35 +799,6 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F07C9C4E45251E0FCE7BB7854768D14873826EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171089   (397775) от 03.10.2017
-
-VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397775.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Antidote - Vedrasonic (Original Mix)
-002. Gravitech - Fractures (Original Mix)
-003. Kiraz - The Upside Down
-004. Rubix Qube - Chief Whip (Feat. Zyloss)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12 :00 :58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F50E59A34FA12C7B3607637B71397A65FE212D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

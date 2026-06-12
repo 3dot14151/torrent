@@ -1,3 +1,61 @@
+###  Публикация: 955244   (335150) от 10.11.2015
+
+Grimes - Art Angels (2015) [OGG| 454-526 кб/с]<Synthpop, Indie Pop, Dream Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing And Not Being Normal
+02. California
+03. SCREAM (feat. Aristophanes)
+04. Flesh Without Blood(   Читать дальше...   )Жанр: Synthpop, Indie Pop, Dream Pop, DanceПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056BC0F4993D589A56394DCAC97E9058D65EB288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955189   (335146) от 10.11.2015
+
+Madonna - Enigmatica (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 Frozen
+03 I'll Remember (Remix)
+04 Sanctuary(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36D7C9A0EDB872C94306E1C99802F6110AAD8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331160   (334997) от 13.10.2019
 
 Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
@@ -684,64 +742,6 @@ Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581787   (324598) от 08.10.2022
-
-Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive
-02. Captain Nemo
-03. The Second Element
-04. Ship Of Fools(   Читать дальше...   )Жанр: Pop, Downtempo, Synth-popПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2489F02AA8A7E8512D8070C4658C1D94B0D4BAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581939   (324593) от 08.10.2022
-
-Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Say Goodbye (Con Te Partiro) (Featuring Andrea Bocelli)
-02. The Fly
-03. Why
-04. Murder In Mairyland Park(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

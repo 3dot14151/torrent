@@ -1,29 +1,3 @@
-###  Публикация: 1224746   (663907) от 12.05.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 278 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663907.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BB2668B37B0B7FE62AFA0EF266C94569286075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224749   (663905) от 12.05.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 279 [JPG]
@@ -678,6 +652,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E82FC7D74E771486B34489D6FF8964833CB9A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225707   (658588) от 17.05.2018
+
+Иконки - Creative Market - 400 Places Line Icons - 2321829 [AI, CDR, EPS, JPG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки - чёрно-белые контурные в векторе и не только.
+Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 1024 x 1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
 ```
 
 https://mybot314.ru/tekegram_catalog/

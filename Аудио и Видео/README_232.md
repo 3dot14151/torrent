@@ -1,119 +1,3 @@
-###  Публикация: 1537913   (243791) от 18.03.2022
-
-VA - Dirty Weekend (25 Groovy House Tunes), Vol. 4 (2022) [AAC|~335 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peverell - I Love It (Loris Buono Remix) (5:18)
-02. Martin Sharp - Disco Cat (Original Mix) (8:15)
-03. Joka Chups - Space Funk (Extended Mix) (7:03)
-04. Baseek, Ermanito - Mumbasa (Original Mix) (5:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18468A851C15C707DE560EAFCC3B1D334CA212E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537907   (243782) от 18.03.2022
-
-VA - Deep & Joy, Vol. 4 (2022) [AAC|~317 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circles Of Sound, Yasmin Elvira Steenholt - Won't Give Up (7:16)
-02. Sak Chaime - How To Love (5:17)
-03. Antennasia - Velowitch's Trick (DJ 3000 Motech Remix) (7:07)
-04. MAGEE, Thando - Find You (Teleporter) (Radio Edit) (3:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BF9A1165D6CF1620D81355FEFFFFFD4A7BB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537695   (243774) от 18.03.2022
-
-VA - Chillax (20 Chill-Out Tunes), Vol. 2 (2017) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann - Birds In The Sun (3:08)
-02. Peter Pearson - It's Getting Late (5:39)
-03. Lemongrass - Moment De Conscience (2:55)
-04. Living Room - New Horizon (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859EF00DC049169FE89686EBE704E772DFCEC5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537707   (243764) от 18.03.2022
-
-VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 2 (2019) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo, Chill Hop, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Smokey - Sunset (Original Mix) (3:15)
-02. DJ Cubaton - Home Sweet Home (Original Mix) (14:40)
-03. Züell - Climax (Original Mix) (5:21)
-04. SelivaN DJ - Live (Original Mix) (2:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Chill Hop, JazzПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196614911423B04C288CDFF75080DAF1C0926935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537903   (243758) от 18.03.2022
 
 VA - Dirty Weekend (25 Groovy House Tunes), Vol. 3 (2022) [AAC|~331 Kbps] <House>
@@ -745,6 +629,122 @@ VA - Chillout, Love & Sex (Long Playing Edition) (2017) [AAC|~308 Kbps] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B224D3FF0CC6AFD64BD3AE1D5076555A53C86BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541780   (242422) от 05.04.2022
+
+VA - White Sands (Chill-Out & Electronic Collection), Vol. 4 (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Breaking Clouds (4:50)
+02. Aquascape - Atlantis (Part One) (4:55)
+03. Stuce The Sketch - Mawazo (5:32)
+04. Dub Mars - Snatch Of A Melody (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509EC73A9084C1E80EB08D41876785D9555A4CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542123   (242374) от 05.04.2022
+
+VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Huthamaki - The Truth (Original Mix) (6:42)
+02. Robert Babicz - Let`s Be Friends (Original Mix) (8:07)
+03. Livio Sandro - Lazy Trip (Original Mix) (8:01)
+04. The Electronic Advance, Somnia - Interstellar (Original Mix) (7:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C385F43903F1F418786CF3D3B7927C2A2CBC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542456   (242089) от 15.04.2022
+
+VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 2 (2014) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Reunited, I Got You on Tape - Somersault Ballout (Gauzz Mix) (5:19)
+1.02. Shelley Short - Coo Coo Bird (Rødsten & Jesper Rummenigge Remix) (5:49)
+1.03. Razzy Bailey - I Still Hate Hate (Santiga Original Mix) (6:58)
+1.04. Rosie Gaines - Closer Than Close Reworked (Schwarz & Funk Classic House Mix) (8:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC6D6AEE3E91908D7C12216B9BE98718BB730D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542464   (242055) от 15.04.2022
+
+VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bar & Bar - Night in Rio (Radio Edit) (3:56)
+02. Madeja Blanca - Cinco de la Tarde (Latin Mix) (4:22)
+03. Jeanclaudemaurice - Ultimo Tango A Santiago (4:51)
+04. Bessie Boni, Massimo Mantovani - Skylark (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617C52031504BCB3845B1169CAFC733854179573
 ```
 
 https://mybot314.ru/tekegram_catalog/

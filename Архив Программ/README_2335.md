@@ -1,3 +1,29 @@
+###  Публикация: 1800370   (15889) от 02.06.2025
+
+Topaz Photo AI Pro 4.0.1 Portable by 7997 + Models [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6843FE4F1B30DA5A04FF38E9BFC987DC56759854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800386   (15887) от 02.06.2025
 
 Topaz Photo AI Pro 4.0.1 RePack by KpoJIuK [En]
@@ -644,32 +670,6 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B23B03A12A5536B44DBA9C607B5EE4A945E600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800672   (15590) от 05.06.2025
-
-Capture One 23 Enterprise 16.6.1.2962 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6085184BB4822C46526FCE4475490631EBAC97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 597386   (1000505) от 02.01.2013
+
+VA - Citrine. My Dream Beautiful Yellow Crystal (2005) [MP3|320 кб/с]<New age, Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000505.jpg" />
+</div>
+
+
+###  Подробнее
+
+(07:03) 1. The feeling of yellow crystal
+(06:52) 2. The buddist of the yellow crystal
+(06:06) 3. The yellow crystal inspiration
+(06:43) 4. The propitious yellow crystal
+(12:39) 5. The full clean moon of yellow crystal
+(07:27) 6. The shine of yellow crystal yellow crystal
+(06:30) 7. My dream beautiful yellow crystalЖанр: New age, InstrumentalПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F888D12ECCB9ECB07ED007E2DFB3330DB16DD9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597263   (1000490) от 02.01.2013
 
 VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>
@@ -780,35 +812,6 @@ AlbumsЖанр: J-PopПродолжительность: 00:13:23
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E888AAB3AC3DFBBFB53B990E76F8BDBBF0FFC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621223   (958804) от 23.02.2013
-
-the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JRockПродолжительность: 00:13:29
-01. I Just Can't Breathe... [05:09]
- 02. It Really Makes My Day! [03:57]
- 03. Tsumetai Hana -Acoustic Version- [04:23]
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66C2DB99B1879A7DA52041D21F322D694C51C11
 ```
 
 https://mybot314.ru/tekegram_catalog/

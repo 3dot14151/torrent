@@ -1,3 +1,29 @@
+###  Публикация: 1770246   (32436) от 31.12.2024
+
+AIMP 5.40.2653 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32436.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60595449D90ECCEDBC386F4D1D64AC2A50E77FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770373   (32435) от 31.12.2024
 
 Topaz Photo AI 3.4.3 RePack by KpoJIuK [En]
@@ -647,32 +673,6 @@ Clipboard Master — удобный и всеобъемлющий инструм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0740BD542838DD7F54890FED3E3173AD837C862A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771367   (31794) от 06.01.2025
-
-Any Video Downloader Pro 9.1.10 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6D9D4A1A3A270C4368CAD78FB80AA54DD1D346
 ```
 
 https://mybot314.ru/tekegram_catalog/

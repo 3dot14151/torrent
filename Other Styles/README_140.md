@@ -1,3 +1,527 @@
+###  Публикация: 1334899   (287735) от 02.11.2019
+
+Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Contemplation 02:04
+2. Sleepless Summer 06:40
+3. New Moon 04:11
+4. Last Monday 04:44(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCFDE2400DC4A514190FEF222812A62BF6DF9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335045   (287177) от 02.11.2019
+
+Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aum 02:23
+2. Krishna Sounds 03:24
+3. Follow your nature 01:44
+4. Kundalini Yoga Music 02:26(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A7590BBB305E2E156DBC86B9FFD6007FA919A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263359   (286299) от 20.11.2018
+
+Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Gateway
+02. Some Would Call That Magic
+03. Matt and Jane
+04. The Accident(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4CC01849FF9EDA479875E36D1FEB61D4E47A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081012   (286265) от 08.12.2016
+
+Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Achillea - Prelude (0:59)
+02. Ragnarok - Twilight Of The Gods (5:57)
+03. Odin's Hill (7:09)
+04. The Monks Of Lindisfarne (3:12)(   Читать дальше...   )Жанр: Enigmatic, New Age, DowntempoПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0014E0F102C2A48BE91DD11070CCB0D03DEE64AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160693   (286238) от 24.12.2009
+
+Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Siddhartha (9:14)
+2. The Gates (9:45)
+3. Celebration (9:46)
+4. Revelation (5:58)
+5. Keeper Of Mystery (5:31)
+6. Tibet (5:53)
+7. Temptation (7:36)
+8. Windrider (5:05)
+9. Returning To Now (4:49)Жанр: New Age/MeditativeПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262521   (285928) от 20.11.2018
+
+Clannad - The Real... Clannad (The Ultimate Collection) 3CD (2018) [FLAC|Lossless|tracks + .cue] <Folk Rock, World, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Theme (From "Harry's Game")
+02. Caislean Oir
+03. In a Lifetime(   Читать дальше...   )Жанр: Folk Rock, World, CelticПродолжительность: 03:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCCD485D04DEF1F05364B96BF67CDE481707D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079266   (285715) от 08.12.2016
+
+Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music, Instrumental, Chor.>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fall of the Fountain World [04:39]
+02 Pegasus [04:30]
+03 Vanquish (feat. Felicia) [03:16]
+04 New World Order [03:22](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Instrumental, Chor.Продолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57301EEFFD3DAE58624D9C831C4704431EBEF6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335676   (285668) от 03.11.2019
+
+Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated (01:28)
+02. My Name Is Dani (03:39)
+03. REV 9 (03:10)
+04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0A635FF39633118FFB6279E7015B178C338D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335677   (285516) от 03.11.2019
+
+Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated (01:28)
+02. My Name Is Dani (03:39)
+03. REV 9 (03:10)
+04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733667   (285051) от 13.12.2013
+
+Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) /Special Edition/ by Howard Shore [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335808   (284555) от 04.11.2019
+
+Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - High Time (2:58)
+02 - Dime Store Cowgirl (3:35)
+03 - Late To The Party (3:38)
+04 - Pageant Material (3:54)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263393   (284361) от 21.11.2018
+
+Various Artists - Лондонские поля/ London Fields (Original Motion Picture Soundtrack) WEB-DL (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Barber - Destiny
+02. James Bagshaw - How Do You Sleep
+03. Adam Barber - Her Curves Kill
+04. The Cold and Lovely - Not with Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D25AC4B8394F82C550CEB2C2F130033FDA61EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335982   (284259) от 04.11.2019
+
+Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tracks] <Folk, World, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le château magique (4:10)
+02. Visions (3:46)
+03. La libellule et le baobab (5:06)
+04. Sand Sailor (4:13)(   Читать дальше...   )Производство: Les Jeudis Du Rock - 3615934412514Жанр: Folk, World, Instrumental, Hurdy GurdyПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963972   (283946) от 10.12.2015
+
+Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Late Evening Chill (10:17)
+ 02. Summer Wind (09:07)
+ 03. Relaxing At The Beach (10:16)
+ 04. Beach Bar Grill (10:15)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153193FC0C8D320F1EF24066DEA6EAD0AE459F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081428   (283033) от 10.12.2016
+
+Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Dawn [00:05:03]
+03 -  Stars [00:03:29]
+04 -  Eon III [00:04:40]
+05 -  Eleanor [00:01:34](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081231   (283029) от 10.12.2016
+
+Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Footprints [00:03:04]
+02 -  Heaven Is Real [00:05:24]
+03 -  Wedding Theme [00:04:09]
+04 -  Music Therapy [00:03:36](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A991FEEC3A2A591FBC5CEA4F76542B5BAD7E13C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081383   (282910) от 10.12.2016
+
+Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firewalk [11:06]
+02. Earth Spirit [13:09]
+03. Ocean Goddess [10:47]
+04. Breath of the Earth [12:23](   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9C47C789897BB3819B30FDE88D75357A4617DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849063   (282849) от 12.12.2014
+
+VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terry Oldfield - Majesty (5:35)
+02. Midori - Gregorian Soul (5:12)
+03. Phil Thornton - The Mask of Seduction (Short Version) (5:00)
+04. John Richardson - Spiritual Rhythms (Short Version) (5:00)(   Читать дальше...   )Жанр: New Age, EnigmaticФормат: 2хCD, CompilationПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081199   (282795) от 10.12.2016
 
 Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronica>
@@ -223,525 +747,6 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA99D0B94EC18FD04C602DBAE10D28BACD2BA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 423717   (281862) от 17.12.2011
-
-Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plaine, ma Plaine (3:02)
-02. Les deux Guitares (3:35)
-03. Le Sarafan Rouge (2:53)
-04. Katioucha (2:03)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264369   (281089) от 23.11.2018
-
-Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство Bull Terrier Records представляет первый в истории официальный инструментальный трибьют Егору Летову и группе ГРАЖДАНСКАЯ ОБОРОНА! 12 треков, исполненных Евгением Алексеевым на концертном рояле Steinway & Sons Model D, записаны в студии SuperSizeRecording (Будапешт, Венгрия). Средства для записи и производства альбома были собраны благодаря сотням (   Читать дальше...   )01. Моя Оборона (3:17)
-02. Со Скоростью Мира (2:48)
-03. Всё Как У Людей (3:16)
-04. Без Меня (3:24)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081760   (280909) от 11.12.2016
-
-Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Introduction [00:02:00]
-02 -  Love [00:11:02]
-03 -  Faith [00:10:02]
-04 -  Trust [00:10:02](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081398   (280899) от 11.12.2016
-
-VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vechigen – Christmas Shooting Stars
- 02. The Rex-Factor – Dog Ate My Shoe – Chill Mix
- 03. Stars Over Foy – Until We Meet Again in Heaven
- 04. Jamie Duvel – Ballroom – Piano Room Mix(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F06827F2FA6D96605597A69225109127A5FFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336424   (280808) от 06.11.2019
-
-Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Late (02:24)
-02. We Will Break That Record (02:33)
-03. Anything Can Happen In This Weather (02:08)
-04. You'll Get Your Chance (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690C85E6A005A8C35C7C343691BC5CA937B2561B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336447   (280802) от 06.11.2019
-
-Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Original Score + Original Soundtrack) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. YUNGBLUD - Time In A Bottle (04:36)
-02. The Heavy - Better as One (02:56)
-03. Logic feat. Wale Folarin (as Wale) & John Lindahl - 100 Miles and Running (05:53)
-04. A$ton Wyld - Next Level (02:18)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A37A8E6316B679033448105FCF3F4170A702461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336449   (280676) от 06.11.2019
-
-VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Unofficial Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. YUNGBLUD - Time In A Bottle (04:36)
-02. The Heavy - Better as One (02:56)
-03. Logic feat. Wale Folarin (as Wale) & John Lindahl - 100 Miles and Running (05:54)
-04. The Who - Won't Get Fooled Again (03:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1AD5024070C344223326D1F344F4E00EF49FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336448   (280671) от 06.11.2019
-
-Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Original Score + Original Soundtrack) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Score, Soundtrack •Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336302   (280668) от 06.11.2019
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HOW THE WEST WAS REALLY WON (03:45)
-02. ORPHANS OF KRYPTON (01:57)
-03. GARRYOWEN (01:18)
-04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187487   (280601) от 28.11.2017
-
-Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Invocation (4:06)
-02.  Mindful Chant (3:51)
-03.  Healing Tibet Bowls (3:20)
-04.  Offering (3:21)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187382   (280435) от 28.11.2017
-
-Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Celebrate Christmas (2:32)
-02.  Walking In The Air (3:56)
-03.  You'll See The Snow (4:09)
-04.  Ding Dong (2:14)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336303   (280327) от 06.11.2019
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HOW THE WEST WAS REALLY WON (03:45)
-02. ORPHANS OF KRYPTON (01:57)
-03. GARRYOWEN (01:18)
-04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3695523D041A087498B1F8BB93F29F2411C67D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336423   (280324) от 06.11.2019
-
-Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Late (02:24)
-02. We Will Break That Record (02:33)
-03. Anything Can Happen In This Weather (02:08)
-04. You'll Get Your Chance (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3729055B62B4545545B728C907A99F019C8A82B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187250   (280312) от 28.11.2017
-
-VA - Fitness Latino Party 2018,  3CD (2017)   [MP3|320 Kbps] <Reggaeton, Latin Pop, Samba>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J Balvin, Willy William - Mi Gente 03:09
-02. Luis Fonsi, Daddy Yankee - Despacito 03:48
-03. Nacho - Bailame 03:27
-04. The Boy Next Door, The Boy Next Door, Fresh Coast Feat. Jody Bernal, Fresh Coast, Jody Bernal - La Colegiala 02:59(   Читать дальше...   )Жанр: Reggaeton, Latin Pop, SambaПродолжительность: 03:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BE14CFC73EDD6248C4556BBD8368B4DBE4189F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081945   (280257) от 11.12.2016
-
-Piano Tribute Players - Piano Tribute to Sia (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive [00:04:05]
-02. Bird Set Free [00:04:02]
-03. One Million Bullets [00:04:11]
-04. Move Your Body [00:03:36](   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383FA79670E70DB152E359336F99D37ED159E0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263900   (279462) от 24.11.2018
-
-Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm Evening Breeze
-02. 4-7-8
-03. A Chill in the Air
-04. 5 Seconds In, 5 Seconds Out(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58A0635478FE113D5D74FA4FC3DB7F0C8404326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264206   (279458) от 24.11.2018
-
-Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relax (8:13)
- 02. Flying Meditation (9:22)
- 03. Dunes (6:14)
- 04. Dewdrops (8:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 03:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC548BE74876FBA697DC1F1DE0B157BAB3BEA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263516   (279352) от 24.11.2018
-
-James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [FLAC|Lossless|tracks + .cue]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thestral Chase (8:05)
-02. Newt and Leta (2:32)
-03. Dumbledore (2:11)
-04. The Kelpie (1:33)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01EA540646AD4B42F56FE2C78BB0A9A84263477
 ```
 
 https://mybot314.ru/tekegram_catalog/

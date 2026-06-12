@@ -1,61 +1,3 @@
-###  Публикация: 1169085   (403152) от 27.09.2017
-
-Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Designs
-02 - Predestined
-03 - Mechanical Mind
-04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169689   (402405) от 28.09.2017
-
-Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Natalie Cole - Wild Women Do
-02 - David Bowie - Fame 90
-03 - Go West - King Of Wishful Thinking
-04 - Jane Wiedlin - Tangled(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169632   (401596) от 29.09.2017
 
 Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
@@ -769,6 +711,62 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415397   (376341) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574330   (375454) от 12.11.2012
+
+Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys / RZA - The Baddest Man Alive
+  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
+  03. Kanye West - White Dress
+  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
+  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

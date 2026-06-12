@@ -1,3 +1,148 @@
+###  Публикация: 1855357   (1058063) от 23.02.2026
+
+Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Indie Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here (3:11)
+02. Rubber Band Man (3:38)
+03. The Banjo Song (3:50)
+04. Run Together (3:39)(   Читать дальше...   )Жанр: Folk Rock, Indie FolkПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E8039C4A2E6F2F900F5513927FED0ABFC9A851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855318   (1057915) от 22.02.2026
+
+Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, OST>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Capri-Revolution
+Damonen
+Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, OSTПродолжительность: 4 CD, 02:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853664   (1057567) от 18.02.2026
+
+Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Что ж вы, девки, приуныли [00:02:22]
+02 - Он в простынях увяз по локоть [00:02:27]
+03 - Я в кольчугу одет [00:03:27]
+04 - Первый снег начал танцы свои до упада [00:01:20](   Читать дальше...   )Жанр: Russian Folk PopПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123F85C0DAD948063B1312016D0F18521000534A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854432   (1057296) от 18.02.2026
+
+VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .cue] <Stage & Screen, Musical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Barrowman - Love Changes Everything (Aspects Of Love) (3:03)
+02. Valerie Masterson - Hello Young Lovers (King And I) (3:15)
+03. Henry Wickham - On The Street Where You Live (My Fair Lady) (2:29)
+04. Josephine Barstow - As Long As He Needs Me (Oliver) (4:18)(   Читать дальше...   )Жанр: Stage & Screen, MusicalПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28901FA4C5FE66327657E260BC8D8C1FE51B886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853569   (1056800) от 13.02.2026
+
+VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Deadushki - Track 01
+2.Deadushki - Track 02
+3.Deadushki - Track 03
+4.Deadushki - Track 04(   Читать дальше...   )Жанр: metal,HardПродолжительность: 00:01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285F4C25F512B88584A5077ABDD077754BA837DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851437   (1055677) от 06.02.2026
 
 The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
@@ -515,35 +660,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608721   (1043501) от 31.01.2023
 
 VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
@@ -624,122 +740,6 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610304   (1041524) от 10.02.2023
-
-Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041524.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD ONE:
-01. Glorious Sun Remix
-02. Muliya
-03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610792   (1041359) от 11.02.2023
-
-Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Of Fire [05:03]
-02. The Counterclockwise Circle Of Dance [05:46]
-03. Return From River Island [06:11]
-04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438462   (1040616) от 10.01.2021
-
-Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentine
-02. True Love (From "FROZEN: THE BROADWAY MUSICAL")
-03. Memories Of You
-04. Have I Told You Lately That I Love You?(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 03:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611909   (1040435) от 14.02.2023
-
-Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blissful Moments (3:12)
-02. Inner Pleasure (3:35)
-03. Secrets of Intimacy (3:40)
-04. Hypnotic Moods (4:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82CBB7E7D9B23EBBA0ACFC666FB7C54725FF2A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1803551   (13298) от 27.06.2025
-
-Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13298.jpg" />
-</div>
-
-
-###  Подробнее
-
-The best way to get better at chess is to build level by level, floor by floor. You have to master each level before you can move up to the next one.
-
-This course is the embodiment of that idea. Candidate Master Can Kabadayi has worked through thousands of amateur games to put this specialized training program together. A cognitive scientist by training, he has taken (   Читать дальше...   )Производство: ChessableЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: АнглийскийПродолжительность: 11:10:57Реклама: нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818119   (2781) от 14.09.2025
 
 Фёдор Смазнов | Большой курс по обмену углеводов (2025) WEB-DL [AD] [RU]

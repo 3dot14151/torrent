@@ -1,3 +1,119 @@
+###  Публикация: 1464295   (1019975) от 21.04.2021
+
+Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surjya Debata
+02. All Your Grace
+03. Nijhum Rate
+04. Aum Govindaya Nama(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464189   (1019973) от 21.04.2021
+
+Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragrance
+02. Himba
+03. Mother Earth
+04. Heartlight(   Читать дальше...   )Жанр: Native American, Didgeridoo, TranceПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464431   (1019728) от 22.04.2021
+
+OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саундтрек>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (2:39)
+02. Расследование (3:02)
+03. 1947 (1:43)
+04. Маркиз Де Шамм (3:22)(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C21F80FF669231B70EFC8952031A86C1910647A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464851   (1019632) от 23.04.2021
+
+Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, Latin>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Mist (3:46)
+02. The Temple at Delphi (3:39)
+03. Don Juan (3:55)
+04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New AgeПродолжительность: 08:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAD341FABF92DC4E4F3BEAF3AC5580B59F91575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465267   (1019312) от 25.04.2021
 
 Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative>
@@ -631,122 +747,6 @@ Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476023   (1011928) от 09.06.2021
-
-ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Еду-доеду
-02. Две сестры
-03. Танго добрых ветров
-04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476442   (1011493) от 12.06.2021
-
-Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in the Heart 07:13
-02. The Eye of God 02:16
-03. The Universe 04:23
-04. Caruso 05:43(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08223BB4C7CADFD716A88BF98E3B5F893829D4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477076   (1011359) от 13.06.2021
-
-The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Dixie
-02. Mama Has Gone
-03. Heads Turn
-04. Handsome Boy(   Читать дальше...   )Жанр: Pub RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC7D905BD5FD17E51BCE57FF164BB9FC4E7EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478902   (1010005) от 21.06.2021
-
-Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le prince de Myvatn - The Prince of Myvatn
-02. Le cirque d'Asbyrgi - The Cirque of Asbyrgi
-03. Quand la terre mijote - When the Earth Bubbles
-04. Les cygnes chanteurs - Whooper Swans(   Читать дальше...   )Жанр: NatureПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

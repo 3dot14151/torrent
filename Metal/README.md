@@ -87,35 +87,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858901   (1060665) от 13.03.2026
-
-Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1060665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Revolution (Intro)
-2. Liebe Glaube Monster
-3. Wunderschön
-4. Monster(   Читать дальше...   )Жанр: Industrial Gothic Metal, DarkwaveПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856492   (1058815) от 28.02.2026
 
 Zed Yago - At The Edge Of The World (2026) [MP3|320 Kbps] <Heavy Metal>
@@ -747,6 +718,35 @@ Myntra - Subnivium (2025) [MP3|320 Kbps] <Metalcore, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A35E3E293016BB82B960A2DC31EAB9BFE8E5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841438   (1048022) от 11.12.2025
+
+Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 00:43
+02. Burning Skies 05:45
+03. The Blood Red Horizon 04:29
+04. Face The Obliteration 04:40(   Читать дальше...   )Жанр: MDMПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B815A53E45794E83DF90538AB2DE3BDEED9DC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

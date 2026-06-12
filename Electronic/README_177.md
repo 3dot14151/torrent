@@ -1,3 +1,148 @@
+###  Публикация: 1018574   (756119) от 20.05.2016
+
+Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstractions (Original Mix) (9:44)
+02. Solar Night (Original Mix) (6:47)
+03. Ashes (Original Mix) (6:29)
+04. City Lights (Original Mix) (6:51)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A35173B61A10D0EE709C3A5316702F6259BD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395399   (755571) от 10.07.2020
+
+The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Guy's In Love (With You) (4:34)
+02. Where Is The Love? (2:03)
+03. La Mer (3:18)
+04. Cry (3:16)(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280903   (755296) от 06.02.2019
+
+Boris Budarin - Moda Chillout 1-2 (2005-2006) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparenty (4:54)
+02. Somewhere (4:36)
+03. Lake (3:14)
+04. Hastily (9:11)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57FB48F66EB55B723D655FB487F0A49AA16F985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281215   (755291) от 06.02.2019
+
+Groove Affair - Easy Listening Lounge (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Babylon
+2. Back To Home
+3. Waterman
+4. For Kids(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A787D66456C346A11BACED246D0F971DAB7453B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395161   (755281) от 10.07.2020
+
+Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|image] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755281.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cocoloco (Mixed) (6:47)
+2. Face Slap (Mixed) (7:00)
+3. Panic Room (Mixed) (5:46)
+4. Eternity (Mixed) (5:23)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281045   (755205) от 06.02.2019
 
 VA - Top Of The Lounge Music on Ciacofon Records (2018) [MP3|320 Kbps] <Downtempo, House, Dancehall>
@@ -598,151 +743,6 @@ VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523201   (753146) от 10.01.2022
-
-VA - Hardstyle Workout 2022 [MP3|320 Kbps] <Hardcore, Dance>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frequencerz EMBASSY - The Ritual (4:25)
-02. Gunz For Hire - Ongedierte van de Nacht (4:01)
-03. TNT Technoboy Tuneboy - Reverse the Bass (3:13)
-04. Ran-D Xception Diesel - Heaven & Hell (3:53)(   Читать дальше...   )Жанр: Hardcore, DanceПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4786288B1FA0BEB00FB67CFB3882AB8B98A5B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216207   (753064) от 29.03.2018
-
-VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION - Agarimo (Extended Mix)
-02. Ferry Corsten - Lonely Inside (Extended Ferry Fix)
-03. Skylex - We Were (Extended Mix)
-04. RAM - Serengeti (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0317B5C229F06A77E31DB7D5EC0F2836CE070D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216064   (752840) от 29.03.2018
-
-VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Body Language
-02. Florito - Saigon Morning
-03. Pier-O - Fermer Les Yeux
-04. Soulavenue - Swept Away(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216068   (752828) от 29.03.2018
-
-VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Into The Light
-02. Brazil Beat - Fragile
-03. Andrea Cardillo - Nuages (feat. Gabrielle Chiararo)
-04. Brazil Beat - Ain't No Sunshine(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216062   (752827) от 29.03.2018
-
-VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Avenue - One by One
-02. Simon Le Grec - I'm Still Waiting
-03. Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix)
-04. Gary B - Without You(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0346EA5F18BF8298D17F516EFA5DC55BF279B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

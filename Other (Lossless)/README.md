@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875711   (1072742) от 
+
+VA - The Orient Collective: Rituals of the Sunfire (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak - Pyramid of Light (8:02)
+02. Marga Sol - Pura Luhur (4:38)
+03. Kaisser Bouzriba - Dreamers (6:31)
+04. Don Lockwood - River Flows (5:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42297EA24EA144A651B36CA6C43E0746CA48740D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874064   (1071681) от 31.05.2026
 
 VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -717,35 +746,6 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 19013   (1027979) от 04.03.2021
-
-The Best of Paul Mauriat 10 CD
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01 BEGIN THE BEGUINE '90
-02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

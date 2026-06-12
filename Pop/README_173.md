@@ -1,3 +1,90 @@
+###  Публикация: 1555708   (567483) от 05.06.2022
+
+J. C. Riffaud - Emotion Life And Happiness (1979) LP [MP3|320 Kbps] <Electronic, Jazz, Easy Listening, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Storm (4:09)
+02. Air Ticket (3:32)
+03. The Song Of Little Bird (3:30)
+04. Blue Morning (2:54)(   Читать дальше...   )Жанр: Electronic, Jazz, Easy Listening, DiscoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555761   (567357) от 05.06.2022
+
+Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кики Ди (настоящее имя Полин Мэтьюс, Pauline Matthews; род. 6 марта 1947) - британская певица. Была первой белой блю-айд-соульной певицей, подписавшей контракт с мотауновским лейблом Tamla Records. За свою карьеру Кики Ди издала 40 синглов, 3 мини-альбома (EP) и 12 альбомов.Список альбомов:
+1977 - Kiki Dee
+1978 - Stay With Me
+1981 - Perfect Timing...Plus(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555642   (567332) от 05.06.2022
+
+Giorgio Scarpinelli Y Su Orquesta - Disc-O-Tango (1979) LP [MP3|320 Kbps] <Electronic, Instrumental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pastora (3:42)
+02. La Yumba (5:10)
+03. A Marietta (4:20)
+04. Sombras Nada Mas (4:27)(   Читать дальше...   )Жанр: Electronic, Instrumental, DiscoПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791C14A00E0A59477455DFF3E78E9180B3113D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152334   (567327) от 22.07.2017
 
 Love Fever - Love Fever (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -658,99 +745,6 @@ Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A2F098E8026273027D7559201B0D62492D6802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304237   (565128) от 25.05.2019
-
-VA - Now That's What I Call Music! 69 (2019) USA Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Breathin'  (3:13)
-02. Bastille & Marshmello - Happier  (3:32)
-03. DJ Snake, Selena Gomez & Ozuna feat. Cardi B. - Taki Taki  (3:31)
-04. The Chainsmokers feat. Kelsea Ballerini - This Feeling  (3:15)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE9C0B963F8516421CE6A183DBC82255CD72461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203316   (565119) от 25.05.2019
-
-Маргарита Суханкина-Маруна - Неизданные песни (2002) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остановиться (4:10)
-02. Не исчезай (4:14)
-03. Отелло (4:30)
-04. Слишком поздно (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC93CA59337CA0573D075F9AA7C1CF8601B3B32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529677   (564925) от 01.08.2012
-
-Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 35 be burbuliuku
-02. Ispildyk mano norus
-03. Olialia pupytes
-04. Svajoniu krautuvele
-05. Fight for your right
-06. Meile akla
-07. Sacharos
-08. Buk salia
-09. Eikim kartu
-10. Musu fiesta(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
 ```
 
 https://mybot314.ru/tekegram_catalog/

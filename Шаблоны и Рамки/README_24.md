@@ -1,3 +1,30 @@
+###  Публикация: 1179361   (349050) от 31.10.2017
+
+Шаблоны - Семья источник радости и счастья [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойная PSD Шаблон-рамка. для фото
+Автор: lunar.elfФормат: PSDРазрешение файлов: 3508x4961
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7CE4C33503C8B6E4B1A4C6240FA3DB2189B096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179111   (348899) от 31.10.2017
 
 Шаблоны - Под ногами снег скрипит, новый год к тебе спешит [PSD]
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73A8D217D89F5CE9C9069586CA0B71D6F9259CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074391   (337962) от 19.11.2016
-
-Шаблоны - GraphicRiver - Coffee Shop - Trifold Brochure Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coffee Shop - Trifold Brochure - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3375x2625 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D23FF1D0545FF9D5369EE224FE47AE9D8DE3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

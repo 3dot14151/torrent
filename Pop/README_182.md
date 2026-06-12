@@ -1,3 +1,96 @@
+###  Публикация: 1311381   (541894) от 29.06.2019
+
+Carrara - 2 Albums (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alberto Carrara (р. 1958), наиболее известный как Carrara и King Carrara , итальянский певец, композитор, аранжировщик, музыкальный продюсер и диск-жокей. Родился в Бергамо, Каррара начал свою карьеру в качестве диск-жокея в 15 лет. Музыкант-самоучка, в 1983 году его сингл "Disco King" принес первый успех, а через год он получил свой главный успех хитом (   Читать дальше...   )01. Dancin' Family (5:53)
+02. Driving (5:03)
+03. Follow Me (5:31)
+04. Welcome To The Sunshine (3:42)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DFE50E53EF215255597363B51D91298BE1FBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531398   (541824) от 05.08.2012
+
+Lana Del Rey - Unreleased (2012) [MP3|128-320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axl Rose Husband (3:03)
+2. Big Spender (feat. Smiler) (3:18)
+3. Children Of The Bad Revolution (3:25)
+4. Daddy Issues (feat. Aaron LaCrate) (4:54)
+5. Damn You (0:34)
+6. Dangerous Girl (4:22)
+7. Dayglo Reflection (feat. Bobby Womack) (4:18)
+8. Disco (4:05)
+9. Driving in Cars with Boys (4:16)
+10. Dum Dum (4:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E864A8E9702EB7E4061153F8352AB1AADFCD6FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311497   (541800) от 29.06.2019
+
+Budka Suflera - Bal Wszystkich Swietych (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bal Wszystkich Swietych (4:26)
+02. Nawiedzony Dom (4:26)
+03. Blekitna Arka (5:46)
+04. Nie Umiesz Kochac (5:18)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB222EA90CCBB04EEFA7DE97AB2ACDBAB3C0226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925211   (541206) от 06.08.2015
 
 Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [MP3|320 кб/с]<Disco, Soul>
@@ -661,99 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226992   (537482) от 15.08.2010
-
-Божья Коровка - Все новое... Это хорошо переработанное старое (2008) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мир раскололся
-02 Друзья-товарищи
-03 В каком неведомом краю
-04 Ледяное сердце
-05 Деревья
-06 Гранитный камушек 2007
-07 А у нас, в Америке
-08 Самая любимая моя
-09 Теплоход (релакс)
-10 Застольная(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926010   (537201) от 08.08.2015
-
-Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Me Down [02:59]
-02. Brief And Beautiful [03:43]
-03. My Heart Is Yours [02:29]
-04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926008   (537106) от 08.08.2015
-
-Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Serenata (Overture)
-02. Lucifer
-03. Testamente D'Amelia
-04. Is She Really Going Out With Him? (Live In Leningrad 05. Autumn 1990)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

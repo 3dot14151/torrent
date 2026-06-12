@@ -1,3 +1,29 @@
+###  Публикация: 1423081   (228765) от 16.11.2020
+
+SUSE Linux Enterprise Desktop Server Workstation 15.1
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228765.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP1. Пакеты SUSE 15 SP1 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.1. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423085   (228519) от 16.11.2020
 
 SUSE Linux Enterprise Desktop Server Workstation 15.2
@@ -658,32 +684,6 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650672   (194848) от 03.08.2023
-
-Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194848.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 мая 2023 состоялся релиз обновления дистрибутива Kali Linux 2023.2, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272EF1FF7E4130FC541624AE5CC42E764C495792
 ```
 
 https://mybot314.ru/tekegram_catalog/

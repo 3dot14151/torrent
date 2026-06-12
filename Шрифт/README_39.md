@@ -1,3 +1,135 @@
+###  Публикация: 1808304   (10470) от 24.07.2025
+
+Шрифты - Behance - Sergei Godovalov - Noise - 212129461 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB042E9B85231504C041EF0758AD3E40B38519B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808300   (10465) от 24.07.2025
+
+Шрифты - Behance - Alena Morgunova - PERSPECTIVE - 223721861 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A032B16F30009B0DCC4BD954BAE232FCE6569B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808303   (10461) от 24.07.2025
+
+Шрифты - Behance - Alena Morgunova - CRAFT - 223720669 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CEE731025FBA35040B4D9B563F1BAC59C2DB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808389   (10384) от 25.07.2025
+
+Шрифты - ParaType - Кириллические Шрифты 2007-2010 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция кириллических шрифтов ParaType 2007-2010 гг.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40361B249420384A6F7DE0BB4B1E6E00701B7085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808448   (10372) от 25.07.2025
+
+Шрифты - Behance - Victoria Ogai - Vivl Rai - 230076043 [OTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.Формат: OTF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5FE38371779A9221DA53844C322962B0A402D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809163   (9969) от 29.07.2025
 
 Шрифты - Behance - Igor Stepanchenko - Sligoil Cyrill - 157427847 [TTF, OTF, WOFF, WOFF2]
@@ -551,137 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C1D0332BA703DEB94266869E1F8A1832C2BF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811842   (8287) от 12.08.2025
-
-Шрифты - isaovskaya - Musinka [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E596EFD0011D5BAC6CC526AC2EC55059EEBAEA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811841   (8286) от 12.08.2025
-
-Шрифты - isaovskaya - lapochkin shrift [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFBC5944219951B86722C44F9F1441AA1EF9D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811844   (8280) от 12.08.2025
-
-Шрифты - isaovskaya - Inki [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36D37A1FAC491BC552D26A71DFD868BDAD002E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812352   (7884) от 14.08.2025
-
-Шрифты - Behance - Katerina Krasilnikova - KE ContrastGrotesk - Mod By He Rez AD - 202509145 [TTF, OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-В модификации от "He Rez AD" расширена и скорректирована кириллица (молдавская, украинская, белорусская); объединены контуры по причине их фрагментации; скорректировано отображение надстрочных элементов; добавлены файлы формата OTF, WOFF, WOFF2.Формат: TTF, OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0CDD95FDC7FB7FEC841B099AFCE22B5F9F0FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812354   (7883) от 14.08.2025
-
-Шрифты - Behance - Ivan Safronov - Clurbantik - 126752139 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B29A83F538BD4C42DDBAFD87D46C3D8CD0FCBDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

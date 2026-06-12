@@ -1,3 +1,148 @@
+###  Публикация: 1150717   (573843) от 18.07.2017
+
+Нейромонах Феофан - 2 альбома, 4 сингла (2015-2017) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список релизов:
+2015 - В душе Драм, в сердце Светлая Русь
+2016 - Велики силы добра
+Синглы:(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 01:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6855451956AE31AB47B849404F141339B89D86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921937   (573795) от 26.07.2015
+
+VA - Terrace Lounge Session (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Cielo Terso
+02. Cane Garden Quartet - Chillaxin'
+03. Saba Rock - Emphatic Perception
+04. Suntheca Productions - Walking On Clouds(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BE8200DBC409B2267DA8DAAB3EB099D98F0DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921735   (573793) от 26.07.2015
+
+SuryaDemaH - The Seven Cities of Love (2015) [MP3|320 кб/с]<Ambient, Downtempo, Psychill, Psytrance, Ethnic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attars Remedy
+02. Ancient Ceremony
+03. We Are The World
+04. Allahveysi(   Читать дальше...   )Жанр: Ambient, Downtempo, Psychill, Psytrance, EthnicПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3168DF3024F7E517486C5DB992C63EDB91A1E9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921745   (573594) от 26.07.2015
+
+Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador (JMJ Rmx) (3:50)
+ 02. Glory (Radio Mix) (2:54)
+ 03. Glory (Steve Angello Remix) (5:53)
+ 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921392   (573431) от 26.07.2015
+
+The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.cue]<Electronic, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I Feel So Deserted (feat. Daniel Pearce)
+02. Go (feat. Q-Tip)
+03. Under Neon Lights (feat. St. Vincent)
+04. EML Ritual (feat. Ali Love)(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2319BE1630BACBC41441C32BC5773F8362B2C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 362136   (573422) от 12.07.2011
 
 VA - Bora-Bora Ibiza Summer (2011) [MP3|320 kbps]<House>
@@ -26,41 +171,6 @@ VA - Bora-Bora Ibiza Summer (2011) [MP3|320 kbps]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E3798038335B5864E5E5B9E568E623A0BE22EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362053   (573226) от 12.07.2011
-
-VA - Chill n' Michael (A Chill Out Tribute To Michael Jackson) (2009) [MP3|192 kbps]<Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_573226.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jingo ft. LaFemme - Thriller (5:41)
- 2. Hypnomusic - Billie Jean (4:39)
- 3. Lizette & Groove Da Praia - Beat It (3:54)
- 4. Morgan, G & Machines - Rock With You (3:35)
- 5. Sixth Finger feat Alanah Woods - Don't Stop 'Till You Get Enough (5:28)
- 6. Groovy Waters - Bad (3:51)
- 7. Glambeats Corp. - The Way You Make Me Feel (3:37)
- 8. Space Gang - Human Nature (4:39)
- 9. Watching Colours feat Claudette - Black Or White (2:40)
- 10. Anakelly - Man In The Mirror (3:39)(   Читать дальше...)Жанр: Chillout, LoungeПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC62600593A896A1979539CAD18ED530CCC1AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,41 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 362553   (571382) от 13.07.2011
-
-VA - New Russian Electro Vol.11 (06.07.2011) [MP3|320 kbps]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 23-45 - Друг Без Друга (DJ Noiz & DJ Maxtal Remix) (6:03)
- 02. Antitela - Бери Свое (AD Men's Remix) (5:21)
- 03. Aruba Ice & Denis Kenzo - В небеса (DJ XM Electro Remix) (4:37)
- 04. Cooler & Long - Маруся (DJ Solovey Remix) (5:43)
- 05. Cooler & Long - Маруся (Greysound Remix) (5:31)
- 06. Dan Balan & Вера Брежнева - Лепесками Слёз (Ночное Движение Club Mix (4:51)
- 07. De Maar - Мачо (DJ Pomeha & DJ Simex Club Remix) (4:10)
- 08. Dj Boyko & Sound Shocking - Москва Не Питер (DJ Shevtsov Remix) (6:05)
- 09. Dj Boyko & Sound Shocking - Москва Не Питер (Original Mix) (7:07)
- 10. DJ Smash - Можно Без Слов (DJ Melloffon Remix) (5:24)(   Читать дальше...)Жанр: Electro House, HouseПродолжительность: 05:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68E80FFCBD9F6DE3C774C39197D61681FE961DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922073   (571340) от 27.07.2015
 
 Carpenter Brut - Trilogy (2015) 3CD + Bonus [MP3|320 кб/с]<80's, Electro, Synthwave, Dark Synth>
@@ -682,94 +757,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD6D8E7DCA26D74D4CD0F2694B5E15734E18687A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526723   (571278) от 29.07.2012
-
-Lolita Jolie - Non Non Non (2012) [MP3|320 кб/с]<Electro, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non Non Non (Original Radio Edit)
-02. Non Non Non (Rob And Chris Remix)
-03. Non Non Non (Rene Rodrigezz Remix)
-04. Non Non Non (Gordon & Doyle Organ Mix)
-05. Non Non Non (The Real Booty Babes Classic Remix)Жанр: Electro, HouseПродолжительность: 00:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E055CA4C62F2B59D8943451A836B607C2ECF2924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043774   (571190) от 17.08.2016
-
-VA - Sunset Players Vol.1 (Relaxed Sunset Moods) (2016) [MP3|320 Kbps] <Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunyata Project - Pi Lo Chun (Extended Mix) (06:34)
-02. Sami Sivananda - Satori (05:25)
-03. Remundo - Nessance (04:26)
-04. Eivissarts - The Unknown (05:54)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 02:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD05C0C33755B805D3802C762242923951743620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043764   (571176) от 17.08.2016
-
-Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories (7:36)
-02. Distance (7:19)
-03. Distance (Marc Marzenit's Cinematic Edition) (9:24)
-04. ID (7:16)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC2AD77F3BCA0F9313464DDC289C597DF4DC164
 ```
 
 https://mybot314.ru/tekegram_catalog/

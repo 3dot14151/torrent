@@ -1,3 +1,125 @@
+###  Публикация: 1101863   (892929) от 08.02.2017
+
+Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  My Everything [00:04:51]
+02 -  Melting Heart [00:05:02]
+03 -  Meditation [00:07:06]
+04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101989   (892922) от 08.02.2017
+
+Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Churning the Ether (10:30)
+2. The Water of Life (09:34)
+3. Solaris (11:25)
+4. Moontide (08:40)(   Читать дальше...   )Жанр: New-Age, Electronic, AmbientПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCE8F70C7A64C10AF975E9F18E72FDFED67BB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184230   (892528) от 18.03.2010
+
+Русско-Кельтский оркестр Reelroadъ - Дискография [MP3|320 kbps]<Celtic-Slavic Folk/Post-Folk/Instrumental]
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А в нашем садочке (4:36)
+02. Растоплялась парна баенка (4:04)
+03. Верба (4:39)
+04. На дворе дождь! (2:28)
+05. Ты заря (1:55)
+06. Гуляю, гуляю (3:33)
+07. А на горе мак (4:58)
+08. Павлин (5:39)
+09. Тюря (3:25)
+10. Лён (3:41)(   Читать дальше...)Жанр: Celtic-Slavic Folk/Post-Folk/InstrumentalФормат: MP3
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371159   (892019) от 30.03.2020
+
+Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 12 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Рябцев родился 12 марта 1963 году в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 году заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. Make A Wish (4:50)
+02. In Harmony (3:32)
+03. On The Crest Of A Wave (4:06)
+04. Between The Past And The Future (4:48)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 776937   (892010) от 08.02.2017
 
 Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Instrumental>
@@ -625,122 +747,6 @@ Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494655   (887713) от 08.09.2021
-
-Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viracocha
-02. Inti Raymi
-03. Cusco
-04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371654   (886921) от 02.04.2020
-
-Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Souls Shine Brightest (06:48)
-02. End Of I (06:29)
-03. Here Comes Everybody (06:02)
-04. Their Playground (08:04)(   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494722   (885982) от 09.09.2021
-
-Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Long Dark Night [02:22]
-02. This Is Darkness [02:12]
-03. War Drum [01:28]
-04. Wellcome to Hell [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394ADD7719AF83BE789A88AA935EC68B590BFD58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494720   (885967) от 09.09.2021
-
-Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First and the Last [03:12]
-02. Message to the Stars [02:45]
-03. Slumbering Void [02:17]
-04. Echoes & Omens [03:01](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1D1CA575E62DE8C32FDF13B21CD0923841D3C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

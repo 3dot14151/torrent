@@ -1,119 +1,3 @@
-###  Публикация: 1497417   (234230) от 13.10.2021
-
-VA - Beautiful Metamorphosis, Vol. 4 (2021) [AAC|~300 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svendaq - World Contact (5:11)
-02. Prana Tones - Mystical Relaxation (4:34)
-03. Openzone Bar - Old And Cold (5:27)
-04. CaPa - Alesian Wind (4:32)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED6FC9CD69061D42906A0742381B26F8B200196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495740   (234215) от 13.10.2021
-
-VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Room - The Confidential (Original Mix) (6:01)
-02. Lemongrass - At Home (Original Mix) (4:03)
-03. The Funky Lowlives - Berceuse (Original Mix) (5:28)
-04. No Noise - Ying and Yang (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94E21C302E7826BBB7CEFFA2E7DB28E4EB0A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501682   (234207) от 13.10.2021
-
-VA - Electronic Clouds, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zach Fernandez - Chiem (Original Mix) (3:37)
-02. Nakiro Namoto - Dead Man Walking (Original Mix) (3:22)
-03. Port Grimaud Project - Think to a Girl (Original Mix) (3:39)
-04. Gaba Milani - Magnolia's Flower (Original Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD91B7FACD14CEB738F85C401B282915E38F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499318   (234197) от 13.10.2021
-
-VA - Close to You (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proba Merx - Morning Ride (5:58)
-02. Zirkadian Sender - Reversed Roles (6:11)
-03. Model IV - Late Bloomers (6:10)
-04. Sweetadelic - Natural Perspective (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DE50A063549B86F6EC54AF6C1A07899F027834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498703   (234192) от 13.10.2021
 
 VA - Vanlife Chill, Vol. 3 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
@@ -745,6 +629,122 @@ VA - Chill Out Garden, Vol. 1 (2021) [AAC|~313 Kbps] <Downtempo, Lounge, Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D53114F598D544795755EA696484F63936CBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504431   (233946) от 23.10.2021
+
+U.D.O. - Game Over (2021) [AAC|~354 Kbps] <Heavy Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Detector (4:21)
+02. Holy Invadors (3:27)
+03. Prophecy (4:42)
+04. Empty Eyes (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCD46CC29D81BA0F43C457A080796ED99C61A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504350   (233936) от 23.10.2021
+
+VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Nokondi (Original Mix) (6:24)
+02. Chris le Blanc, Paris Bizarre - Si Vous Voulez (Original Mix) (4:24)
+03. Sunyata Project - I Know Him (Original Mix) (5:30)
+04. FlyHigh - Happy Ness (Original Mix) (6:22)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD1A90639311A6289C8B1B80736D840FFBADB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504342   (233928) от 23.10.2021
+
+VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazdabolt - Lucid Dreaming (5:50)
+02. Vakanzregel - Forest Tales (5:47)
+03. Evoking Silence - Somewhere on the Way (5:52)
+04. Sweetadelic - Natural Perspective (6:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512419   (233444) от 25.11.2021
+
+VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - I Don T Wanna Be You (3:48)
+02. The Upsetter - Rejection (Phunk Balearica Remix) (6:24)
+03. Lounge Groove Avenue - So Brave (3:05)
+04. Iblis - Skilltools (6:01)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9133284619B892BD2622307FCCAFEC70BC5C3B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

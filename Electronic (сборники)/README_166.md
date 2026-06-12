@@ -1,3 +1,32 @@
+###  Публикация: 1179980   (342798) от 03.11.2017
+
+VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrmpo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Custom 7 - Breath Unwind
+002. James Butler - Dinner in Milano
+003. Miper - Hide (Original Mix)
+004. Alexander S. Karlov - Sex With Yoga Girl(   Читать дальше...   )Жанр: Ambient, DowntrmpoПродолжительность: 11:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954316   (342396) от 07.11.2015
 
 VA - Vocal Hits Velvet Grooves Volume Sex! (2015) [MP3|320 кб/с]<Ambient,Downtempo, Lounge, Electronic>
@@ -752,41 +781,6 @@ MiaS - Dubstep music (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F250123FAE5248293D1414164C910363D52214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581713   (338164) от 27.11.2012
-
-VA - Chilling With the Stars: The Ultimate Chillout and Lounge Collection (2012) [MP3|320 кб/с]<Electronic, Chillout, Lo-Fi, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338164.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Urban Lounge - Chilling With the Stars - Crusin' Kandi Mix (5:13)
-2. Perelandra - Moon Over the City (4:39)
-3. Wonderphazz - City Lights - Soul 2 Sax Mix (5:07)
-4. Soulfuel - Midnight Serenade - Chatroom Chillout Mix (5:26)
-5. Guru Sax - People Can't Stop Chillin (5:58)
-6. Cape Town Chillerz - Sky in Your Eyes - Sunset Campari Chillout Hotel Bar Mix (5:32)
-7. Deja 7 - One More Night - Summer Night Chill Mix (4:23)
-8. Fireflies - Lonely - Ocean Eyes Mix (4:54)
-9. Noisy Blue - Great Gig in the Sky - Moon Floyd Beach Mix (5:29)
-10. Sevastopol - Stars - Retro Chill Under the Sun Mix (5:48)(   Читать дальше...   )Жанр: Electronic, Chillout, Lo-Fi, LoungeПродолжительность: 02;51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94655A7FB06D320034A7441FAF4E344D5842ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

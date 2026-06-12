@@ -1,3 +1,93 @@
+###  Публикация: 433   (48740) от 27.07.2024
+
+АлисА - LIVE! Мы вместе 20 лет (2003) DVD9
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный альбом легендарной группы "Алиса", 15 ноября 2004 года записанный на юбилейном выступлении "Алиса: XX лет" в Санкт-Петербурге. Лучшие песни за двадцатилетнюю историю группы! Настоящий рок-н-ролльный драйв, мощная энергетика живого концерта.live
+01. Intro
+02. Родина
+03. Земля(   Читать дальше...   )Жанр: концертКачество: DVD9Продолжительность: 2 час. 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D78589FE13FBB7D375FF005FB9D0A6BE3EC544A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 40239   (48727) от 27.07.2024
+
+Алиса - Звезда по имени рок(2007) DVD Video
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48727.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 ноября 2005 года на МСА «Лужники» состоялось грандиозное событие – презентация альбома «Изгой».
+Конечно, описать словами то, что происходило в тот день в «Лужниках», сложно. А теперь, пожалуй, и не нужно – все желающие сами смогут увидеть концертную презентацию «Изгоя»!01. Intro
+02. Шабаш
+03. Черный
+04. Антихрист(   Читать дальше...   )Жанр: RockКачество: DVD9Продолжительность: 01:55:59 + 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B255BFD054697B02E8D4C9599AD05116BAF96C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257565   (48713) от 27.07.2024
+
+Фил Коллинз - Прощальный тур / Phil Collins: Finally... The First Farewell Tour (2005) 2xDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный как по песенному материалу
+(сплошные хиты: In the Air Tonight, Another Day in Paradise, You Can't Hurry Love,...),
+так и по энергетике концерт.01. Drums, Drums & More Drums
+02. Something Happened On the Way to Heaven
+03. Against All Odds
+04. Don't Lose My Number(   Читать дальше...   )Язык субтитров: English, Spanish, German, French, Italian, Dutch, PortugueseПродолжительность: 323 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 88341   (47513) от 08.08.2024
 
 Whitesnake - Live In The Still Of The Night (2006) DVD9
@@ -656,93 +746,6 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124408   (46685) от 16.08.2024
-
-Eurythmics Ultimate Collection  (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46685.jpg" />
-</div>
-
-
-###  Подробнее
-
-. . . Eurythmics" получили признание, благодаря качеству своих песен и сумели остаться фаворитами в средствах информации. Леннокс - одна из наиболее визуально поразительных женских исполнителей, с голосом редкого качества.
-
-. . . Энни Леннокс можно с полным основанием назвать одной из ведущих певиц Великобритании восьмидесятых годов. Концерты Eurythmics - это, (   Читать дальше...   )Жанр: РокПеревод: ОригинальныйПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206735   (46684) от 16.08.2024
-
-Dire Straits - Rockpalast (1979) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46684.jpg" />
-</div>
-
-
-###  Подробнее
-
-This FULL DIGITAL RECORDING & NOT RE-ENCODED torrent comes from a RE-BROADCAST (APRIL 27/28, 2007)
-FULL DIGITAL RECORDING & NOT RE-ENCODED01. Down To The Waterline
-02. Six Blade Knife
-03. Once Upon A Time In The West
-04. Lady Writer(   Читать дальше...   )Жанр: RockРежиссер: 1Festival (Germany)В ролях: Mark Knopfler: Guitar, Vocals
-David Knopfler: Guitar, Vocals
-John Illsley: Bass, Vocals
-Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжительность: 01:24:43 + 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589698   (46678) от 16.08.2024
-
-Metallica - Quebec Magnetic (2012) DVD9+DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46678.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 октября и 1 ноября 2009 года у группы Metallica состоялись два концерта в рамках тура “World Magnetic” в городе Квебек. Всего на оба вечера было продано свыше 33 тысяч билетов. Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Так же стоит отметить, что за данный выпуск проголосовало более 35 (   Читать дальше...   )Производство: Universal MusicЖанр: Thrash MetalРежиссер: Wayne IshamСубтитры: ОтсутствуютПродолжительность: 02:14:52+00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

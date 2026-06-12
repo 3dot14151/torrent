@@ -1,3 +1,32 @@
+###  Публикация: 1414024   (406769) от 06.10.2020
+
+VA - Громкие новинки Октября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amy Macdonald - Crazy Shade of Blue (4:13)
+02. Blackpink - Lovesick Girls (3:12)
+03. Bon Jovi - Beautiful Drug (3:48)
+04. Bumble Beezy - Perk (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726FF64D47FBF15B9E17D8D38F6068C671B667B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414038   (406730) от 06.10.2020
 
 VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
@@ -812,41 +841,6 @@ VA - Самые популярные песни радиостанций #3 50/5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F911BA032B5954CB0E9F20C137A2DA88F01AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563021   (404877) от 21.10.2012
-
-VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх - Ну где же вы девчонки
-002. Bellini - Samba De Janeiro
-003. Отпетые Мошенники - Хали-гали
-004. Samira - I Was Him
-005. Профессор Лебединский - Бэса ме мучо
-006. Scooter - I Was Made For Lovin’ You
-007. Комиссар - Наше время пришло
-008. E-Type - Hero I Go Again
-009. Валерий Меладзе - Лимбо
-010. Sash! - Adelante(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F36CC3600227A6982225D15286B9B4D7F43158
 ```
 
 https://mybot314.ru/tekegram_catalog/

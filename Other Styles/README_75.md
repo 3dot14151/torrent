@@ -1,3 +1,118 @@
+###  Публикация: 1137659   (665421) от 28.05.2017
+
+David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Sea (feat. Mirella Díez Morán)
+02. Departure
+03. Elder Silence
+04. Promenade(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511564   (664684) от 18.06.2012
+
+VA - Союз нерушимый... - Песни и танцы народов СCCP (2007) 5 CD [MP3|320 kbps] <Retro, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
+02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак
+03. Государственный гимн Белорусской ССР Хор и эстрадно-симфонический оркестр Белорусского Гостелерадио, Б. (   Читать дальше...   )Жанр: Retro/FolkПродолжительность: 05:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537973   (664342) от 19.03.2022
+
+Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Reigns Through Tears (04:14)
+02. The Crystal Shores (03:49)
+03. If a Heart Could Speak (04:10)
+04. A Queen Reborn (03:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138151   (664194) от 29.05.2017
+
+The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Some Enchanted Evening (3:36)
+2. All The Things You Are (3:55)
+3. Tenderly (3:39)
+4. With A Song In My Heart (2:59)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901360   (663350) от 26.05.2015
 
 Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Country, Folk>
@@ -679,122 +794,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903976   (655102) от 02.06.2015
-
-Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unofficial / Game-Rip Soundtrack [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655102.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ambient Hims House (Mix)
-002. Ard Skellig - General Combat Layer 01
-003. Ard Skellig - General Combat Layer 02
-004. Ard Skellig - General Combat Layer 03(   Читать дальше...   )Жанр: GameRip, SoundtrackПродолжительность: 11:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140727   (654772) от 07.06.2017
-
-Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electronic, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. What If...
-03. Butterfly Temple
-04. Indigo Child(   Читать дальше...   )Жанр: New Age, Electronic, LoungeПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226536   (654770) от 21.05.2018
-
-Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6th Gear [02:05]
-02. ReDesign [02:05]
-03. Kill Switch [02:25]
-04. Sprocket [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140583   (654768) от 07.06.2017
-
-Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Indiajiva - Awakening (7:16)
-2. Indiajiva - Dreaming (14:30)
-3. Indiajiva - Immersion (12:53)
-4. Indiajiva - Inner Sanctum (31:16)Жанр: New AgeПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

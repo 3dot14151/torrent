@@ -1,3 +1,148 @@
+###  Публикация: 1521332   (766177) от 01.01.2022
+
+VA - Space Holidays Vol. 11 (2019) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rygar - Sonorous  (Album Promo Mix) (9:56)
+02. Synthesis - Star Explorer (6:00)
+03. Max Backes - Last Trip (5:44)
+04. Polaris - Black Hole (5:02)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 03:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D4953BAF726044955E05F2A2597CE52A9171F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521334   (766155) от 01.01.2022
+
+VA - Space Holidays Vol. 12 (2020) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digimax - Trip From Beyond (6:01)
+02. Mind Vision - Space Trip (6:05)
+03. Rygar - Squadron Leader (XMAS Remix) (6:10)
+04. Spacehawk - Conquest Earth (4:36)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 03:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E966CDA4E78B87972C2BC7D5A26B8DCD3CC1E8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279348   (766121) от 29.01.2019
+
+VA - The Elektrolux Decade - 10 Years Elektrolux (2005) [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Deep House, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonosynthese - Sonnensegel (Remix) (06:47)
+ 02. Aural Float - Still Here (Instrumental) (07:05)
+ 03. Jean F. Cochois - Electronic Love (Naoki Kenji Remix) (06:25)
+ 04. Aural Float - PlusMinus (05:34)(   Читать дальше...   )Тип издания: CD •Жанр: Downtempo, Dub, Deep House, Chillout, Ambient •Продолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9FE6947EF769EF47B084E92D4408C9C6B26CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279283   (766116) от 29.01.2019
+
+Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle of Clouds (07:36)
+02. All for You (feat. Trixie Whitley) (03:20)
+03. Torus (03:04)
+04. Transmission 4 (03:43)(   Читать дальше...   )Жанр: Trip-Hop, Experimental, AmbientПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE11C68DF95494D9D05CBFF4F7D5047C1CCDCB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279497   (766115) от 29.01.2019
+
+nthng - Shine (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine (06:21)
+02. Embryo (04:59)
+03. Lyla (03:52)
+04. Atom (09:48)Жанр: Ambient, TechnoПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FECEA687AB5F5FBCCE532D85F8F56C1593FC2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279414   (766111) от 29.01.2019
 
 Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
@@ -600,148 +745,6 @@ Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spaced
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68219AC1EC5CFD04EEC6C03B776C8BFC259DB6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279507   (765391) от 30.01.2019
-
-Laraaji & log(m) - The Onrush of Eternity (2019)[FLAC 2.0|48/24|tracks|WEB-DL] <Experimental, Dub, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daisy Fields (03:35)
-02. Sruthi Dub Resonance (04:35)
-03. Barefoot (08:23)
-04. Oregano In Dub Minor (08:36)(   Читать дальше...   )Жанр: Experimental, Dub, AmbientПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1246BA334F2B29523801DDBEE9CCF03F4FEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942804   (765265) от 03.07.2020
-
-Jorge G. Alarcón (Blutspan, And Exile, AEX, ΛEX) - Discography 11 Releases (2012-2020) Abstrakt Reflections [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Abstract, Downtempo, Glitc ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Belief (05:22)Тип издания: CD, WebЖанр: IDM, Ambient, Abstract, Downtempo, Industrial, Glitch •Продолжительность: 05:05:20 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F20AE6B8F3AEDE08E4D4815C4573C075AA7298E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304050   (765263) от 03.07.2020
-
-D. Batistatos - Discography 11 Releases (2006-2020) Cosmicleaf Records [FLAC|Lossless|tracks+.cue, tracks] <Psychill, Downtempo, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Liquid (04:38)
- 02. Invation (03:46)
- 03. Rolling Down (03:22)
- 04. To Love (04:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 05:21:20 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F12DCFE906E12A12FB702609A720F85D20D9446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214333   (764975) от 21.03.2018
-
-Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1138 (04:49)
-02. Axum (04:52)
-03. Ark (04:16)
-04. Nazca (04:16)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54035612822B1E21B5363528F559A3C9901A1FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214476   (764967) от 21.03.2018
-
-VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ruslan Radriges vs. Neurofunq & Tiff Lacey  -  Wonderfull (Original Mix)  3:38
-02.  Mivase  -  I Can't Give Up (Extended Mix)  4:24
-03.  Roman Messer feat. Angel Falls & Armos  -  Higher (LTN Extended Sunrise Remix)  6:05
-04.  MOROSHKA  -  4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FEC14319C96101D64B17F5CB66DF73F6D8F7A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

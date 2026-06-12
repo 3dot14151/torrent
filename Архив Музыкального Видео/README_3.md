@@ -270,6 +270,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364471   (561487) от 18.07.2011
+
+Guitar Legends - EXPO '92 Sevilla / Folk Rock Concert (День четвертый - 18.11.1991) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561487.jpg" />
+</div>
+
+
+###  Подробнее
+
+День четвертыйЖанр: Folk RockАктеры: Roger Waters - Bass,Vocal
+ Roger McGuinn - Guitar,Vocal
+ Robbie Robertson - Guitar,Vocal
+ Richard Thompson - Guitar,Vocal
+ Les Paul - Guitar
+Bruce Hornsby – Keyb, voc
+ Manu Katche – Drums
+ Tony Levin – Bass
+ Snowie White - Guitar
+ Andy Fairweatherlow – Guitar(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 1:29:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364460   (561353) от 18.07.2011
+
+Guitar Legends - EXPO '92 Sevilla / Fusion (День второй -16.11.1991) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561353.jpg" />
+</div>
+
+
+###  Подробнее
+
+День второйЖанр: FusionАктеры: George Duke - Keys
+ Ray Brown - Bass
+ Dennis Chambers - Drums
+ Ray Cooper - Percussion
+ Guitars -Перевод: ОтсутствуетПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364448   (561229) от 18.07.2011
+
+Guitar Legends - EXPO '92 Sevilla / Blues Night (День первый-15.11.1991) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках праздничных мероприятий накануне Олимпиады-92 в Барселоне пять концертов были проведены в 1991 году
+В первый день 15.11.1991 мы видим звезд блюза.Жанр: BluesАктеры: Albert Collins - Guitar,Vocal
+ Robert Cray - Guitar,Vocal
+ Steve Cropper - Guitar,Vocal
+ Bo Diddley - Guitar,Vocal
+ Dave Edmunds - Guitar,Vocal
+ B.B. King - Guitar,VocalПеревод: ОтсутствуетПродолжительность: 1:29:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364466   (561222) от 18.07.2011
+
+Guitar Legends - EXPO '92 Sevilla / Experimental Concert (День третий - 17.11.1991) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561222.jpg" />
+</div>
+
+
+###  Подробнее
+
+День третийЖанр: Experimental ConcertАктеры: Joe Cocker - Vocal
+ Jack Bruce - Bass,Vocal
+ Keith Richard - Guitar,Vocal
+ Bob Dylan - Guitar,Vocal
+ Phil Manzanera - Guitar
+ Robert Cray - Guitar,Vocal
+ Steve Cropper - Guitar
+ Dave Edmonds - Guitar
+Steve Jordan - Drums
+ Simon Phillips - Drums(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 1:29:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530214   (560989) от 03.08.2012
 
 Inside Djs - Chica Latina (2012) [H.264/720р] WEBRip
@@ -587,113 +719,6 @@ Flying Colors - Live In Europe (2013) BDRip [H.264/1080р]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F903DE09519544C685FC1C2F1D8905D2CF4EB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535802   (515865) от 17.08.2012
-
-Leticia - Join The Party (In My Boat) ft. Juan Magan (2012) [H.264/720р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510DEA9D6B9E0F33488526E2A77FCA61725407D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930416   (515071) от 23.08.2015
-
-Телешоу 50x50 (1998) SATRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515071.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 90-х годах появилась молодежная развлекательная передача "Зебра", а ее составным звеном было телешоу "50/50", воспринятое скептиками с подозрением, так как количество музыкальных программ и так зашкаливало по эфирным рейтингам, но постепенно сама программа и в большей степени именно ее часть - "Телешоу 50/50" стала народной (   Читать дальше...   )01. Блестящие "Там, только там"
-02. Дюна "Костюмчик"
-03. Андрей Губин "Дай мне слово"
-04. Каролина "Богатый дедушка"(   Читать дальше...   )Производство: Россия, ТЛФ "50X50"Жанр: МузыкальныйРежиссер: Игорь ЧерновПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312F71C39345E8DDEA40157851F93A44CB6187AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536712   (509786) от 23.08.2012
-
-Christian De La Playa - Parallel Universe (2012) [H.264/720р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ProgressiveПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103A1F8D6B82D0D3B08FFAAEB367D00AB3FC79DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536835   (509768) от 23.08.2012
-
-Ebru Gundes - Sen Yoluna Ben Yoluma (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124E153E451F7F0D34429AD3CED7CCE68B40E624
 ```
 
 https://mybot314.ru/tekegram_catalog/

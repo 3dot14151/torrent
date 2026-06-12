@@ -1,3 +1,30 @@
+###  Публикация: 1326654   (382800) от 21.09.2019
+
+Spitfire Audio - ALBION ONE [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переработанная библиотека легендарного Albion 1 от Spitfire Audio! 30Гб новых сэмплов.
+Spitfire внимательно изучила то, что сделало Albion ‘Legacy’ популярным, вернулась в студию и кропотливо воссоздала и усовершенствовала основные моменты оригинала. Как в Albion 1, тут есть большой эпической оркестр, но на этот раз оркестр увеличен до 109 игроков с большим (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NKI, NKX, NCW, NKA, NKM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1728CAB13698C45DFB63C7C325B19C357E5AEACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174809   (382719) от 16.10.2017
 
 Звуковые библиотеки - Loopmasters - Mainstream Hardcore [NKI, WAV]
@@ -650,32 +677,6 @@ Evolution Series - World Colors Clar-Duduk v1.02 RePack Андрей650071 [Kont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A88119C2A9423DF218A45178D6249CB29F8534DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331858   (320638) от 17.10.2019
-
-Soniccouture - EP73 Deconstructed [Kontakt, MIDI]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320638.jpg" />
-</div>
-
-
-###  Подробнее
-
-EP73 Deconstructed предлагает звучание раритетного электропиано Rhodes Stage 73, подвергшегося особому «препарированию», что позволило высветить новые звуковые нюансы этого инструмента. Включены также MIDI партииФормат: Kontakt: NICNT, NKC, NKI, NKR, NKX, NKM; MIDI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93081294D39496B731C81BA425F88A4D0DDFA0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

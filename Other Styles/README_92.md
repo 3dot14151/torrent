@@ -1,3 +1,125 @@
+###  Публикация: 922191   (571750) от 27.07.2015
+
+Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me to Church
+02. I Wanna Get Better
+03. Honey, I'm Good
+04. Come With Me Now(   Читать дальше...   )Жанр: New Age, Piano, ClassicalПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F73CB54EE75B6F9254C1453E20C7E4E43740E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528602   (571042) от 29.07.2012
+
+Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный вкус1. The Untouchables - Main Theme (2:23)
+ 2. The Red Tent (3:37)
+ 3. The Sicilian Clan (4:07)
+ 4. Exorcist II The Heretic - Regan's Theme (2:39)
+ 5. Moses The Lawgiver (3:53)
+ 6. In The Line Of Fire (4:04)
+ 7. The Thing (4:28)
+ 8. Le Professionnel - Chi Mai (5:37)
+ 9. Hamlet (2:38)
+ 10. 1900 - Romanza (3:31)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483B8B611ABC34628E314A01BE99DBCC7A99078A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043605   (570801) от 17.08.2016
+
+Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, Country, Ballad>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Little Lovin' (5:21)
+02. Anyone Who Had A Heart (3:35)
+03. You Don't Have To Say You Love Me (4:13)
+04. I Only Want To Be With You (3:52)(   Читать дальше...   )Жанр: Folk, Country, BalladПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FA2B120C8CD5C314CF0916D7CE9102E4D3AC88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303521   (570666) от 22.05.2019
+
+Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ancient Spirit (5:08)
+02.Echoes of Life (6:24)
+03.The River of Wisdom (5:38)
+04.Silent Mind (4:40)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007BD0616FE446106D698AFA5A11DAE3B435ACD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554702   (570367) от 03.06.2022
 
 TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
@@ -659,122 +781,6 @@ Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:614B3443D20ED2BD8212341D7608CE36D801FE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044051   (565362) от 20.08.2016
-
-Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning (4:25)
-02. The Infinite (5:43)
-03. Ah! (4:38)
-04. Thomas Lemmer, Tina Sona - Lost (3:40)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5021C5648F5B1ACBC16869C95E9906902488BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044338   (565341) от 20.08.2016
-
-Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finish Line (3:39)
-02. Each Other's Shoes (4:12)
-03. Do You Dare (4:11)
-04. Love & Luccheses (3:36)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365EF09242FCC3DCA2EB80629C2051F13C437F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044333   (565319) от 20.08.2016
-
-Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here & Now (2:29)
-02. Beautiful Dreamer (3:58)
-03. Game of Life (3:20)
-04. Quiet Down (3:29)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BE07D9A2DA62C8B2561ABB4B34EC2F786535C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044088   (564895) от 20.08.2016
-
-FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midgard Prolog
-02. Federkleid
-03. Sonnenreigen (Lughnasad)
-04. Alba II Intro(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
 ```
 
 https://mybot314.ru/tekegram_catalog/

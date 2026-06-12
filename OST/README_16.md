@@ -1,61 +1,3 @@
-###  Публикация: 1063651   (432155) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72CF5E974B6CF60E30035D3DB92D18C5FFC8DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946288   (429316) от 12.10.2015
-
-VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Пускепалис - Intro
-02. Би-2 feat. Диана Арбенина - Тише и тише
-03. D. Brown feat. Elizaveta feat. Би-2 - Я ищу
-04. Би-2 feat. Варя Демидова - Книга(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323509   (427335) от 08.09.2019
 
 VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
@@ -755,6 +697,64 @@ VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169085   (403152) от 27.09.2017
+
+Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Designs
+02 - Predestined
+03 - Mechanical Mind
+04 - Origins(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169689   (402405) от 28.09.2017
+
+Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Natalie Cole - Wild Women Do
+02 - David Bowie - Fame 90
+03 - Go West - King Of Wishful Thinking
+04 - Jane Wiedlin - Tangled(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
 ```
 
 https://mybot314.ru/tekegram_catalog/

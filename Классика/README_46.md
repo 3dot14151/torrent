@@ -1,32 +1,3 @@
-###  Публикация: 966202   (220600) от 17.12.2015
-
-Ezietto – Memories (2015) [MP3|320 кб/с] <Instrumental, Neo-Classical, Electronic, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars & Warriors (original mix)
-02. Celtic Flavour (original mix)
-03. Trinity (original mix)
-04. Faraway Land (original mix)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, Electronic, New AgeПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5149B47338D697FD28915193187DCDA184A2F600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514133   (219363) от 02.12.2021
 
 VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -745,6 +716,35 @@ The Piano Guys - 10 (2020) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossove
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C360262D316D2682283F4670DC95F6A29601B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594164   (177921) от 01.12.2022
+
+Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022) 2×CD [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ Alban Berg
+01. Piano Sonata, Op.1
+(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

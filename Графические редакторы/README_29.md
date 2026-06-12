@@ -1,3 +1,55 @@
+###  Публикация: 1588663   (191175) от 05.11.2022
+
+ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Lite RePack by MKN [Ru/En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_191175.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Photo Studio Ultimate сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A5CFACD7C2DA8CE99EF8BC57236CF2C8B5B85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589396   (190135) от 09.11.2022
+
+Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F069CDDF9505B739D04B3BB4FBB1B1E9BC6176E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591273   (187417) от 17.11.2022
 
 Stepok Recomposit Pro 8.0.0.1 [En]
@@ -33,7 +85,7 @@ ON1 HDR 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_187027.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ ON1 NoNoise AI 2023 17.0.1.12976 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_187026.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ ON1 Effects 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_187001.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ ON1 Portrait AI 2023 v17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_186978.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Adobe Photoshop 2023 24.0.1.112 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_186642.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Portable by NNM [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_180128.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Imagenomic Portraiture 4.0.3 Build 4033 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_179459.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Image Tuner Pro 9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_175889.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by Dodakaedr [Mult
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_175769.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ CoolUtils Total Image Converter преобразует изображения в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE228A428143806BC5720119955112C69A2B216C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595465   (175336) от 05.12.2022
-
-HitPaw Watermark Remover 2.1.0.15 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175336.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Watermark Remover предоставит возможность вам удалять водяные знаки с видеороликов и изображений, легко удалит дату, какой угодно объект, мешающих в кадре прохожих и прочее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6591A7B434D94C7803B88FAF9CED75F993A76E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667900   (175112) от 10.10.2023
-
-CameraBag Pro 2023.4.0 RePack (& Portable) by elchupacabra
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175112.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить один из сотен прекрасных пресетов к вашим фотографиям (и видео с помощью CameraBag Pro), а затем погрузиться глубже с помощью ультраинтуитивных профессиональных настроек. Что действительно отличает CameraBag, так это мощные продвинутые инструменты, которые при этом понятны и просты в освоении. Поддержка множества RAW форматов (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC52A3C1C0B3A401A967BC8A1A9D0A2F3C7B5351
 ```
 
 https://mybot314.ru/tekegram_catalog/

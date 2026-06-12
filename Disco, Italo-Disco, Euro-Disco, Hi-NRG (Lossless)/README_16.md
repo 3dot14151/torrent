@@ -326,6 +326,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141399   (474117) от 19.09.2009
+
+Stars on 45 - Greatest Hits (2008) [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_474117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Supreme Medley
+02 Bad Girls Medley
+03 Love Songs Are Forever Medley
+04 Swing Medley
+05 The Spencer Davis Group Medley
+06 Beatles Medley (Original 12 Inch Version)
+07 Abba Medley (Single Version)
+08 Carpenters Medley (Single Mix)Жанр: Disco, Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160678   (474011) от 25.08.2017
 
 Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
@@ -737,35 +770,6 @@ Silent Circle - Chapter 80ies Unreleased (2018) [FLAC|Lossless|WEB-DL|tracks] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3A40EEFD49AA9D6E4C2D3999EC0E258A3348C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062397   (441591) от 13.10.2016
-
-Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2nd Chance (feat. Tony Allen) (3:37)
-02. Funk Makossa (feat. Manu Dibango) (3:19)
-03. Bodytalk (3:44)
-04. Funk Makossa (Todd Edwards Remix) (feat. Manu Dibango) (6:16)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
 ```
 
 https://mybot314.ru/tekegram_catalog/

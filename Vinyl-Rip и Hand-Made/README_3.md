@@ -1,3 +1,90 @@
+###  Публикация: 1852741   (1056114) от 09.02.2026
+
+Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Viking/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Obscurity - немецкая метал-группа из г. Фельберт, Северный Рейн-Вестфалия, основана в 1997 году.2000 - Bergisch Land
+2003 - Thurisaz
+2007 - Schlachten & Legenden
+2009 - VararЖанр: Melodic Black/Pagan/Death MetalПродолжительность: 07:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0670E14020DC5CCE03A2FBC85427CB54E93D95EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852037   (1055737) от 05.02.2026
+
+Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055737.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Silver's Home Tonight
+A2 Hold On
+A3 Never Say Die (Give A Little Bit More)
+A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852182   (1055626) от 06.02.2026
+
+The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Soundtrack, Jazz, Anison>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A
+01. Tank!
+02. Rush
+03. SPokey Dokey(   Читать дальше...   )Жанр: Soundtrack, Jazz, AnisonПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F725BF81796F2AE6CA4552E86CF520064ED805FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851998   (1055507) от 05.02.2026
 
 Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
@@ -656,93 +743,6 @@ A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848620   (1052906) от 18.01.2026
-
-Gene Pitney - The Many Sides Of Gene Pitney (1962) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052906.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Town Without Pity
-A2 I Wanna Love My Life Away
-A3 I Laughed So Hard I Cried
-A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & RollПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848200   (1052813) от 16.01.2026
-
-VA - Red-Hot Victor : 20 American Country Chart Hits (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052813.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Willie Nelson - If You Can Touch Her At All
-A2 Dottsy - Here In Love
-A3 Tom T. Hall - May The Force Be With You Always
-A4 Jerry Reed & Seidina - You Know What(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6349FB45704E0290FB1A3A68B2143FFE5623752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848416   (1052661) от 17.01.2026
-
-Diana Ross - 20 Golden Greats (1979) FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052661.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Theme From Mahogany (Do You Know Where You're Going To?)
-A2 Touch Me In The Morning
-A3 Stop, Look, Listen (To Your Heart)
-A4 No One Gets The Prize(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721615A9274E06B1F61E1083D7F2C054BB7526E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

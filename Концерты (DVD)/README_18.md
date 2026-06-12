@@ -1,3 +1,93 @@
+###  Публикация: 214374   (45526) от 27.08.2024
+
+Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлогается  две концертные записи одного из классиков блюз-рока сделанные с разницей в десять лет от легендарного британского лейбла "Parlophone". Когда у издательства возникла необходимость выпустить положенный статусу суперзвезды видеосборник лучших хитов оказалось, что клипов-то записано меньше, чем пальцев на одной руке. Выход, конечно, (   Читать дальше...   )Концертные выступления:
+Live In Dortmund In 1992
+01. Cry Me A River
+02. Feelin' Albright(   Читать дальше...   )Жанр: Mузыкальное видео, блюз-рок, рок, попПеревод: ОригинальныйФормат: DVD VideoКачество: DVD9Продолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 67580   (45425) от 28.08.2024
+
+AC/DC - Stiff Upper Lip Live 2001 DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brian Johnson - lead vocals
+Angus Young - lead guitar
+Malcolm Young - rhythm guitar, backing vocals
+Cliff Williams - bass, backing vocals(   Читать дальше...   )01. Stiff Upper Lip
+02. You Shook Me All Night Long
+03. Problem Child
+04. Thunderstruck(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 02:07:28 min
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182858   (45404) от 28.08.2024
+
+W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт W.A.S.P. 2001 года в Key Club (Hollywood, L.A.)1. 	Helldorado
+2. 	Inside the Electric Circus
+3. 	Chainsaw Charlie
+4. 	Wild Child(   Читать дальше...   )Производство: Snapper MusicЖанр: Heavy Metal, Glam MetalПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 78762   (45117) от 31.08.2024
 
 Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD

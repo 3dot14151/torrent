@@ -1,3 +1,61 @@
+###  Публикация: 1008187   (816112) от 18.04.2016
+
+Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up (Radio Version) (3:49)
+02. Open Up (Full Vocal Mix) (8:49)
+03. Open Up (Dervish Overdrive Mix) (13:40)
+04. Afro-Left (Afro Ride Version) (9:10)Жанр: Electronic, TechnoПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35517E9939A27179EA73883C6DF74948E839ECD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008182   (815826) от 18.04.2016
+
+The Disco Biscuits - Dominican Holidaze, Punta Ca (2015) Live [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:44)
+01. I Remember When (7:55)
+02. Resurrection (12:16)
+03. Crickets (16:31)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298CE55397ED3BC1671DD23E2D81954DB34248A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008317   (815508) от 18.04.2016
 
 David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
@@ -682,63 +740,6 @@ Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506803   (799091) от 02.11.2021
-
-Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitch Dark (4:54)
- 02. Proud (3:56)
- 03. Jones St. (4:52)
- 04. Fireworks (4:25)(   Читать дальше...   )Жанр: EDM, Deep House, Chill HouseПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122234   (798796) от 05.04.2017
-
-Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undertow (Tuff City Kids Remix) (8:11)
- 02. Left To My Own Devices (Super Version) (5:31)
- 03. Burn (Baba Stiltz Remix) (10:22)Жанр: House, Tech HouseПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026AF669D11A7C686CDA3758EB4CE7D677883E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

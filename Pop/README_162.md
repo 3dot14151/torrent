@@ -1,3 +1,166 @@
+###  Публикация: 1039770   (594688) от 02.08.2016
+
+VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Rock, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chantz - Lean on Me.
+02. Katie Melua - The Closest Thing to Crazy.
+03. Spice Girls - Viva Forever.
+04. Engelbert Humperdinck - I Want to Wake Up With You.(   Читать дальше...   )Жанр: Pop, Jazz, Rock, Soft Rock, VocalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEA53C57BECED2BB8F22C5F485F7ED9A338A999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806967   (594172) от 22.07.2014
+
+VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Daddy Cool 3:28
+02. Precious Wilson - Hold On I'm Coming 3:33
+03. The Touch feat.Terence Trent D'Arby - I Want To Know (International Lady) 5:14
+04. La Bouche - Be My Lover 4:00
+05. No Mercy - Where Do You Go 4:31
+06. Far Corporation - Stairway To Heaven (Single Version) 3:59
+07. Meat Loaf - One More Kiss (Night Of The Soft Parade) 5:36
+08. Boney M. - No Woman No Cry 4:57
+09. Eruption - One Way Ticket 3:57
+10. La Bouche - Forget Me Nots 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232D7B8E6E71D10F7C0154EDE3275768EFB03E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806971   (594165) от 22.07.2014
+
+VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (3:22)
+02. Modern Talking - You Can Win If You Want (3:46)
+03. Bonnie Tyler - Bitterblue (3:48)
+04. Blue System feat. Dionne Warwick - It's All Over (3:54)
+05. Blue System - Sorry Little Sarah (3:29)
+06. Touche - This Goodbye Is Not Forever (3:36)
+07. Millane Fernandez - Boom Boom (3:29)
+08. Isabel - Will My Heart Survive (3:01)
+09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
+10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806466   (594158) от 22.07.2014
+
+Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Story Of Dschinghis Khan Part 1 (Extended Version)
+2 The Story Of Dschinghis Khan Part 2 (Extended Version)
+3 Moskau '99 (Rap Version feat. LTC)
+4 Dschinghis Khan '99
+5 Der Verrater
+6 Machu Picchu
+7 Corrida
+8 Samurai
+9 Rome (English Version)
+10 Klabautermann(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548968   (594007) от 06.05.2022
+
+VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Chambers - Caramel
+02. Max Mozart - Goals
+03. Eden Santonio - Medication
+04. Amadeus Mozart - Beach Opera(   Читать дальше...   )Жанр: Chillhop, Lo-Fi, Broken BeatПродолжительность: 00:52:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233000   (593991) от 28.06.2018
 
 VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
@@ -598,151 +761,6 @@ VA - Die 90er Live (2018) 2CD [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2823BDF544341E1AE46B6ADA5462909C461DE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549685   (592857) от 08.05.2022
-
-VA - SuperDisco 90's Platinum Collection (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cover Girls - What's Up (Remix) (2:25)
-02. DJ Dado - Twin Peaks Theme (4:21)
-03. Les Oranges - Lemon Tree (3:29)
-04. La Notte & Monsters - Return to Innocence (3:54)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0FEED2FBAEF0F46910FA43285E9FCBDCE3FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300769   (592765) от 07.05.2019
-
-Sarah Brightman - Hymn  (World Tour Limited Edition) (2019) [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture (00:01:02)
-02. Hymn (00:04:27)
-03. Sogni (00:04:18)
-04. Sky and Sand (00:04:12)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6471B9E2E6C29B626D02CF8E51FB66DD05106762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300646   (592757) от 07.05.2019
-
-VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592757.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Dermot Kennedy - Power Over Me
-02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4FEB1D55D628CC666483A5060C81E53FFFE9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300598   (592751) от 07.05.2019
-
-АЛЕКСИН - Платиновая Коллекция (2005) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вверх-вниз (feat. Горячие головы) (03:32)
-02. Папочка, папа. (feat. Колючки) (03:22)
-03. Шалавы (04:46)
-04. Мозоли (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385BF68FD2D3539CEAD86DD805A73651E72262E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300601   (592742) от 07.05.2019
-
-Крис Кельми И Рок-Ателье - «Замыкая круг» & «Мы знаем» (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592742.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Замыкая круг» 1986
-
-01. Не торопись (04:29)
-02. Человек-часы (04:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37F582835533C9BC58C761B74DB97D89F82CDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1200398   (796252) от 20.01.2018
+
+James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Waltz
+02. Der Verzauberte See
+03. Scheherazade
+04. Andante Variationen Nr.6(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200215   (796146) от 20.01.2018
+
+Алексей Рыбников - Музыка Космоса (2006) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет Звёзд (Через тернии к звёздам)
+02. Письма (Большое космическое путешествие)
+03. Тема Полёта (Полёт с космонавтом)
+04. Гроза (Через тернии к звёздам)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200700   (795524) от 21.01.2018
+
+The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Just Called To Say I Love You (4:22)
+2. Never Gonna Let You Go (3:19)
+3. With You I'm Born Again (3:12)
+4. Baby Come To Me (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 03:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012042   (795516) от 29.04.2016
+
+Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Willow Tree
+02. Star-Filled Skies
+03. Tree of Life
+04. Two Skies(   Читать дальше...   )Жанр: New Age, Neoclassical, RelaxПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509062   (795486) от 11.11.2021
 
 VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122769   (793513) от 06.04.2017
-
-VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native American Music Consort — Most Comfort Melodies for Spa
-02. Spa Music Paradise Zone — Breathe & Beneficial Rain
-03. Soothing Music Academy — Hypnotic Music
-04. Bedtime Stories Unit — Music for Spa(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122749   (793507) от 06.04.2017
-
-VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 Kbps] <Lounge, ChillOut, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodo Schopf - Misha (07:28)
-02. Jojo Rose - Summer (04:45)
-03. HP. Hoeger - Calm Down (05:20)
-04. El Petit Jardi - Sunlight Through Leaves (05:29)(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 02:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DE897944C4F47715A374F1531762E0308FBF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386296   (793469) от 30.05.2020
-
-The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kentucky
-02. I'll Be All Smiles Tonight
-03. Let Her Go, God Bless Her
-04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386398   (793465) от 30.05.2020
-
-Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Iron (3:58)
-02. A Hundred And Sixty Acres (1:42)
-03. They're Hanging Me Tonight (3:07)
-04. Cool Water (3:12)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1875111   (1072686) от 
+
+VA - Euro Hits 2018 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072686.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:13]. 001-Geo Da Silva & Fizo Faouez - Pump It Up
+[3:15]. 002-Claptone Ft. & Nathan Nichols - Under The Moon
+[3:15]. 003-Tal - Mondial
+[3:10]. 004-Dua Lipa & Black Pink - Kiss And Make Up(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 07:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7221D63A1DAED794FCCF4E7967D753462EF3ECDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874769   (1072317) от 
+
+Modern Talking - The Ultimate Best Of (2026) [MP3|320 Kbps] <Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Not Alone (3:41)
+02. Sexy, Sexy Lover (3:33)
+03. Last Exit To Brooklyn (3:16)
+04. You're My Heart, You're My Soul '98 (3:50)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 02:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDCD04D9A04BED68ED24510424240D05FD691A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874925   (1072213) от 
+
+Mode-One - Collection (2026) [MP3|320 Kbps] <Italo-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Of Love (Extended Mix) (feat. Lian Ross) (6:02)
+02. Get The Chance (6:38)
+03. Heaven Is Waiting (5:57)
+04. I Wanna Feel You (7:24)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 04:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039C0CC14E8EA81568F10D8DDC7C623B7CBC82C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874351   (1071868) от 02.06.2026
 
 VA - Disco Fresh In Rap 2 (1999) [MP3|320 Kbps] <Dance, Rap>
@@ -659,93 +746,6 @@ VA - Russian Hits 2020 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5564D2133799EAB3E65F3B5373CD29E01AFAF541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867595   (1067259) от 26.04.2026
-
-VA - Russian Hits 2021 [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067259.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:59]. 001-Султан Лагучев - Горький вкус
-[2:58]. 002-Тото - Пой танцуй
-[2:02]. 003-Elman - Босоногая
-[3:06]. 004-Karenchik - Ты больна(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F064E7D1AE180852FC47BCC5DBF869D89807B228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867316   (1066709) от 24.04.2026
-
-Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Never Return (3:12)
-02. Move Through a Live Wire (2:37)
-03. This is My Time (2:25)
-04. Love Is Found (2:42)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0657DC2C857393DB54CAF7F291DE50AC4915B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866743   (1066437) от 22.04.2026
-
-VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlimkhanOV A. - The City Never Sleeps (Vocal Mix) (5:53)
-02. Mancol - Angel Of Love (Extended) (5:43)
-03. Marc Fruttero & Tiziana Rivale - Time On Your Mind (Modern Mix) (3:39)
-04. Magic System D.J. - Without Your Love (Also Playable Mono Remix) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332BA83DC590B440438598F80811A1FF4791C28
 ```
 
 https://mybot314.ru/tekegram_catalog/

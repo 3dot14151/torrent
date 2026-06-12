@@ -1,3 +1,29 @@
+###  Публикация: 1800786   (15461) от 06.06.2025
+
+Фоны - Aamo - Creative Fabrica - Stained Glass Mandala [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображениями мандалы в стиле витражного стекла.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800925   (15338) от 07.06.2025
 
 Текстуры - CCPreset - Creative Market - 30 Colored Felt Texture - 291483585 [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D7701D0F9BB41791DF20B64A2929FABA183C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804894   (12770) от 02.07.2025
-
-Оверлеи - Etsy - Floral Gradient Backgrounds, Grainy Textures, Liminal & Polaroid-Inspired Overlays. PETALRUSH bundle - 1896215093 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хороший комплект с прекрасными оверлеями для ваших творческих задач.Формат: JPGРазрешение файлов: 5000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A0068C1D58B3A47866F13472075219E3B7408F
 ```
 
 https://mybot314.ru/tekegram_catalog/

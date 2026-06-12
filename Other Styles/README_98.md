@@ -1,3 +1,177 @@
+###  Публикация: 1311232   (539969) от 30.06.2019
+
+Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fellows (03:51)
+02. Gem (03:57)
+03. Fields of Gold (03:31)
+04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226421   (539753) от 14.08.2010
+
+Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(15:30) 1. Dancing Gallery
+(11:34) 2. Dreams
+(09:50) 3. Sunset
+(06:49) 4. Thea
+(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049600   (539674) от 07.09.2016
+
+Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
+Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153152   (538839) от 31.07.2017
+
+Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
+Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
+02. Dining Car [03:07]
+03. Cartanica [04:13]
+04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925668   (538759) от 07.08.2015
+
+The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haunted Guitar
+02. The Third Man Theme
+03. La Playa
+04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154344   (538695) от 31.07.2017
+
+VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris-France-Transit - Souvenir From Rio [04:20]
+02. Santana - I Love You Much Too Much [04:41]
+03. Armik - Dancing Shadows [04:44]
+04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532378   (538560) от 07.08.2012
 
 Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
@@ -609,177 +783,6 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819506   (533682) от 07.09.2014
-
-V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
-02. Eddie Heywood - A Dreamer's Holiday
-03. Floyd Cramer Orchestra - It Had To Be You
-04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926551   (533310) от 10.08.2015
-
-Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Else Matters
-02. Brothers In Arms
-03. Californication
-04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366000   (532734) от 25.07.2011
-
-Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Score, SoundtracksПродолжительность: 07:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051554   (532694) от 11.09.2016
-
-VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Shelton - Sangria (3:54)
-02. Sam Hunt - Break Up In A Small Town (3:52)
-03. Chris Stapleton - Tennessee Whiskey (5:03)
-04. Zac Brown Band - Beautiful Drug (3:12)(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051567   (532558) от 11.09.2016
-
-Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Waltz
-02. Once Upon a Time
-03. Say You Love Me
-04. Chance Encounter(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051132   (532546) от 11.09.2016
-
-Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Impossible Waves
-02. Kubo Goes to Town
-03. Story Time
-04. Ancestors(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
 ```
 
 https://mybot314.ru/tekegram_catalog/

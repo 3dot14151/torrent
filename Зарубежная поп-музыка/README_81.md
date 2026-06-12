@@ -1,3 +1,90 @@
+###  Публикация: 1348219   (145231) от 27.12.2019
+
+Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Kommissar (Rap' That) (3:51)
+02. Maschine Brennt (3:40)
+03. Auf Der Flucht (4:15)
+04. Wiener Blut (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4679CFC107F8956F5B7F3D7F103DF310E77A1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348215   (145070) от 27.12.2019
+
+Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo (2:42)
+02. Take A Chance On Me (4:03)
+03. Knowing Me, Knowing You (3:58)
+04. Super Trouper (4:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F74523151B308043523F2FE5BB45D8C6E86945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348252   (144863) от 27.12.2019
+
+VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - Good as Hell (BNDR Remix)
+02. Panic! At the Disco - High Hopes (Don Diablo Remix)
+03. Dua Lipa - IDGAF (Young Franco Remix)
+04. Portugal. The Man - Feel It Still (Coldabank Remix)(   Читать дальше...   )Жанр: Pop, Rock, EDMПродолжительность: 06:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348412   (144718) от 27.12.2019
 
 VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
@@ -657,99 +744,6 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680390   (133875) от 30.11.2023
-
-VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Imperio - Atlantis
-02.  JKP Project - If Ya Like Ta
-03.  Sonic Dream Collective - Happy Tune
-04.  Night People - We Want Good Sex Tonight(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCB4734CB086F91B88581347A94F5A5E978876E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595681   (132044) от 29.12.2012
-
-Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, pop rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Since You Been Gone                             3:10
-2.  My Life Would Suck Without You                  3:32
-3.  Miss Independent                                3:34
-4.  Stronger (What Doesn't Kill You)                3:41
-5.  Behind These Hazel Eyes                         3:17
-6.  Because Of You                                  3:40
-7.  Never Again                                     3:36
-8.  Already Gone                                    4:41
-9.  Mr. Know It All                                 3:52
-10. Breakaway                                       3:58(   Читать дальше...   )Жанр: Pop, pop rockПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8259214FE25FD5E2B244157E358D39A50C1B58CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682337   (131833) от 06.12.2023
-
-Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sie War Erst Siebzehn (Und Neu In Der Stadt) (New Kid In Town) (5:13)
-02. Rocky (4:14)
-03. Leg Den Kopf An Meine Schulter (2:31)
-04. An Mir Soll Es Nicht Liegen (3:44)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 ```
 
 https://mybot314.ru/tekegram_catalog/

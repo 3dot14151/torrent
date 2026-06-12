@@ -1,3 +1,29 @@
+###  Публикация: 1271827   (146856) от 25.12.2018
+
+PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр в жанре "я ищу, квест" от AMAX Interactive и Big Fish Games. Вам предстоит решать головоломки, находить скрытые ключи и раскрывать темные секреты города, который совсем не радостен.Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A01FC9E0EB8F03A938BCA442E8CD01DF2E3750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272520   (142666) от 28.12.2018
 
 The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
@@ -641,32 +667,6 @@ Craftomation 101: Programming and Craft предлагает геймерам о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1114BE6DF9CEC7628B72AF9348783D0D12E7D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608826   (37452) от 13.11.2024
-
-Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте городом, построенным из... мусора! В этой игре Вам предстоит вылавливать мусор из океана и использовать его для строительства плавучего поселения. Удастся ли Вам выжить в этом необычном постапокалиптическом мире?Тип издания: LicenseРазработчик: Pajama Llama GamesЖанр: Strategy, Sandbox, Open World, Survival, ManagementЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3111CC7F7FFE432BEFBE317779A68DDC433B8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1449311   (1030014) от 21.02.2021
+
+Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 2015, Psychopathic Records [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop, Hardcore, Horrorcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:24)
+02. Riddle Box (02:51)
+03. The Show Must Go On (05:07)
+04. Chicken Huntin'Жанр: Rap, Hip-Hop, Hardcore, HorrorcoreПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9019FD23A6C4F7DF720E71F8F9B2B4D4B547AE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449305   (1030011) от 21.02.2021
 
 Insane Clown Posse - The Great Milenko (1997) 20th Anniversary Edition, Remastered, 2017, Island Records [FLAC|Lossless|tracks + .cue] <Rap, Hardcore, Horrorcore>
@@ -716,35 +745,6 @@ Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368027   (914250) от 17.03.2020
-
-2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiven (feat. Marsha Ambrosius) (5:23)
-02. Threat 2 Society (3:46)
-03. Money In The Way (2:42)
-04. Statute Of Limitations (2:29)(   Читать дальше...   )Производство: Def Jam Recordings – B0030006-02Жанр: Hip-HopПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

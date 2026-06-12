@@ -1,3 +1,59 @@
+###  Публикация: 1662455   (187930) от 17.09.2023
+
+Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (2023) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет и добро пожаловать на этот новый курс. В этом курсе мы рассмотрим весь процесс создания традиционной китайской комнаты с использованием Unreal Engine 5, Blender, Substance Painter.
+Мы рассмотрим моделирование в Blender, текстурирование с помощью Substance Painter и настройку сцены, освещения и материалов в Unreal Engine 5.
+
+Все моделирование будет выполняться (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 10:59:23Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3AD710D4F4287F0E35D8302EBB715425B5D170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662517   (187926) от 17.09.2023
+
+Domestika, Calder Moore | 3D Toon-Style Environment Art with Arnold (2023) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn to design, model, and render highly detailed sci-fi environments with a stylized look using Arnold, Photoshop, and Cinema 4D
+From movies and video games to illustrations and image renders, visual art has the power to transport us to another dimension. Calder Moore is a 3D artist who specializes in designing environments for those fictional worlds. He’s worked (   Читать дальше...   )Производство: DomestikaЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 7:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5C41E4E6B297600564FF8BC04DBB8F40338E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662337   (187897) от 17.09.2023
 
 Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023) WEB-DL [AD] [EN]
@@ -643,62 +699,6 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA9763E1CF6FCA6B9A0CE07FDF12C292DC21406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591229   (187352) от 17.11.2022
-
-Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Painter (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот урок проведёт вас через каждый шаг от создания простой блок-модели до окончательной модели и создания текстур для игрового ассета транспортного средства.
-После окончания курса у вас будет более глубокое понимание того, как в игровой индустрии создаются готовые к игре художественные ассеты.Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 07:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3393ABF66FF1D89FFC6F19D7B99C63742365D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663213   (187170) от 20.09.2023
-
-Ирина Шпакова | Маки (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер-класс будет интересен всем:
-- Кто хочет освоить основы живописи
-- Научиться рисовать
-- Подходит для новичков!Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:16:53Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3DCF81B18C99AA802BC42943F7B5E38810F0F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

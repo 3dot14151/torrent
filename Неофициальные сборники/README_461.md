@@ -1,3 +1,32 @@
+###  Публикация: 1067275   (408393) от 28.10.2016
+
+VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alex Mica - Afrodita 3:39
+002.Andre Tay - Детство 4:05
+003.Arti - Параллели 3:39
+004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066747   (408391) от 28.10.2016
 
 VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
@@ -752,41 +781,6 @@ VA - Mega Cut Dreams (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB5A10C3D4CD74C50A20560FA19FC33A504ECBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559301   (407533) от 14.10.2012
-
-VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senadee - Life Support Machine (16 Bit Lolitas Remix) 08:36
-02. Roby K & Flashtech - Gravity (Original Mix) 07:36
-03. S.T.E.R.N - Seems Forever (Original Mix) 07:45
-04. Sergey Shabanov - Again (Original Mix) 08:10
-05. Snatt & Vix & Neev Kennedy - At The End Of The Day (Sied Van Riel Remix) 07:10
-06. Skyre & 4Frame - Stranded In La (Original Mix) 09:07
-07. Spark7 - Pick-Me-Up (Original Mix) 07:48
-08. Sash - Life Is A Beach 03:51
-09. Solid Stone - Surge 07:13
-10. Spark - Clouds Come (Original Mix) 08:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFB9988C2C8DF2526B95EE7C36A6A9BB2A9F4E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

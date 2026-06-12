@@ -1,25 +1,22 @@
-###  Публикация: 1282884   (741154) от 15.02.2019
+###  Публикация: 1397178   (741254) от 19.07.2020
 
-Kaah - Kaahlender (1998) EP [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul>
+Lynda.com | Foundations of Video: The Art of Editing (2013) WEB-DL [H.264/720p-LQ] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mad ångest (03:50)
-02. Förlåt fast försent (04:44)
-03. Kompissång (04:06)
-04. Folk som dör (feat. Petter) (04:13)(   Читать дальше...   )Жанр: Jazz-Funk, SoulПродолжительность: 00:30:54
+Существенная часть кино-производственного процесса начинается только после окончания съёмок. На самом деле, от того, как вы смонтируете материал, зависит, примет ли аудитория вашу историю. Научитесь работать со сценарием, отсматривать съемки и придавать сырому материалу форму законченного художественного произведения вместе с авторам данного курса, который является (   Читать дальше...   )Производство: Lynda.comЖанр: Видеоурок, туториалЯзык озвучки: АнглийскийПродолжительность: 03:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4338B6A4CD705AE4C7D882D8B0D1416D6A1E99F8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283120   (741153) от 15.02.2019
+###  Публикация: 1397203   (741253) от 19.07.2020
 
-Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
+Морена Морана | Книга о вкусном и здоровом сексе (2020) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Special To You (3:19)
-02. Act Of Love (3:02)
-03. She's A Big Girl Now (3:07)
-04. Stranger (3:24)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:35:07
+Без штампов и стереотипов!
+Смело и увлекательно!
+Всё о женском удовольствии!
+Морена Морана (Яна Кубаева) – клинический психолог, сексолог, автор популярных блоги на Яндекс.Дзен и на Livejournal об отношениях, сексе и женском самоопределении.(   Читать дальше...   )Жанр: ПсихологияПродолжительность: 06:25:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
+magnet:?xt=urn:btih:F3F337BC0FFAAA2399B7281D037AAD87ABC26A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,84 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283078   (741152) от 15.02.2019
+###  Публикация: 1397211   (741252) от 19.07.2020
 
-King Midas Sound - Solitude (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Soken Word, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Disappear
-02. Zeros
-03. In The Night
-04. Too Late(   Читать дальше...   )Жанр: Experimental, Soken Word, AmbientПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9065CD5C0D8FFF8F7E675D64D381BB0AD319436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283012   (741151) от 15.02.2019
-
-VA - 90er Trance (2019) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akira Inc. - Superstring
-02. Liquid Child - Diving Faces (Club Mix)
-03. Mindscape - Genetic (Talla 2xlc Remix)
-04. Nostrum - Blow Back 2000 (Sunbeam Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6C6A119A026524F2923CE2F99B3A6BFF2BBDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784019   (741148) от 07.05.2014
-
-Красавица Мемфиса / Memphis Belle (1990) BDRip [720p]
+Идеальное место для убийства / Un posto ideale per uccidere (1971) BDRip [H.264] [AVO] [Uncut version]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу картины положен реальный эпизод из истории Второй мировой войны, который был впервые документально изложен легендарным Уильямом Уайлером.
-Герои фильма — экипаж бомбардировщика Б-17 «Красавица Мемфиса» — уже провели с риском для жизни двадцать четыре воздушные операции. Осталась последняя и самая опасная — двадцать пятая…Производство: Великобритания, Япония, СШАЖанр: Боевик, Драма, ВоенныйРежиссер: Майкл Кейтон-ДжонсАктеры: Мэтью Модайн, Эрик Штольц, Тейт Донован, Д.Б. Суини, Билли Зейн, Шон Эстин, Гарри Конник мл., Рид Даймонд, Кортни Гейнс, Нил ДжунтолиПеревод: Дублированный (Варус-Видео) / Одноголосый закадровый, авторский (Юрий Живов)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Divxclub), Английский (Full, SDH)Продолжительность: 01:47:11
+Парочка хиппи, Дик и Ингрид, путешествуют по Европе и зарабатывают деньги продажей порнографии, как своей, так и чужой. В Пизе их арестовывает полиция и приказывает молодым людям покинуть страну в течение 24 часов. По дороге домой, оставшись без денег и бензина, они оказываются в шикарном особняке, чья хозяйка, Барбара, приглашает парочку переночевать у нее. Утром (   Читать дальше...   )Производство: Италия, Франция, Дания, Швейцария / Compagnia Cinematografica Champion, Les Films ConcordiaЖанр: Триллер, КриминалРежиссер: Умберто ЛенциАктеры: Ирен Папас, Рэй Лавлок, Орнелла Мути, Мишель Бардинет, Жак Стани, Умберто Д’Орси, Калисто Калисти, Уго Адинолфи, Сальваторе Боргезе, Джузеппе ТеррановаПеревод: Авторский, Н.КирдинСубтитры: Английские (Forced, Full), русские (Forced)Продолжительность: 01:29:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A54D678CDFB1513E563E160FFA6B58EE6EEE670D
+magnet:?xt=urn:btih:2A9093A9CD23C27A7B5FC43598201228E09FC59D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,25 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 784068   (741138) от 07.05.2014
+###  Публикация: 1397050   (741251) от 19.07.2020
 
-Starперцы / Last Vegas (2013) BDRip [576p] iPad
+Metallica: S&M - With The San Francisco Symphony Orchestra (1999) DVDRip [H.264]
 
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Билли, Пэдди, Арчи и Сэм дружат больше полувека. И когда убежденный холостяк Билли наконец-то делает предложение своей юной подружке, великолепная четверка отправляется в Лас-Вегас, чтобы скинуть с себя груз прожитого и зажечь как в последний раз. Великовозрастные гуляки и не подозревают, как за десятилетия эволюционировал Город Грехов…Жанр: Комедия, драмаПродюсер: Эми Баэр, Джозеф Дрэйк, Лоуренс МаркВ ролях: Майкл Дуглас, Роберт Де Ниро, Морган Фриман, Кевин Клайн, Мэри Стинберген, Джерри Феррара, Романи Малко, Роджер Барт, Джоанна Глисон, Майкл ИлиПеревод: Профессиональный (дублированный)Язык субтитров: Русский, АнглийскийПродолжительность: 01:45:00
+S&M - совместный концертный альбом американской группы Metallica и симфонического оркестра Сан-Франциско под управлением Майкла Кеймена, вышедший в 1999 году.
+S&M - запись концертного выступления группы совместно с симфоническим оркестром Сан-Франциско в 1999 году. Группа сыграла песни со всех своих, вышедших на тот момент, альбомов (кроме первого, Kill’em (   Читать дальше...   )Производство: США / Elektra RecordsЖанр: хэви-метал, трэш-метал, симфонический метал, хард-рокСубтитры: английскиеПродолжительность: 02:29:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4B040ED9CC083B1E0E60837009F8F4C07B5E993
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +106,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127000   (741130) от 20.04.2017
+###  Публикация: 1397210   (741250) от 19.07.2020
 
-Calendar 366 Plus 1.4.4 [Multi]
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRemux [H.264/1080p]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хеммет, Роберт Трухильо, МакКензи Грэй, Джереми РэймондПеревод: Многоголосый профессиональныйСубтитры: английские (Forced Color Songs)Продолжительность: 01:32:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397280   (741249) от 19.07.2020
+
+Жизнь Раз (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писательница и экспатриант Марина получает приглашение на встречу выпускников школы. Поддавшись ностальгическому порыву, она прилетает из Европы в Новоустиновск - уездный город в средней полосе страны, которой уже давно не существует. Там, в провинциальной глубинке прошлого, живут ее воспоминания и старые подруги, все они эфемерны как телевизионные передачи из другой (   Читать дальше...   )Производство: Россия, Нидерланды, Чехия / Студия «Тритона»Жанр: ДрамаРежиссер: Владимир РакшаАктеры: Ингеборга Дапкунайте, Иван Кожевников, Юлия Абрамова (II), Елена Дегтянникова, Анна Асташкина, Айк Саргсян, Полина Виторган, Андрей Железный, Марк ТузенкоСубтитры: НетПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3F422E27CB3A8A583B94E5C99CA7DE912B737D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397330   (741248) от 19.07.2020
+
+UltraISO Premium Edition 9.7.3.3629 (DC2020-07-17) [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calendar 366 Plus - календарь событий и напоминаний для меню бара
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
-
-Нажмите на иконку и получите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 апреля 2017Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:390E6F53321840779F969FA39B2531269E6C3E56
+magnet:?xt=urn:btih:3C20C80E17B2772AFDBE0183744DC11D9675FE72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,28 +184,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127241   (741129) от 20.04.2017
+###  Публикация: 417605   (741247) от 19.07.2020
 
-Airform - Quantum (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Расул Гамзатов | Мой дедушка (1975) [PDF, FB2]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revival (In Mix) [00:04:12]
-02. Corpuscle (Original Mix) [00:06:11]
-03. Follow Me (Original Mix) [00:07:32]
-04. Red Stone (Original Mix) [00:05:46](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:24
+Букинистическое издание.
+ В книге представлена поэма Расула Гамзатова «Мой дедушка».
+С иллюстрациями. Для детей дошкольного возраста.Жанр: Детская литератураФормат: PDF, FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B42C85453DD864987C853D37F73DB46EF6B5AD1
+magnet:?xt=urn:btih:532D471E9FDAE32C148500A769807B0E2BBA24D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +212,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126733   (741128) от 20.04.2017
+###  Публикация: 1397226   (741246) от 19.07.2020
 
-VA - La Maison La Rue Vol.4 (Pure Lounge For Now People) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+[Udemy] Leonid Shapiro | Инфраструктура Открытых Ключей (PKI). Часть 1, 2  (2017, 2019) PCRec
 
->>Electronic
->>Easy listening
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Monte La Rue - When I Look  4:37
-02.  Faberge - Mother Of Pearl  4:14
-03.  Monte La Rue - Champagne Breakfast  3:54
-04.  Da Vince - Dimanche  4:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:38
+Курс посвящен внедрению инфраструктуры открытых ключей в корпоративной среде.
+В первой части курса слушатели познакомятся с теоретическими основами Инфраструктуры Открытых Ключей (PKI) и поймут основы криптографии. Научаться проектировать многоуровневые иерархии PKI и обеспечивать их безопасность и доступность.
+Во второй части слушатели научатся внедрять PKI на основе (   Читать дальше...   )Производство: Leonid ShapiroЖанр: Криптография, информационная безопасностьПродолжительность: 09:55:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B333C3C2C461882C48A37E2B8B76ADFA9298EF3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +240,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127233   (741127) от 20.04.2017
+###  Публикация: 1397299   (741245) от 19.07.2020
 
-VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+Мой создатель / Archive (2020) WEB-DL  [H.264/1080p] [EN / EN Sub]
 
->>Electronic
->>Trance
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Offshore Wind & Roman Messer - Suanda (feat. Ange) (Aurosonic Intro)  3:58
-02.  Photographer - Infinity (Radio Edit)  3:46
-03.  Roman Messer feat. Christina Novelli - Frozen (feat. Christina Novelli) (Radio Edit)  4:41
-04.  Simon O'Shine feat. Eskova - You May Love (Radio Edit)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:47:17
+2046-ой год. Время невероятных технологических открытий, могущественных корпораций и торжества искусственного интеллекта.
+Молодой ученый в секретной лаборатории занимается поиском вечной жизни для сильных мира сего. Но его истинная цель другая. Он пытается воскресить свою единственную любовь, погибшую несколько лет назад.
+Когда объект перестает выходить на связь, (   Читать дальше...   )Производство: Великобритания, Венгрия, США / Head Gear Films, Hero Squared, IndependentЖанр: фантастикаРежиссер: Гэвин РотериАктеры: Рона Митра, Тео Джеймс, Тоби Джонс, Стэйси Мартин, Питер Фердинандо, Ричард Гловер, Ханс Петерсон, Джереми Вилер, Timea Maday KingaПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 01:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:118BC94D12EA626EEFD34825EDCEEB5F94A288FD
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,28 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127079   (741126) от 20.04.2017
+###  Публикация: 1392261   (741244) от 19.07.2020
 
-VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+Первое убийство / First Kill (2017) BDRip [H.264/1080p]
 
->>Electronic
->>Radioshow, Live Mixes
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_741244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrea Ribeca - Amoroso
-02. illitheas - Alive
-03. Naeba & Soundfly - Love Is Out There
-04. FAN FAVORITE: Tycoos - Things We Left Behind(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:00
+Фильм об опытном офицере, который расследует похищение мальчика, ставшего свидетелем разборки между банковскими грабителями. Вызволить ребенка так же торопится его молодой отец, вызывающий у полицейского серьезные подозрения — а не был ли он сам связан с этим ограблением?Производство: США / Aboretum Productions, Brookstreet Pictures, Emmett/Furla/Oasis Films (EFO Films)Жанр: Боевик, триллерРежиссер: Стивен С. МиллерАктеры: Брюс Уиллис, Хейден Кристенсен, Тай Шелтон, Меган Леонард, Гетин Энтони, Уильям ДеМео, Дэб Дж. Гирдлер, Тайлер Джон Олсон, Ши Бакнер, Маги АвилаПеревод: 2 х Профессиональный многоголосый, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 01:41:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D487A336AF48F2C1046351C8E4D78DA56FB7C7DE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,28 +294,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126724   (741125) от 20.04.2017
+###  Публикация: 1397244   (741243) от 19.07.2020
 
-VA - Chill Out Amsterdam (Lounge From The Lowlands) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Марьяна Терехина | Планирование для блогеров и предпринимателей (2020) PCRec
 
->>Electronic
->>Easy listening
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Monte La Rue - Monsieur Mushroom  5:12
-02.  Faberge - Costa del Amstel  5:01
-03.  Da Vince - Nothing Is  4:58
-04.  Tom Urleena - Color My Pants  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:29
+Вебинар, на котором мы наведем порядок в ваших делах и организуем работу с командой/клиентами/блогом
+Создадим систему управления вашим делом и блогом в бесплатной программе Notion. Она станет фундаментом для вашего развития, поможет навести порядок в жизни, найти дополнительное время на отдых и начать получать крутые результаты!Жанр: Бизнес-планированиеПродолжительность: 03:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D90CF5A2B9BF6F2B4D3EE650C953154531F46A0D
+magnet:?xt=urn:btih:4F27B12B25FEAB6F4CCA69537FFDBD849FADBC15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +321,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126962   (741124) от 20.04.2017
+###  Публикация: 1283102   (741242) от 15.02.2019
 
-The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image + .cue] <Industrial Death Metal>
+Gene Krupa & His Orchestra - Let Me Off Uptown (1949) 2000, Trama [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Descend Into The Eternal Pits Of Possession 12:55
-02. You Come To Me Through Hell 08:55
-03. See The Filth Become Flames In This Furnace 08:19
-04. Our Wrath Will Rain Down From The Sky 08:35(   Читать дальше...   )Жанр: Industrial Death MetalПродолжительность: 01:04:36
+01. Disc Jockey Jump [3:06]
+02. Yesterdays [3:20]
+03. Lemon Drop [3:26]
+04. After You've Gone [3:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A44F37505D69C2169870CB8ED13192FDFB664E
+magnet:?xt=urn:btih:AFD76498DDE8280BE925F54B7CD521381A1BB987
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,25 +350,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127097   (741123) от 20.04.2017
+###  Публикация: 1282869   (741241) от 15.02.2019
 
-PrimoMusic Pro 1.5.1 [En]
+Carmen McRae - Black Magic "Live" (1979 - 1981) 1992, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrimoMusic предлагает Вам возможность перемещать контент между Вашим iOS устройством и Mac без каких-либо ограничение, налагаемое функцией синхронизации iTunes. PrimoMusic также может быть использован для отправки треков в библиотеку iTunes. При запускаете приложение, PrimoMusic сканирует iOS устройство подключенное к компьютеру через USB. После того, как связь установлена, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.04.2017Разработчик: PrimoSync IncПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
+01. Black Magic [3:50]
+02. Last Winter [4:29]
+03. New York State of Mind [5:18]
+04. Underneath the Apple Tree [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D92C2454BA7921E7E13350A2BA9332A86AA592C
+magnet:?xt=urn:btih:08239A0AAC83C3F113579F1F18C420E5FFE67B29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,28 +379,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126972   (741122) от 20.04.2017
+###  Публикация: 1282862   (741240) от 15.02.2019
 
-VA - Chill out Nation Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Electronic
->>Easy listening
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. L.O.B. Lord Of Beat - Deep Down - Original Mix
-02. Childboy - Atmo Evening - Original Mix
-03. D-Chill - Dusty Light - Original Mix
-04. Raviv - Good Together - Ahsnati Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:19
+01. King Porter Stomp [3:11]
+02. Goodbye [3:27]
+03. If I Could Be with You (One Hour Tonight) [2:18]
+04. Down South Camp Meeting [3:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CEA93DC230C18E81A04FD08502A4FBAE5D50846
+magnet:?xt=urn:btih:7AF0C5079A3D8B0B2EDAB2D06C04D769C84144A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,28 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125667   (741121) от 20.04.2017
+###  Публикация: 1283108   (741239) от 15.02.2019
 
-VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
+John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Денис Филимонов - Сахар 2:57
-002. Danya - Бомба Любовь 3:40
-003. Тамерлан & Алена - Давай Поговорим 3:29
-004. Olstan Van Guard - Знаки 4:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+01. Giant Steps [4:46]
+02. Naima [4:22]
+03. My Shining Hour [4:52]
+04. Central Park West [4:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEA4454A58C2F8F5B0D6372883B08980C1259221
+magnet:?xt=urn:btih:D14F1E0EE2177A5AE2E3FDDDD81130F505F76A49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,28 +437,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127041   (741120) от 20.04.2017
+###  Публикация: 1282874   (741238) от 15.02.2019
 
-VA - Calmness Sky Is The Limit Vol.1 (Waves Of Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Electronic
->>Easy listening
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Velvet Dreamer - Forgotten Places  5:37
-02.  351 Lake Shore Drive - Frozen Heart  6:52
-03.  Inventors Of The Sun - Wonder Of Romance  5:19
-04.  Karen Gibson Roc - She Smiles  5:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:10
+01. I'm an Errand Girl for Rhythm [3:33]
+02. Beautiful Moons Ago [3:11]
+03. The Frim Fram Sauce [3:59]
+04. Come in out of the Rain [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F98FFEBC1DC1F5AE32EB6B9F88677B4053746FAF
+magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,28 +466,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126820   (741119) от 20.04.2017
+###  Публикация: 1282859   (741237) от 15.02.2019
 
-VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chriss Ronson - One Shot (original mix) (07:00)
-02. Onur Ozman - There's No Shame (Chriss Ronson's Cre8tion remix) (07:00)
-03. Chriss Ronson - Bamboo Basket (original mix) (06:41)
-04. Chriss Ronson - Razbora (original mix) (06:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:34
+01. In a Mellotone [6:01]
+02. The Midgets [9:25]
+03. Whirly-Bird [4:07]
+04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02B51F0236FFD8CBBFC6B5D4432282BCA0F6D583
+magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,25 +495,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127037   (741118) от 20.04.2017
+###  Публикация: 1283105   (741236) от 15.02.2019
 
-А. И. Залесский и др. (ред.) | Причины существования и пути преодоления религиозных пережитков (1965) [DJVU]
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга представляет собой конкретно-социологическое исследование причин религиозности различных групп населения Белорусской ССР и путей преодоления религиозных пережитков в быту и сознании людей. В ней показан процесс формирования атеизма, степень религиозности населения в настоящее время, формы проявления пережитков религии, дается анализ идеологии и деятельности (   Читать дальше...   )Жанр: История, политология, религиоведение, социология, психологияФормат: DJVU
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF86B45AD0CC41280A1E517084D9551F9EEAB7D
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,28 +524,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127107   (741117) от 20.04.2017
+###  Публикация: 1283104   (741235) от 15.02.2019
 
-Angelika Yutt - Beautiful Coloratura (Ambient & Chill) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Electronic
->>Easy listening
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Surreal Dream (Ambient Mix)
-02. Fantasia Del Amor (Air Mix)
-03. Its Time To Go Home (Original Mix)
-04. Silence (In Your Eyes) (Air Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:31:35
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F32FF2B30AF897125C30F55B648AFB17FFD7144B
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,28 +553,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125670   (741116) от 20.04.2017
+###  Публикация: 1283107   (741234) от 15.02.2019
 
-VA - Весенняя 100-ка популярных треков. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Лена Максимова - Слышишь Отошел 3:39
-002. Наталия Власова - Мне Не Хватает Тебя 3:42
-003. Cash'u - Хочу 3:29
-004. Lega - Она Мой Diamond 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3BD2C1074E4496D29194DD6FBD94184DCC400D9
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,28 +582,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127124   (741115) от 20.04.2017
+###  Публикация: 1282876   (741233) от 15.02.2019
 
-Browser Care 4.0.1 [Multi]
+Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Browser Care  - держим браузеры в чистоте
-Browser Care - является мощным приложением, которое поможет вас сохранять ваш браузер всегда быстрым и стабильным, очищая кеш, список загрузок, историю, куки сессий, данные автозаполнений и многое, многое другое, а кастомные настройки позволят выбрать то, что вам необходимо.
-
-Приложение поддерживает самые популярные браузеры (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Giovanni Maria CusaroПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Французский, Немецкий и др.
+01. Basie Blues [3:08]
+02. Mutton Leg [3:22]
+03. It's Sand, Man [3:08]
+04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13C6E3FD1148240BD123DB3E3F0BE345AE3D8668
+magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126798   (741114) от 20.04.2017
+###  Публикация: 1283139   (741232) от 15.02.2019
 
-VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sean Norvis - Over - Radio Edit 03:27
-02. Tony Vegas - Soul Mates - Maury J Remix Edit 03:34
-03. Franky D.P. - Magic Sax 04:33
-04. Spikaa - Never Be Afraid - Radio Edit 03:04(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:17
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFE70AD2FDEB68ECAA49C6EDA03283BA0B0524E7
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,26 +640,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126916   (741113) от 20.04.2017
+###  Публикация: 1283170   (741231) от 15.02.2019
 
-Better Rename 10.17 [En]
+Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 апреля 2017Разработчик: Frank ReiffПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+01. Carrier (6:17)
+02. Broken (7:20)
+03. Sixth Sense (6:59)
+04. Monsoon (4:18)(   Читать дальше...   )Производство: Hubro – HUBROCD2587Жанр: Jazz, Nu Jazz, Dark JazzПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5E96C1E91DBFD03EAEEA70751C69ED65EF6D2C9
+magnet:?xt=urn:btih:F2FEB45C6FB0DA9030E34A5F6C0438CCBABEF0EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +669,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127116   (741112) от 20.04.2017
+###  Публикация: 1283138   (741230) от 15.02.2019
 
-ExLibris 8.0 [Multi/Ru]
+Александр Кравецкий | Церковная миссия в эпоху перемен (2011) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-База данных библиотеки
-Идеальное программное обеспечение для работы с библиотечными базами данных для создания, управления и анализа  книг вашей библиотеки на вашем компьютере, благодаря Amazon Web Service, крупнейшей в мире медиа-базе данных.
+Просматривая предреволюционные и современные публикации, посвященные проблемам миссии, нельзя отделаться от впечатления, что, рассуждая о миссии, авторы разных эпох пишут о совершенно различных предметах. Очевидно, что понятие миссия за прошедшее столетие претерпело существенные изменения.
 
-Создайте автоматизированную библиографию из вашего списка книг в наиболее используемом формате для исследователей и студентов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 февраля 2017Разработчик: Charles-Andre LEDUCПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский и др.
+Если современный человек под миссионерской деятельностью Церкви понимает, (   Читать дальше...   )Жанр: История церквиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC2597EDF7EBE6D865D1CB2B00729EBCABD416C2
+magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,25 +697,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127015   (741111) от 20.04.2017
+###  Публикация: 1283099   (741229) от 15.02.2019
 
-Вечерний Ургант (2017.04.19) SATRip
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:33
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A736BE26A740982D9CDCB2F33C18997B51F84D
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
 ```
 
 https://mybot314.ru/tekegram_catalog/

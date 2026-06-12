@@ -1,3 +1,146 @@
+###  Публикация: 914597   (598471) от 02.07.2015
+
+VA - Top From the Top: Tom Strobe (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melosense - Rainy Day (Original Mix) (03:48)
+02. Stendahl - Serenity (Original Mix) (07:21)
+03. 1Touch - Be Strong (Sunlight Project Remix) (08:18)
+04. Nafis - Holding Hands (Stendahl Remix) (07:42)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D385BDBBC14DB208E09B1CCD7E5701160805B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149774   (598444) от 12.07.2017
+
+Jean-Michel (aka Bersarin Quartett) - Collection 5 Releases (1999-2011) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Abstract, Downtempo, Breaks, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Shuffle (05:42)
+ 02. Trick 17 (04:21)
+ 03. Don't Ask For Sunshine (05:47)
+ 04. Sleep Well, Darling (05:58)(   Читать дальше...   )Тип издания: CD, Web •Жанр: IDM, Abstract, Downtempo, Breaks, Experimental, Ambient •Продолжительность: 00:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225D4392DDEAA16A23B6F7F7E935925D9AC36BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039242   (598049) от 31.07.2016
+
+Dog Won't Bite - Schplatterfunk (1993) [FLAC|Lossless|image + .cue] <Acid Jazz, Synth-pop, Funk, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bell Bottoms 3:39
+2. Out Of Limits 4:57
+3. Sweet Lies 4:55
+4. Witness 3:49(   Читать дальше...   )Жанр: Acid Jazz, Synth-pop, Funk, DiscoПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDAAB553A017D50BDD81D7ADC79E1E7E4AA3947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149919   (598013) от 12.07.2017
+
+Depeche Mode - Going Backwards (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Backwards (5:43)
+02. Going Backwards (highline sessions version) (5:27)Жанр: SynthpopПродолжительность: 00:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08B54EAAB03881EB281AF2BEB12249C66E70593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914337   (597892) от 02.07.2015
+
+Bassnectar - Into The Sun (2015) [MP3|320 кб/с]<Dubstep, Future Bass, Trap>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Heaven
+02. No Way (Bassnectar Remix)
+03. Into the Sun
+04. Speakerbox (feat. Lafa Taylor)(   Читать дальше...   )Жанр: Dubstep, Future Bass, TrapПродолжительность: 02:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA358848BB474B15258747D529418F8BBCEDE6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039145   (597808) от 31.07.2016
 
 VA - Defected In The House Croatia (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -613,151 +756,6 @@ VA - Total Trance Selections Vol.05 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA8507B7D63ADA161B4771D810C7EEFDC97E79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150182   (595282) от 14.07.2017
-
-VA - Relaxing Summer Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  W.A.H. - Trip To Heaven  4:03
-02.  Gushi & Raffunk - Find Me  3:46
-03.  Luca Brunetti - Waiting For Summer  3:55
-04.  Klod Rights - Silent Valley  4:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34410E4A23F1E760B736894D33C764F04C1F5C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150239   (595278) от 14.07.2017
-
-VA - 100% Super Hits (Summer '17) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Flight – Extasy (Latin Summer Mix) 06:17
-02. Lykov – I Can Live 04:36
-03. Richard Highway – Somebody 03:54
-04. DJ Favorite – Reach the Sky 03:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7ACDCC83E35094AEFC078A302B298B207B1A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233006   (595085) от 27.06.2018
-
-VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Of Love - Sixthy (Sugar & Club Saxy Mix) 2:56
-02. Jay Beach - Mr. DJ (Fine Gold Mix) 3:02
-03. House Defrag - Fight (Red Zone Mix) 2:47
-04. The Philosopher - Trumpet Ring (Vocatrumpa Ibiza Mix) 3:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19D9A1E4568FA9073BD11A2E8362C463025342B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232966   (595015) от 27.06.2018
-
-VA - 50 Hot Summer Tunes For Your Beachday (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leed - Clary 3:12
-02. Laura Nes - Crocodile 3:12
-03. Larry Hyde - Queen 3:12
-04. Klinikum - Barnet 3:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D1020258A2F63C1503EEDD1779F7327F6C15E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232790   (595006) от 27.06.2018
-
-VA - Italo Disco: Essential House Music (Compiled and Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Euro-House, Eurodance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Martina - 1985 (Radio Dance Mix)
-02. Casarano - Long Ago (BCR Extended Version)
-03. Tommy Sun - Dance With Me (Italo Radio Mix)
-04. Automat 428 - Silence Is Magic (Radio Mix)(   Читать дальше...   )Жанр: Euro-House, EurodanceПродолжительность: 02:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937D97663A64DBB5F2D0799FBC7DAB6E6A441D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

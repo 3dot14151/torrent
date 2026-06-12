@@ -1,3 +1,30 @@
+###  Публикация: 947357   (419902) от 16.10.2015
+
+Обои - Ultra HD (4K) Mix 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев для рабочего стола в формате Ultra HD(4K).
+Количество: 1155 шт.Формат: JPGРазрешение файлов: 3840 × 2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447EE721021CE90465001F585C763D2BDF834E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947611   (418115) от 17.10.2015
 
 Обои - Реки 16 [JPG]
@@ -652,36 +679,6 @@ Computer Desktop Wallpapers Collection (16.10.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678A3EB47FFB46B9C8F8CE918B3C24436BC5D459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561577   (406163) от 17.10.2012
-
-[Wallpapers] HDR Wallpapers
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406163.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HDR Wallpapers
-Название: HDR Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC0C393F4FB5DF423340E9A861DE9229937D14E
 ```
 
 https://mybot314.ru/tekegram_catalog/

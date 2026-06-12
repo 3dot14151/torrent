@@ -1,3 +1,90 @@
+###  Публикация: 1738850   (48831) от 26.07.2024
+
+VA - 80's-90's Beach Party (2024) 2CD [MP3|320 Kbps] <Pop, Rock, Electro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - Livin' On A Prayer [04:09]
+02. Bryan Adams - Summer Of '69 [03:37]
+03. Tom Petty - Free Fallin' [04:16]
+04. Katrina & The Waves - Walking On Sunshine [03:59](   Читать дальше...   )Жанр: Pop, Rock, ElectroПродолжительность: 08:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DC46FAB293F7FC993BBD09ADC37E3D9EA28C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739196   (48769) от 26.07.2024
+
+VA - compilation part 105 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faniz - Aurora
+02. Menda - Instant
+03. Riltim - Stay With Me
+04. Rafeex - Looking for You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1C6A395A162A3EA97FE9DA88A8C9623B5404AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739184   (48762) от 26.07.2024
+
+VA - compilation part 103 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aurm - Endless Love
+02. Akmalov - Nacturne No.1
+03. Riltim - Lifeline
+04. Akmalov - Nocturne No.2(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64F116B3D4238D2F625A3071A981E52C9A901E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739190   (48760) от 26.07.2024
 
 VA - compilation  part 104 Eurodance (2024) [MP3|320 Kbps] <Eurodance>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC7ABB685F6F58FB38A2F07DD6C938E853C0D0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741884   (47227) от 10.08.2024
-
-VA - Compilation part 112 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - I Love You
-02. Akmalov - Never Lose Me
-03. A-Sultan & Enigma - I Am Asking Why
-04. Limora - Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07B16AD2D2034D4D7EEC7DC3D4DB90931AD0388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742203   (47169) от 11.08.2024
-
-Сергей Грищук - Музыка для души Compilation Part 3 (2024) [MP3|320 Kbps] <Instrumental, electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47169.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Прости За Всё
- 002.  Зеркало Души
- 003.  Осенний Сон
- 004.  Лишь Только Ты(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 05:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DEB6D4DBFB0EC9DB7B5A602E734E9905F18437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741240   (47166) от 11.08.2024
-
-Сергей Грищук - Музыка для души Compilation Part 2 (2024) [MP3|320 Kbps] <Instrumental, electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Melody  of Rain
- 002.  Ветер Надежды
- 003.  Ты Только Верь
- 004.  Лунная Ночь(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 05:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09280A36413A9C57A95BCE67464DE6FFCF137C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1799745   (16501) от 29.05.2025
+
+StartAllBack 3.9.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16501.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE3B52B8FE03B20D830F71AD4D535DE49B0277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799556   (16463) от 29.05.2025
 
 CCleaner 6.36.11508 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -644,32 +670,6 @@ Microsoft Activation Scripts (MAS) 3.3 portable [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250234BA917B0972E55EA9390709D2344AC74621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800370   (15889) от 02.06.2025
-
-Topaz Photo AI Pro 4.0.1 Portable by 7997 + Models [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6843FE4F1B30DA5A04FF38E9BFC987DC56759854
 ```
 
 https://mybot314.ru/tekegram_catalog/

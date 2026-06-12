@@ -1,3 +1,177 @@
+###  Публикация: 1688354   (125211) от 29.12.2023
+
+VA - Music News vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125211.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katana Katrina feat. XTM Prod - Недосягаемая (02:44)
+ 002. 10 ZалпоV - Маршрутка №8 (03:16)
+ 003. Aafraa feat. Jordan Grace - Rush In (03:12)
+ 004. ADEL’ - Не Знаю Сам (01:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB00B189A33607B5BCD857C6286F95427221667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599731   (124984) от 31.12.2023
+
+VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
+002. Harry Styles - As It Was (2:47)
+003. Alis Shuka - Not About Us (Ayur Tsyrenov DFM Remix) (2:10)
+004. Shakira feat. Rauw Alejandro - Te Felicito (Amice Remix) (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689090   (124959) от 31.12.2023
+
+VA - Лучшие песни Европа Плюс за 2023 год [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil Nas X - Star Walkin' (League Of Legends Worlds Anthem) (3:30)
+002. Tove Lo - Borderline (3:13)
+003. Purple Disco Machine feat. Kungs - Substitution (3:01)
+004. The Future X - This Kind Of Love (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C172AE086941FBCD78DB9B0C0585977E7A1B3147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688749   (124926) от 31.12.2023
+
+VA - RelaX (my essence) for You (2023) [MP3|192 Kbps] <Pop, Rock, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Turn around (03:54)
+02. Alex clare - Too close (04:16)
+03. Alphaville - Forever young (03:39)
+04. Aqua - Turn back time (04:09)(   Читать дальше...   )Жанр: Pop, Rock, RelaxПродолжительность: 03:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA4A68FC4FCB618799F2857516707140C3DE6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689368   (124803) от 01.01.2024
+
+VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carlla feat. Dr Mako - July (Sped Up) (02:45)
+ 002. Akord feat. Mihaela Tabura - Hai Hai (03:17)
+ 003. Anastay - Вселенная (02:16)
+ 004. Armin Van Buuren - Computers Take Over The World (Club Mix) (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4333B4E10C20F7E7B7B76CFA7D9BE970EC386AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690254   (124055) от 06.01.2024
+
+VA - Music News vol.329 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Асия feat. Tritia - Жить Тобой (03:05)
+ 002. 24kGoldn - Good Intentions (02:36)
+ 003. Alan Walker feat. Putri Ariani & Peder Elias - Who I Am (03:14)
+ 004. Ale Mora feat. J. Griffie - Let Me Love You (03:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68428B8FB55A15F2B4442138E37316649FCE0609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690826   (123772) от 09.01.2024
 
 VA - Лучшие песни Радио DFM за 2023 год (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - 30(20) Новые Песни (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076EEF0D81BEF83C67230197CF2FB71E707D023F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699279   (117703) от 14.02.2024
-
-VA - Nu Jazz & Electro Swing compilation part 55 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan Palace - Mighty
-02. Riff Kitten - Fire Dance
-03. Caravan Palace - Lone Digger
-04. Kate Earl - Tongue Tied(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A668213403F7B96A0F6E3BA2F17B2DD85BFD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699684   (117701) от 14.02.2024
-
-VA - Music News vol.341 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - 16 Carriages (03:54)
- 002. 84 feat. Lookbuffalo - Провокация (02:53)
- 003. Aizalia - Buenas Noches (01:47)
- 004. Akha - Сердечко (03:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7111B916729502FF172172B6DFBBC9925B0183AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699487   (117685) от 14.02.2024
-
-Riff Kitten - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dark Sun
- 02.  Divine Realms, Pt. 1
- 03.  Frequently Flustered
- 04.  Little Dancing Skeletons(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing House, Chillout, DowntempoПродолжительность: 02:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8217AC720928772D4EEDD6B3737EE97D59A125E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699513   (117643) от 14.02.2024
-
-Alanna Lyes - Compilation (2024) [MP3|320 Kbps] <Electro Swing/Nu Jazz | Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  20s Are Here
- 02.  Am I Real
- 03.  Intergalactic
- 04.  Stay(   Читать дальше...   )Жанр: Electro Swing/Nu Jazz | PopПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608D4B9034061DC21D7E9CA88EA868A59F4815FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700358   (117265) от 16.02.2024
-
-VA - Music News vol.342 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Training Season (Extended) (04:56)
- 002. Acoustic Boyz feat. Theo Rose - Toate Inimile Frante (02:55)
- 003. Adi Ulmansky - Anestezic (03:08)
- 004. Alana O. - Снег (02:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FDF973BAAA4D099338759EC754D9979EDC1B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700808   (116914) от 18.02.2024
-
-VA - Incendiary Disco (2024) [MP3|320 Kbps] <Disco, Dance, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sindacops - Deep Blue
-002. Aldo Lesina - Memories Of Time
-003. Alan Strani - Culturellement Appropriйe
-004. Clubdisco - It's You(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E7F18BEF55109405FFDEB7E5AAFAF182310BF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

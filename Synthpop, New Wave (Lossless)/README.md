@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875518   (1072612) от 
+
+Midnight Smoke - Dead City Silhouettes (2022) [FLAC|Lossless|Web-DL|tracks] <Synthwave, Cyberpunk, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redjac (4:00)
+02. Dead City Silhouettes (4:02)
+03. No Dawn (4:30)
+04. King Cobra (4:33)(   Читать дальше...   )Жанр: Synthwave, Cyberpunk, Darksynth, Electro Doom JazzПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8583061E6AB5F35F99D3DFE7123D1B2AD2D9D915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872485   (1070382) от 22.05.2026
 
 Midge Ure (Ex. Ultravox) - A Man Of Two Worlds (2026) 2CD [FLAC|Lossless|image + .cue] <Synthpop>
@@ -717,35 +746,6 @@ Violet Fears - Thrillogy (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C28C2838D8EE56E2A4C65FBB1BC546BE7AA1D2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608408   (1043636) от 30.01.2023
-
-Code Elektro - Deeper Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beneath a Scarlet Sky [00:04:05]
-02. Solar Sails [00:03:27]
-03. Cobra [00:03:38]
-04. Shadow Runner [00:04:56](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8672644DF584E924C0BF864DD29B8E6A29BD544D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 124408   (46685) от 16.08.2024
+
+Eurythmics Ultimate Collection  (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46685.jpg" />
+</div>
+
+
+###  Подробнее
+
+. . . Eurythmics" получили признание, благодаря качеству своих песен и сумели остаться фаворитами в средствах информации. Леннокс - одна из наиболее визуально поразительных женских исполнителей, с голосом редкого качества.
+
+. . . Энни Леннокс можно с полным основанием назвать одной из ведущих певиц Великобритании восьмидесятых годов. Концерты Eurythmics - это, (   Читать дальше...   )Жанр: РокПеревод: ОригинальныйПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206735   (46684) от 16.08.2024
+
+Dire Straits - Rockpalast (1979) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46684.jpg" />
+</div>
+
+
+###  Подробнее
+
+This FULL DIGITAL RECORDING & NOT RE-ENCODED torrent comes from a RE-BROADCAST (APRIL 27/28, 2007)
+FULL DIGITAL RECORDING & NOT RE-ENCODED01. Down To The Waterline
+02. Six Blade Knife
+03. Once Upon A Time In The West
+04. Lady Writer(   Читать дальше...   )Жанр: RockРежиссер: 1Festival (Germany)В ролях: Mark Knopfler: Guitar, Vocals
+David Knopfler: Guitar, Vocals
+John Illsley: Bass, Vocals
+Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжительность: 01:24:43 + 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589698   (46678) от 16.08.2024
+
+Metallica - Quebec Magnetic (2012) DVD9+DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46678.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 октября и 1 ноября 2009 года у группы Metallica состоялись два концерта в рамках тура “World Magnetic” в городе Квебек. Всего на оба вечера было продано свыше 33 тысяч билетов. Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Так же стоит отметить, что за данный выпуск проголосовало более 35 (   Читать дальше...   )Производство: Universal MusicЖанр: Thrash MetalРежиссер: Wayne IshamСубтитры: ОтсутствуютПродолжительность: 02:14:52+00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 14176   (46669) от 16.08.2024
 
 METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
@@ -652,96 +739,6 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214374   (45526) от 27.08.2024
-
-Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлогается  две концертные записи одного из классиков блюз-рока сделанные с разницей в десять лет от легендарного британского лейбла "Parlophone". Когда у издательства возникла необходимость выпустить положенный статусу суперзвезды видеосборник лучших хитов оказалось, что клипов-то записано меньше, чем пальцев на одной руке. Выход, конечно, (   Читать дальше...   )Концертные выступления:
-Live In Dortmund In 1992
-01. Cry Me A River
-02. Feelin' Albright(   Читать дальше...   )Жанр: Mузыкальное видео, блюз-рок, рок, попПеревод: ОригинальныйФормат: DVD VideoКачество: DVD9Продолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 67580   (45425) от 28.08.2024
-
-AC/DC - Stiff Upper Lip Live 2001 DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brian Johnson - lead vocals
-Angus Young - lead guitar
-Malcolm Young - rhythm guitar, backing vocals
-Cliff Williams - bass, backing vocals(   Читать дальше...   )01. Stiff Upper Lip
-02. You Shook Me All Night Long
-03. Problem Child
-04. Thunderstruck(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 02:07:28 min
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182858   (45404) от 28.08.2024
-
-W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт W.A.S.P. 2001 года в Key Club (Hollywood, L.A.)1. 	Helldorado
-2. 	Inside the Electric Circus
-3. 	Chainsaw Charlie
-4. 	Wild Child(   Читать дальше...   )Производство: Snapper MusicЖанр: Heavy Metal, Glam MetalПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
 ```
 
 https://mybot314.ru/tekegram_catalog/

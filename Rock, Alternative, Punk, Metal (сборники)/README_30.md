@@ -1,3 +1,32 @@
+###  Публикация: 1159650   (481971) от 21.08.2017
+
+VA - Beyond The Matrix: Hard Masterpieces (2017) [MP3|320 Kbps] <Rock, Hard Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Purple - Get Me Outta Here  3:59
+002.  Alice Cooper - Under My Wheels  2:56
+003.  Roxxie Dee - Black Wire Cadillac  3:16
+004.  Mike & The Melvins - A Friend In Need Is A Friend You Don't Need  2:25(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative RockПродолжительность: 11:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D476ECEA71C5E3E4F43AE2BF0E453E03DDF48DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244485   (479821) от 02.09.2018
 
 VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
@@ -465,6 +494,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407222   (468487) от 06.09.2020
+
+VA - Tears Of The Dragon (2020) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_468487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. March - Challenger
+002. Ockra - In A Dream
+003. Backwater - Sweet Little Passion
+004. Crow Killer - Castigate(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161704   (465516) от 29.08.2017
 
 VA - Metal World Digest (2017) [MP3|320 Kbps] <Metall, Hard Rock>
@@ -696,64 +754,6 @@ Trans-Siberian Orchestra - Best Of Classics (2016) [MP3|320 Kbps] <Symphonic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D149075939F65B72EB875924770A9664691C9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246546   (460906) от 11.09.2018
-
-VA - Дети Последних Дней (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алиса - Дети Последних Дней
-002. Сплин - Тепло Родного Дома
-003. Мумий Тролль - Ой
-004. Trubetskoy - Когда Идёшь Домой(   Читать дальше...   )Жанр: RockПродолжительность: 09:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C35E358CC4CDD0C28DFA8C2EA98E1BC25623C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321428   (458939) от 24.08.2019
-
-VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458939.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matthew Banks - Little Blonde Boy
-002. Aldo Nova - Fantasy
-003. Art Theefe - I Have Named
-004. Mr Twin Sister - Keep On Mixing(   Читать дальше...   )Жанр: RockПродолжительность: 09:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9987E71683AD760FD8CC81E8D2DDF4DACFFDABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

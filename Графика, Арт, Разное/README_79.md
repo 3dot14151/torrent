@@ -1,29 +1,3 @@
-###  Публикация: 533625   (532520) от 10.08.2012
-
-[Wallpapers] Обои на тему Море
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные Обои на тему Море! Всегда мечтал жить возле моря....
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFCE0E3A0809560D94EFC89115463D90B0B5D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533227   (532519) от 10.08.2012
 
 Artworks by Laurent Logicfun [Графика]
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F828CBFE15A088D72D99CCA498566A1F1C84215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240451   (528619) от 11.08.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (165) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695E506DCA4837ED79A473148AEE417CFFC62508
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1189421   (270433) от 06.12.2017
+
+VA - Trance In The Road (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mellari - Sputnik (Original Mix)
+002. Roman Messer - For You (feat. Clare Stagg)
+003. Spaceptima - The End Of Melancholy (Original Mix)
+004. Veselin Tasev - Blue Sky (Extended Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF2DC7256C5D9AE483BA3E91C6080A74261463D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189474   (270429) от 06.12.2017
 
 VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -713,35 +742,6 @@ VA - Glow In The Sity: Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Go
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A665B3974F11BDE7007E17F9364154C3098D3DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267562   (265803) от 07.12.2018
-
-VA - Lounge For Boudoir (2018) [MP3|320 Kbps] <Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albedo - Changes
-002. Frechbax - Knabaustelmann (Original Mix)
-003. Karen Gibson Roc - Love Each Other
-004. Inkyz - Shiva.mp3(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 09:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACB15DA23104EC856B853A1B5B83ED39FA06354
 ```
 
 https://mybot314.ru/tekegram_catalog/

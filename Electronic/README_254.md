@@ -1,3 +1,148 @@
+###  Публикация: 1150524   (593868) от 15.07.2017
+
+VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-David Pole – Join The Party (Extended Mix)
+02-Sapienza – Asere K Bola (Extended Mix)
+03-Mike De La Cruz – Pa’elante (Stephan F Remix)
+04-Ticli & Gas – Universo (Proyecto FM Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549242   (593823) от 06.05.2022
+
+VA - Chill Out Vocal Trance 2022 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Russell Raz Nitzan - Borrowed Time (Moonnight Remix) (4:00)
+02. Aurosonic Susana - Weather The Storm (Chill Out Mix) (6:14)
+03. Cathy Burton - Reach Out To Me (Sadege Chill Out Remix) (4:00)
+04. Bass Sky - Take Me Back (3:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC13B2685DAA0A4AF0941212A36FBC6119B0D63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548382   (593810) от 06.05.2022
+
+VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dom Dolla - Miracle Maker
+02. ID - ID
+03. Martin Ikin vs. Dom Dolla - Good Feelings vs. San Frandisco (Dom Dolla Edit)
+04. Dom Dolla - ID(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 66:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80FB0344DEE58F8AA9130111CA8D068A31F19DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233151   (593768) от 28.06.2018
+
+One Arc Degree - The Glow Beneath (2018) Synphaera Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Downtempo, Dub Techno, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glow Beneath (06:20)
+ 02. Seaweed Ecology (06:24)
+ 03. Marine Snow (09:41)
+ 04. Bathymetry (06:04)(   Читать дальше...   )Жанр: Downtempo, Dub Techno, AmbientПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1684E50587E1175A8200CD1D9CD040BE8627D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040002   (593570) от 03.08.2016
+
+VA - I Love House Music 2016: The Finest And Deep House Music Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ajad Samskara - Wine And Chocolate [6:35]
+02. Andy Conan - XxSex [6:10]
+03. Emmanuele Landini - Deeping Love [5:18]
+04. Denny Lee - Tango and Love [4:04](   Читать дальше...   )Жанр: HouseПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4779E13C91BDA84672BC4B1130FEA41B2370BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039918   (593569) от 03.08.2016
 
 VA - Subterranean Disco, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
@@ -600,148 +745,6 @@ VA - Purple Disco Machine - Glitterbox - Discotheque (2019) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A72C2A2A3AE394F2B62C8F7ADF42B5B2E27818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914828   (592381) от 05.07.2015
-
-VA - Integration With Nature (2015) [MP3|320 кб/с]<Ambient, Psybient, PsyChill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airform - Mechanical Forest (Spherical Mix) 07:37
-02. Peres - Hypersphere 06:49
-03. StereOMantra - True Experiences 08:11
-04. Chronos - Cultural Legacy 08:06(   Читать дальше...   )Жанр: Ambient, Psybient, PsyChillПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECAAE4444CE8C4A2D6FFD1F43AEACB50085D48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915147   (592352) от 05.07.2015
-
-Ambassadeurs - Patterns (2015) [MP3|320 кб/с]<Electronic, Chillstep, Indie>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson 04:56
-02. Looking at You (feat. C Duncan) 04:06
-03. Forever 04:42
-04. No More 03:12(   Читать дальше...   )Жанр: Electronic, Chillstep, IndieПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CFB4B9A098C098F8208E2DBB163B28DCD8EEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343289   (592210) от 05.07.2015
-
-Hol Baumann - Discography (2004-2013) [MP3|320 kbps]<Psychill, Downtempo, Ambient, Dub, Glitch, IDM, Trip Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psychill, Downtempo, Ambient, Dub, Glitch, IDM, Trip Hop |Продолжительность: 06:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA853F5EA0E9B22F67269489A0AB7D056A8A3EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550447   (592155) от 11.05.2022
-
-VA - Synth City Compilation, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System96 - Conjure (3:04)
-02. Let Em Riot - Collection (3:07)
-03. Starfarer - Spaceport (4:20)
-04. Lucy In Disguise - Odyssey (3:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F067510BC328113454269CED2385ADF0E99C666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915974   (591908) от 06.07.2015
-
-Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
-02. Landscape [07:06]
-03. Odyssey [06:52]
-04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

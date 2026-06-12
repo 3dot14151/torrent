@@ -1,3 +1,32 @@
+###  Публикация: 666869   (730137) от 10.06.2013
+
+Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_730137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Life [04:50]
+02. Everything's Coming Up Roses [04:08]
+03. Sometimes For The Asking [04:11]
+04. Finder [04:15](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:53:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027575   (696202) от 19.06.2016
 
 Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-pop>
@@ -722,33 +751,6 @@ Coeur De Pirate - Coeur De Pirate (2008) [FLAC|Lossless|tracks + .cue]<Indie-Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7198C09E6104F7354CA39A405E138C6EE7CE23DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930085   (517294) от 21.08.2015
-
-Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Carry On   (3:37)
-02.  Oublie-moi   (3:35)Жанр: PopПродолжительность: 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

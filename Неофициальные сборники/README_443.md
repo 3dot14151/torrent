@@ -1,160 +1,3 @@
-###  Публикация: 553406   (438485) от 30.09.2012
-
-VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alexey Romeo & Smoky Mo aka Mozi - На своей волне (Radio mix) (3:42)
-2. Skrillex feat. Sirah - Bangarang (3:35)
-3. Loreen - Euphoria (3:01)
-4. Семен Слепаков - Чисто гипотетически (5:10)
-5. Подиум - Танцуй пока молодая девочка Рая (3:30)
-6. Oceana - Endless Summer (hymn Euro) (3:15)
-7. Clara Lago - La cama (OST Три метра над уровнем неба 2: Я тебя хочу) (2:53)
-8. Fly Project - Musica (Radio Edit) (3:39)
-9. 5sta Family - Вместе Мы (Prod by T.Y.) (3:40)
-10. Нюша - Воспоминание (3:39)(   Читать дальше...   )Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 08:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6146FBF6C7C33060DFA09F66B63458305938C6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944659   (438407) от 08.10.2015
-
-VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - 2Night (05:51)
-02. Mind Conventions - Sweet Fever (05:52)
-03. Baghira - Maybe (05:33)
-04. Kusuma Orchestra - Beyond Reason (05:24)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5773FCA2BC90A41636F9EE5F030884F10665DEDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944652   (438400) от 08.10.2015
-
-VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brooker - Muddy Waters - Deep House Mix
-02. Ken Raymond - Compressed - My House Mix
-03. Ralph Love - We Take Everything - Original Mix
-04. Frank Wolks - September - House Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A887D863B9256EA95E2D895733AC4C5EDC5EC902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828185   (438142) от 07.10.2014
-
-DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allex Okuhama - Missing You (Original Mix)
-2. Eurythmics - Sweet Dreams (Tribeat Remix)
-3. Katerine - Ayo Technology (Milen & Vasco C Remix)
-4. ATB - The Summer (Ice & Dmitriy Rs Remix)(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C341098C56E80B3467B06D2FC25233A559B137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392675   (438124) от 26.09.2011
-
-VA - Лучший шансон: Ты кричи, моя душа 4 (2011) [MP3|128 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438124.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Калина - Ты Кричи, Моя Душа
-002. Денис Майданов - Молодым умирать не страшно
-003. Рижский Плацкарт - Корабли
-004. Александр Дюмин - Роза
-005. Стас Михайлов - Два Сердца
-006. Жека - Дорога В Никуда
-007. Рождество - Лейся Песня
-008. Валерий Курас - Шансонье
-009. Сергей Куренков - Облака
-010. Ирина Круг - Перелетная Птица(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B773A768838679E9FBFB0A515A10F0303B43AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410165   (438073) от 20.09.2020
 
 VA - Зайцев.нет Лучшие новинки Сентября (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -742,6 +585,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554978   (436551) от 01.10.2012
+
+VA - Sexy Trance #47 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nic Chagall & Duderstadt feat. Relyk - Alone With You
+002. Luke Bond feat. Emel - Amaze
+003. Lunar Motion - Aozora (Benjani Remix)
+004. Orjan Nilsen - Atchoo! (Original Mix)
+005. N&R Project - Before Daybreak (Original Mix)
+006. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+007. Maor Levi feat. Ashley Tomberlin - Chasing Love (Maor Levi Club mix)
+008. Leonid Gnip - City On Clouds (Original Mix)
+009. Matt Bowdidge - Crossing North (Original Mix)
+010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8131E71E355A98D8B0E8AF3D26BBEEEAF413EBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551848   (436543) от 01.10.2012
+
+VA - DJ Hits 63 (1996) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436543.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mr. President - Coco Jambo (3:37)
+2. Los Del Rio - Macarena (Radio Edit) (3:51)
+3. Los Lobos Feat. Antonio Banderas - Cancion Del Mariachi (2:05)
+4. Jovanotti - L'ombelico Del Mondo (4:22)
+5. S. E. X. Appeal /Ex-Erotic/ - Voulez-Vous Coucher Avec Moi (4:00)
+6. U96 - Heaven (3:36)
+7. Josh Wink - Higher State Of Consciusness (2:53)
+8. Music Instructor - Hymn (3:55)
+9. Captain Jack - Soldier Soldier (3:35)
+10. Soultans - Can't Take My Hands Off You (3:55)Жанр: DanceПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6B5630D948F536E1AB12BD6677A028A92CDD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554433   (436537) от 01.10.2012
+
+VA - Хиты в тачку на прокачку! Vol. 2 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Афродита - Освободи Свой Телефон
+02. Юлия Морозова - Я люблю тебя
+03. 140 ударов в минуту - Мне с тобою Тикитак
+04. Reflex - Я буду небом твоим
+05. Павла - Будь со мной
+06. Кирилл Андреев - Кофе С Ромом (DJ Arhipoff Original Mix)
+07. А.Р.М.И.Я - Клянусь
+08. Иван Дорн - Стыцамэн
+09. Дмитрий Каминский - Давай со мной
+10. Груя - Любовь-Это Яд(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:359B321D98DFC8AB06FEFBD14ABE645742FFD071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165066   (436458) от 11.09.2017
 
 VA - 100 Лучших трэков в стиле Европа Плюс (2017) [MP3|320 Kbps] <House, Pop, Dance>
@@ -764,6 +712,76 @@ VA - 100 Лучших трэков в стиле Европа Плюс (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D4B487CFA325D3C4F2F7973499A17FE2405526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554898   (436348) от 01.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 91 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Mauriat - Love Story
+02. Arabian Night - Love In The Summer
+03. Mario Battaini - Sopra Del Onde
+04. G.Marradi - Autumn Leaves
+05. М.Таривердиев - Музыка на воде
+06. Armik - Via Veneto
+07. В.Резников - Дворик
+08. Bank & Jones - Beyond Time
+09. Carlos Areias - A Festa Do Ze
+10. Stefan Nicolas - All By Myself(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726A6378A1B009E4036B5C933CDBB7C94A034A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554735   (436311) от 01.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 90 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Mauriat - From Souvenirs To Souvenirs
+02. Gary Moore - The Prophet
+03. Оскар Строк - Голубые глаза
+04. G.Marradi - Etude
+05. Ray Hamilton Orchestra - Still Got The Blues For You
+06. Armik - Fire Dance
+07. J.Last - Hotel California
+08. Karunesh - Coming Home
+09. П.Дранга - Besame Mucho
+10. В.Кузьмин - Простой сюжет (инстр-л)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FEC7288F583AFC53FD609220C6D7D63183F936
 ```
 
 https://mybot314.ru/tekegram_catalog/

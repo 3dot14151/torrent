@@ -1,3 +1,90 @@
+###  Публикация: 1256720   (352001) от 23.10.2018
+
+VA - Dark Amsterdam (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betsie Larkin & Roman Messer - Unite (Extended Full Fire Mix)
+02. Didit Aphrodite - Pochinki Bound (Extended Mix)
+03. Michael Milov - I'll Be Free (Extended Mix)
+04. Escea - The Future (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC1A776FD6665BEE3A25F73FAC1B947D13E62EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329527   (351978) от 05.10.2019
+
+VA - Black Hole Recordings - Miami (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Foret - Need To Feel Loved (Original Mix)
+02. Anton Ishutin & Belchev - More Dreams (Original Mix)
+03. Michael Badal feat. AIDYL - Weather (Original Mix)
+04. Bobina feat. Christina Novelli - Saviour (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D2CEC5893EF1F555E2FCA238C010E25F4BC91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329533   (351974) от 05.10.2019
+
+VA - Pure Trance Frequencies (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Alex M.O.R.P.H. - Shine Ibiza Anthem 2019 (Original Version)
+02. Aly & Fila with Kyau & Albert - Come Home (Original Mix)
+03. Talla 2XLC - The Oasis (Extended Mix)
+04. Standerwick - Never Gonna Step Down (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C5DFDB47042DC93EC1084D9864F69473C1CBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329515   (351647) от 05.10.2019
 
 VA - Black Hole Recordings Amsterdam Dance Event (2019) [MP3|320 Kbps] <Trance>
@@ -653,91 +740,6 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6D176CD588FED0FCF9D186725464FA04E50ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258054   (341348) от 28.10.2018
-
-VA - Made2Dance Trance Classics (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cintra Angelique! - Expectations (Johan De Kock`s Submerged Remix)
-02. Stefan Viljoen feat. Nanje Nowack - Silence (Original Mix)
-03. Maxem - Sunset Beach (Original Mix)
-04. DiverCity - Ocean Sands (Cintra Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA4BD33F9EEF940866C8B65BF7ED8E5417D56FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258063   (341342) от 28.10.2018
-
-VA - FG Top 10: October (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant & Slow Fish – The Dark Side (Extended Mix)
-02. Andre Sobota – Ground Level (Rokazer Remix)
-03. H3 – Windfall (Original Mix)
-04. Tony Hammer – Wild West (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5715F24EE90A9D05FC8C6E0C926AA8AB35050210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330240   (341312) от 10.10.2019
-
-Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ultimate Remix) (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341312.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skin Deep (Solis & Sean Truby vs. Ultimate Extended Remix) [07:52]
-2. Skin Deep (Solis & Sean Truby vs. Ultimate Remix) [03:45]Жанр: Trance, UpliftingПродолжительность: 00:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E25304FFA57DE6EDD86CF8A7D405797428884DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1203966   (785313) от 04.02.2018
+###  Публикация: 1390113   (783629) от 13.06.2020
 
-SpeedCommander Pro 17.30.8900 [En/De]
+SamDrivers 20.5 LAN [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SpeedCommander - файловый менеджер с многочисленными, в том числе и уникальными, возможностями для работы с файлами. Из непривычных для файловых менеджеров функций можно обратить внимание на мощную систему шифрования файлов (файлы сжимаются (внутренняя поддержка ARJ, ZIP, LHA, RAR, CAB, ACE, GZIP, TAR и UUE), затем шифруются с помощью стойкого алгоритма DES, а потом (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.20.0 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D154FBAAFBA9040842AF5F84A747276D7F68856
+magnet:?xt=urn:btih:7B4EDBECF4E6C8679267A190BA2D3FB0DB502D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204058   (785312) от 04.02.2018
+###  Публикация: 1389940   (783617) от 13.06.2020
 
-V.A. - Blank & Jones present So80s (So Eighties) Vol.11 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Pop>
+Xilinx Vitis Unified Software Platform 2020.1 [En] (unpacked)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Унифицированная программная платформа Vitis позволяет разрабатывать встроенное программное обеспечение и ускоренные приложения на разнородных платформах Xilinx, включая FPGA, SoC и Versal ACAP. Он предоставляет унифицированную модель программирования для ускорения приложений Edge, Cloud и Hybrid.
+Используйте интеграцию с высокоуровневыми фреймворками, разрабатывайте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C227973E5F91D014A4FA957044DC7ECEFB3A8E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390091   (783603) от 13.06.2020
+
+Andrei Neagoie | Complete Python Developer in 2020: Zero to Mastery (2020) WEB-DL [H.264/720p-LQ] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс обучения програмиррования на Пайтон. С онлайн академии Udemy.
+Для тех кто хочет обучится програмированнию на Пайтон и "Войти в ИТ".Жанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 30:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D566882A620B903B29B4A31E378602948073EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389838   (783582) от 13.06.2020
+
+Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra (12.06.2020) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783582.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager — бесплатная системная утилита, которая позволяет контролировать всё, что запущено на компьютере, а также предоставляет удобные инструменты для настройки компьютера. AnVir Task Manager позволяет управлять автозагрузкой, запущенными процессами, сервисами и драйверами и заменяет Диспетчера Задач, помогает обнаружению и удалению вирусов и spyware, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1FB34701B7A477CCED6C54BEEC0D7FD786E508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205394   (783552) от 10.02.2018
+
+Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Abstract, Glitch>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Climie Fisher - Rise to the Occasion (Extended Mix)
-02. Foreigner - That Was Yesterday (Extended Remix)
-03. Tina Turner - We Don't Need Another Hero (Thunderdome) (Extended Version)
-04. Rod Stewart - Young Turks (Full Length Version)(   Читать дальше...   )Жанр: Synthpop, New Wave, PopПродолжительность: 02:21:08
+01. Torture (03:03)
+02. Frntc (03:52)
+03. 6616 (05:46)
+04. Black Leaf (05:51)(   Читать дальше...   )Жанр: IDM, Experimental, Abstract, GlitchПродолжительность: 00:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7A79A2610FAA5DE93A791ED898678CAD751E469
+magnet:?xt=urn:btih:6EE0BC47228D8A8FFBF939B807F30ACE4F6AB525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204104   (785305) от 04.02.2018
+###  Публикация: 1205401   (783550) от 10.02.2018
 
-Травма / Trauma (2010) WEB-DLRip (сезон 1, серии 1-10 из 10) Кинонота
+VA - EE Compilation (2012) Electronic Explorations [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Techno, Dubstep, Bass>
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие сериала разворачивается в травматологическом отделении частной клиники. Это особый мир — мир трагических происшествий, попыток убийств и неудачных самоубийств. Главная задача врачей — спасти пациенту жизнь любой ценой. И эта цена, порой, бывает очень высока — неустроенная личная жизнь, проблемы в семье, невыносимые отношения с пожилыми родителями. И как (   Читать дальше...   )Производство: Канада | Aetios ProductionЖанр: драмаРежиссер: Франсуа ЖинграАктеры: Изабель Рише, Жильбер Сикотт, Жан-Франсуа Пишетт, Джеймс Хайндмен, Ян Инглэнд, Кристиан Беджин, Паскаль Монпти, Максим Коте, Лоранс Лебёф и др.Перевод: Многоголосый закадровый, профессиональный (Кинонота)Продолжительность: ~00:44:00 серия
+Тип издания: WEB |Жанр: IDM, Experimental, Techno, Dubstep, Bass |Продолжительность: 05:46:38 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C64DB7A327067268DFFB2A2CB902841651166BC
+magnet:?xt=urn:btih:D13D57BAE9815E0668ACB605F5EDF8F0CD60A3E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,27 +159,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203983   (785304) от 04.02.2018
+###  Публикация: 1205385   (783544) от 10.02.2018
 
-JetBrains ReSharper Ultimate 2017.3.2 [En]
+Phylum Sinter - Colony Collapse Reorder (2014) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Experimental>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
-Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
-Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+01. Back 2,1 (04:32)
+ 02. Das Bootie (04:34)
+ 03. Everybody Made Me (04:54)
+ 04. calmasicanbe (02:26)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperimentalПродолжительность: 01:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BACC05DDDAE538E9045111B577E931E7B357E696
+magnet:?xt=urn:btih:15950E74FE11E944FBD2A3AE5339D39617DA975A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,25 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277279   (785295) от 20.01.2019
+###  Публикация: 1205379   (783529) от 10.02.2018
 
-Человек на Луне / First Man (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [IMAX Edition]
+Gold Panda - Good Luck and Do Your Best (2016) City Slang [FLAC|Lossless|tracks+.cue] <IDM, Leftfield>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, Amblin Entertainment, DreamWorks SKGЖанр: Драма, биография, историяРежиссер: Дэмьен ШазеллАктеры: Клер Фой, Райан Гослинг, Пабло Шрайбер, Кристофер Эбботт, Итэн Эмбри, Киаран Хайндс, Джейсон Кларк, Кайл Чандлер, Кори Столл, Ши УигхэмПеревод: Дублированный  (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:20:59
+01. Metal Bird (03:42)
+02. In My Car (04:28)
+03. Chiba Nights (04:02)
+04. Pink And Green (04:14)(   Читать дальше...   )Жанр: IDM, LeftfieldПродолжительность: 00:44:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A55B6A4223DEF1900747547F7E3DE877BB85436
+magnet:?xt=urn:btih:CEAE00A5183220033D1C680829513677E82EABE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,25 +217,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204166   (785277) от 04.02.2018
+###  Публикация: 1205438   (783528) от 10.02.2018
 
-360 Extreme Explorer 9.0.1.162 RePack (& Portable) by elchupacabra [Ru/En]
+Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Beaming Up The Fossils (06:32)
+ 02. Bringer Of The Beings (09:14)
+ 03. Intergalactic Traveller (05:25)
+ 04. Where All The Creatures Are Dreaming (08:44)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BADE3F4FAF39B1A5FF5AD903761A6ACCE1E3D9D
+magnet:?xt=urn:btih:7CB7AB05F37D70A71E96AFCC365B43C63A737C69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204035   (785270) от 04.02.2018
+###  Публикация: 1205515   (783509) от 10.02.2018
 
-WinUtilities Pro 15.1 RePack by D!akov  [Multi/Ru]
+Junksista - Promiscuous Tendencies (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash, EBM>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinUtilities - системный набор для настройки Вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности Вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.  Monday (Feat. Essence Of Mind) (3:54)
+02.  Control (3:49)
+03.  Fuck For Love (3:18)
+04.  Monster (Feat. LayZee-Formerly Of Mr. President) (4:12)(   Читать дальше...   )Жанр: Synthpop, Electroclash, EBMПродолжительность: 00:43:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D11FE99345E6176FA9D09582052AF1EA9C439B0
+magnet:?xt=urn:btih:B0B76D0634A701DC05984742F524F703980B9690
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,25 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204041   (785264) от 04.02.2018
+###  Публикация: 1205536   (783505) от 10.02.2018
 
-PIDKey Lite 1.61 Portable by Ratiborus [Multi/Ru]
+Future Lied To Us - Presence (2018) [MP3|320 Kbps] <Synthpop, Futurepop>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PIDKey Lite предназначена для просмотра, обновления и сохранения в базе информации о ключах для продуктов M$.Язык интерфейса: Русский, Английский и другие
+01.  Born In Silence  5:53
+02.  Intentions And Masks  4:49
+03.  Drops Of Silver  5:12
+04.  Fed By Anger  3:36(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:52:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB9DF75FE77C3DDE2C7574ECE120EE35C0C4DA4
+magnet:?xt=urn:btih:16BFE51A3661BF507294BA4324FA98C4B72760D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,26 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204127   (785263) от 04.02.2018
+###  Публикация: 1205473   (783500) от 10.02.2018
 
-Avira Free Antivirus 15.0.34.20 [Ru]
+Homemade Weapons & Red Army - Sleep Terror EP (2016) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avira Free Antivirus - бесплатный антивирус, антишпион и антируткит с облачной технологией для защиты от известных, новейших и самых сложных угроз.
-Антивирус предлагает базовую защиту от вредоносных программ, но может быть усилен бесплатными приложениями и сервисами от Avira, включая добавление интернет-защиты, родительского контроля и защиту Android, что позволяет (   Читать дальше...   )Язык интерфейса: Русский
+01. Sleep Terror (05:53)
+ 02. Cavity (06:11)
+ 03. Buzzkill (06:06)
+ 04. Colony (06:14)Жанр: Drum n BassПродолжительность: 00:24:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C010D74EEF358FEF6A3D61EC71B5F935A9D59D2C
+magnet:?xt=urn:btih:E987C41090A7EDD1ED2B2A3A5A55EE66488491A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +333,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277240   (785259) от 20.01.2019
+###  Публикация: 1205085   (783497) от 10.02.2018
 
-foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (19.01.2019) [Ru]
+Son Lux - Brighter Wounds (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Русский
+01. Forty Screams (04:02)
+02. Dream State (05:02)
+03. Labor (04:08)
+04. The Fool You Need (04:25)(   Читать дальше...   )Жанр: Indie Rock, ExperimentalПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8234208D11B29D668838A07FAB11BE5939CA7FD0
+magnet:?xt=urn:btih:5C58F22591EF4A6D569ED0D71439E43705E03F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,27 +362,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277319   (785253) от 20.01.2019
+###  Публикация: 1205563   (783494) от 10.02.2018
 
-4K Stogram 2.7.0.1685 [Multi/Ru]
+Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recalcitrant Malfeasance (03:14)
+02. Particles (04:35)
+03. Protista Mephista (08:21)
+04. Elevate the Hive Mind (07:29)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBD8710A095CC701EADD042D1DB1B783B52DBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205486   (783490) от 10.02.2018
+
+4K YouTube to MP3 3.3.3.1777 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram - это приложение для просмотра и скачивания файлов из Instagram. Скачивайте фотографии, видео, stories из публичных и приватных аккаунтов ваших друзей, выполняйте резервное сохранение своих постов и импортируйте список Instagram-подписок.
+4K YouTube to MP3 был создан специально для скачивания аудио с YouTube, VEVO, Soundсloud и Facebook в MP3, M4A, OGG. Вставляйте ссылки на ваши любимые песни в приложение и сохраняйте их в формате MP3 на ваш компьютер. Прямое скачивание на iPod, iPhone и iPad позволит наслаждаться музыкой, где бы вы не находились. Никаких сложных настроек, только простой в обращении (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D7DAE1860E93EABA163A5349244EB9CEDC712F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205626   (783489) от 10.02.2018
+
+ExpanDrive 6.1.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
 
-Работать с приложением просто — введите название Instagram-аккаунта, хэштега или локации и нажмите "Подписаться". (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D463BE965C47D6F1F14A876549AD868293B480AA
+magnet:?xt=urn:btih:799EA64D6FDD8CA9324EA03D65F7C2C17C4CEAE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,26 +445,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277354   (785250) от 20.01.2019
+###  Публикация: 1205203   (783481) от 10.02.2018
 
-One Chat - All in one Messenger 4.8 [Multi]
+Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue] <Breaks, Breakbeat, Big Beat>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-One Chat объединяет чаты и службы обмена сообщениями в одно простое приложение для Mac.
-WhatsApp, Facebook Messenger, Hangouts, Telegram, Skype, Slack, WeChat, Twitter, YahooChat, ICQ-чат, HipChat, Discord, GroupMe, QQ, Facebook, VKChat и др. Одно приложение для всех служб обмена сообщениями.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Итальянский и др.
+01. Take California (07:21)
+02. Velvet Pants (05:47)
+03. Better? (02:03)
+04. 360° (Oh Yeah?) (feat. De La Soul) (04:28)(   Читать дальше...   )Жанр: Breaks, Breakbeat, Big BeatПродолжительность: 01:07:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:513B64D41C63BF8F9458E6A6702A78AFB4D7EED1
+magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,27 +474,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277325   (785248) от 20.01.2019
+###  Публикация: 1205464   (783480) от 10.02.2018
 
-AnyTrans for iOS 7.0.4 (build 20190107) [Multi]
+Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205605   (783477) от 10.02.2018
+
+Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft 4K Converter – универсальный видео конвертер формата 4K. Специально создан для преобразования 4K видео высокого разрешения с передовыми кодировками, в том числе HEVC / H.265, VP8, vp9, H.264, MPEG и XviD. Лучший выбор для обработки видео в формате 4K с разрешением 1080p или 1080p 4К, который также служит для работы со стандартными форматами видео и HD.Язык интерфейса: Русский (от Kopejkin.) | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205482   (783473) от 10.02.2018
+
+4K Video Downloader 4.4.4.2275 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783473.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении. Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте ссылку из браузера и нажмите "Вставить ссылку" в приложении!
 
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2019Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+Скачивайте целые YouTube-плейлисты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 090.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CBA2CE1BEA116A03539C5273FC8644C5B29E81
+magnet:?xt=urn:btih:A44F3248047F3CADE43EF667DADC6EC8DD832DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +554,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204102   (785231) от 04.02.2018
+###  Публикация: 1205662   (783468) от 10.02.2018
 
-Windows 10 Manager 2.2.3 Final  [Multi/Ru]
+Cinemagraph Pro 2.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать "видеоколлажи" из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Испанский, Итальянский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A74347727821ED7018A2DF4943FD5822619060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205573   (783467) от 10.02.2018
+
+Recover Keys Enterprise 10.0.4.201 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Recover Keys - это приложение для Windows, созданное для защиты Ваших активационных ключей на случай, если система или жёсткий диск выйдут из строя, определения количества лицензионных программ, установленных на сети компьютеров, и для восстановления утерянных лицензионных (CD) ключей. Нет необходимости устанавливать эту программу на каждом компьютере. Установленная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A99D32C51F6A712F82663834CE7D0D70B222AA5F
+magnet:?xt=urn:btih:CDF85BE32584084E6AD0D694032E52EC47A8CA66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,25 +606,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203910   (785221) от 04.02.2018
+###  Публикация: 1205507   (783466) от 10.02.2018
 
-Unreal Commander 3.57 Build 1285 + Portable  [Multi/Ru]
+Sopor Aeternus - The Spiral Sacrifice (2018) [MP3|320 Kbps] <Darkwave, Neo-Classic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everything Is An Illusion
+2. Where The End Begins
+3. There Are Scars In The Evening Sky
+4. The Broken & Shattered Moon(   Читать дальше...   )Жанр: Darkwave, Neo-ClassicПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B08991C07CA719CE74B6F62C9EDE3FDADBC84EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205596   (783457) от 10.02.2018
+
+YTD Video Downloader PRO 5.9.4 RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unreal Commander - бесплатный двухпанельный файловый менеджер с закрытым исходным кодом, работающий под управлением Microsoft Windows. Файловый менеджер отображает скрытые и системные файлы, может изменять их атрибуты, перемещать, копировать или удалять, имеет встроенный FTP-клиент, просмотрщик графических файлов, медиа-проигрыватель, умеет разбирать/собирать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54AB25FB6B708E9F6C53F11DADA12D42B265FEA6
+magnet:?xt=urn:btih:291403593F73B29FB7863FE1B3EAD198767A79CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,25 +661,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204080   (785213) от 04.02.2018
+###  Публикация: 1205479   (783446) от 10.02.2018
 
-Windows 10 Manager 2.2.3 RePack (& Portable) by elchupacabra [Ru/En]
+Movavi Video Converter 18.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:189278AAE96D9FC3BEFC6D33D6FBE752C9B4F9E5
+magnet:?xt=urn:btih:89D5C4EC788969BBD1E89D1DCCDF3C02134BF6DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,261 +687,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204067   (785188) от 04.02.2018
+###  Публикация: 1205484   (783432) от 10.02.2018
 
-All in One Runtimes 2.4.5 Portable [De]
+Tails 3.5 [анонимный доступ в сети] [amd64] [2018] 1xDVD 3.5 [amd64] 1xDVD
 
 >>Архив торрентов
->>Архив Программ
+>>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-All in One Runtimes - пакет приложений, необходимый для запуска и автономной работы большинства современных программ и игр, содержащий в себе .NET Framework (включая hotfixes), DirectX 9.0c, Adobe Flash Player, Microsoft Silverlight, Shockwave Player, Java Runtime Environment, Microsoft Visual C++ Runtimes и Microsoft Visual J# SE. После запуска программа автоматически (   Читать дальше...   )Язык интерфейса: немецкий
+Доступен релиз специализированного дистрибутива Tails (The Amnesic Incognito Live System) 3.5, основанного на пакетной базе Debian и предназначенного для обеспечения анонимного выхода в сеть. Анонимный выход в Tails обеспечивается системой Tor. Все соединения, кроме трафика через сеть Tor, по умолчанию блокируются пакетным фильтром. Для хранения пользовательских (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:400C7F57308AC538BC87F10ECFF23B3B2959DE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203932   (785176) от 04.02.2018
-
-RE Vision FX Effections Plus 17.0 RePack by Team V.R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785176.jpg" />
-</div>
-
-
-###  Подробнее
-
-RE Vision FX - Effections Plus
-Если вы являетесь счастливым обладателям программы After Effects и Adobe Premiere Pro и умеете в них работать, то поверьте, набор плагинов от RE:Vision вам обязательно должен понравится. Совсем забыл добавить, вас ждут новые плагины, ниже список!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E96588F5019DA6E91B2E46B4CA69B72689AAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388998   (785145) от 08.06.2020
-
-Серия Кубков NASCAR-2020. 10-й Этап. Атланта 500. Гонка / NASCAR Cup Series 2020. Round 10. Folds of Honor QuikTrip 500. Race WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785145.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 этап Nascar Cup, Folds of Honor QuikTrip 500, Atlanta Motor Speedway (325 Laps, 500 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 04:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828C31CAB20CD722D99CD5C2962A79F50300F580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388923   (785144) от 08.06.2020
-
-IObit Driver Booster Pro 7.5.0.750 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1154B0A63E934475E6826AA3323B79B93D358B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388934   (785143) от 08.06.2020
-
-IObit Smart Defrag Pro 6.5.5.109 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89113FE60432662ADCC40B7A0228818D4FC14D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388812   (785141) от 08.06.2020
-
-ScreenToGif 2.25.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785141.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7392804E3513D445AFD239FCC2184E2689CD9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389001   (785140) от 08.06.2020
-
-AMA Supercross Championship: Salt Lake City (08.06.2020) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785140.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: ВК группа Мотокросс / Супекросс; A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E03BF171CA2CB3739D378F00DECDB5D9F50C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388921   (785136) от 08.06.2020
-
-Trojan Killer 2.1.28 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trojan Killer – представляет собой антивирусный сканер и инструмент, с помощью которого вы можете сканировать систему и очищать компьютер от угроз.Программа помогает защититься от киберугроз и сохранить данные в безопасности, независимо от типа компьютера и области его использования.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF06FEA7830EAC575642F183B8731EF37FC9E55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388821   (785120) от 08.06.2020
-
-TinyWall 3.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785120.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinyWall – легкий, удобный в использовании, безопасный и бесплатный фаервол для Windows. Программа позволяет контролировать и защищать весь сетевой трафик на вашем компьютере.
-После установки программа автоматически блокирует все исходящие соединения, кроме нескольких доверенных программ, например IE, Firefox. Если вы хотите выйти в Интернет с помощью приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E24983BBB2A50DAF7EBF346678FA7209FB89E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388806   (785117) от 08.06.2020
-
-Chasys Draw IES 5.01.01 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chasys Draw IES — бесплатная программа, представляет собой набор приложений, среди которых работа со слоями в основе графического редактора с анимацией, с супер-разрешением изображения по технологии Chasys Draw IES Artist, многопоточный конвертер файлов изображений Chasys Draw IES Converter, достаточно быстрый просмотрщик изображений Chasys Draw IES Viewer и работа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1147F630C7C8197197BF66B98EA7F4B4B11AE4E8
+magnet:?xt=urn:btih:7733C771727CE1C59A0060BDFAE05298F3662800
 ```
 
 https://mybot314.ru/tekegram_catalog/

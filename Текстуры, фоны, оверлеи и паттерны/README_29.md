@@ -1,3 +1,29 @@
+###  Публикация: 1803233   (65852) от 22.06.2025
+
+Текстуры - TexturesStore - Envato - 30 Felt Textures - EQFMT36 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65852.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 разноцветных войлочных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38377C83A984B7FEE8B26B10322F0E76E30346D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803236   (65851) от 22.06.2025
 
 Текстуры - CCpreset - Envato - 30 Sand Texture HQ - 9A8WMXX [JPG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8606FD59BD06BEFAC2A351F333CDD08622CB4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771173   (31877) от 05.01.2025
-
-Текстуры - Silver, Platinum & Chrome Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31877.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 качественных, премиальных текстур в серых оттенках из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 3008х2013 - 9496х6234
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA5AB1BC9CA4EB17DE93207A948801BEDC88F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1039268   (597373) от 31.07.2016
+
+Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acoustic, Bluegrass>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know Your Pain    03:59
+02. Level 5    05:19
+03. Orange    04:04
+04. Dancing with Her    03:14(   Читать дальше...   )Жанр: Acoustic, BluegrassПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526195   (597056) от 24.07.2012
+
+Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фаусто Папетти был на вершине славы в 1960—1970 гг., и почти каждый его новый альбом достигал вершин хит-парадов. Его сборники выпускались даже на латиноамериканском рынке. В 1970 гг., на пике своей популярности, он выпускал по два альбома в год. Особенностью его сборников также стали сексуальные обложки, на которых изображались обнаженные девушки. Самым продаваемым (   Читать дальше...   )1.  A Whiter Shade Of Pale (2:59)
+2.  All The Time In The World (3:21)
+3.  You're The First, The Last, My Everything (3:07)
+4.  Stayin' Alive (4:34)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2C98A51133311804F932601852933260C0FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526603   (596889) от 24.07.2012
+
+В. Цой - Кино в Кино (2002) [MP3|320 кб/с]<Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дальше действовать будем мы [03:52]
+ 02. Закрой за мной дверь, я ухожу [03:59]
+ 03. Раньше в твоих глазах... [02:24]
+ 04. Попробуй спеть вместе со мной [05:14]
+ 05. Перемен! [05:14]
+ 06. Звезда по имени Солнце [03:24]
+ 07. Группа крови [04:21]
+ 08. Невеселая песня [05:49]
+ 09. Следи за собой [05:26]
+ 10. Моро едет к морю [02:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149878   (596610) от 13.07.2017
+
+Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантазия №1 (05:51)
+02. Фантазия №2 (Аллилуя) (05:52)
+03. Фантазия №3 (Rock'n'Roll Mega Drive) (06:39)
+04. Фантазия №4 (06:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 09:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232844   (596358) от 26.06.2018
 
 Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
@@ -644,122 +766,6 @@ Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E1862D0924C48D0D40C7A2D151202AE96613DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917180   (589532) от 11.07.2015
-
-Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classical, Pop, Piano Solo>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (04:21)
-02. Nobody Does It Better (03:27)
-03. I Believe I Can Fly (04:16)
-04. When The Rain Begins To Fall (03:49)(   Читать дальше...   )Жанр: Instrumental, Classical, Pop, Piano SoloПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552209   (588516) от 19.05.2022
-
-Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things From The Past (2:23)
-02. It's Foggy Today (3:06)
-03. On The Waves (3:36)
-04. Velvet Elephant (1:51)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF9F6C2B454113F08AFC9E79C854769B402D06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552210   (588512) от 19.05.2022
-
-Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venera (2:58)
-02. Seksvakuum (5:24)
-03. Akt Perviy (4:06)
-04. Sluchaynaia Sviaz' (5:46)(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552258   (588494) от 19.05.2022
-
-Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie's Song (2:25)
-02. A Time for Us (3:08)
-03. Spanish Eyes (2:35)
-04. Hymne (2:39)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
 ```
 
 https://mybot314.ru/tekegram_catalog/

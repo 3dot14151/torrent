@@ -1,3 +1,148 @@
+###  Публикация: 1143192   (637340) от 17.06.2017
+
+VA - Chillout, Love & Sex (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody Fran - Oh My Own (A Night In Venice Mix) 07:13
+02. Keith Goodwin - Good Enough (On The Lake Mix) 06:26
+03. Ryan Wendell - Fire And Works (Gray Eyes Mix) 06:08
+04. Bennie Cullen - Lying Down (The Grand Chill Mix) 07:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0D58CE295DC4A78FBC2006B8A11D8DAECB5072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907987   (636166) от 13.06.2015
+
+VA - Lounge Sensations (2015) [MP3|320 кб/с]<Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Plants - Where's The Love
+02. Marga Sol - Love Comes Along
+03. Matisse & Jury Jet - Early Sunrise (feat S Khovansky)
+04. Charly McLion - Prelude(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C01180BC339328AE8F1B0212264DF4A0D8F9880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907993   (636153) от 13.06.2015
+
+VA - Hawaiian Sunset - Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light in Color - Lovely Shelters [06:09]
+02. Chillo - Chillo Six (Lounge Mix) [04:41]
+03. Francoise Jardin - Louvre Dub (Remix Edit) [03:14]
+04. Carlos Bonito - Chango Tango [04:39](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A908AF44DAC428305D5CE07414F70EBE45D21EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228494   (635950) от 01.06.2018
+
+VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iris Dee Jay & Robert Holland feat. Erin - Faster (Type 41 Remix) 6:42
+02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance Mix) 4:57
+03. The North Works feat. Jenny - We Are Back (Vocal Edit) 4:25
+04. Aruso - On My Own (Festival Version) 6:48(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228585   (635944) от 01.06.2018
+
+Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 変わり目 (1:42)
+02. Yoku Yatta (12:40)
+03. 到着 (4:10)
+04. コントロールを取り戻す (2:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228107   (635942) от 01.06.2018
 
 VA - Secrets of Time Relaxation (2018) [MP3|320 Kbps] <Ambient, Chillout, Lounge, Downtempo>
@@ -606,151 +751,6 @@ Headdreamer - Discography 11 Releases (2010-2019) Aliens Production [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B33FCF02F3825491BEC88400BCEED06F6FF14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542552   (635323) от 08.04.2022
-
-Sally Shapiro - Sad Cities (The Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forget About You (Johnny Jewel's Amnesia Remix)04:15
-02. Tell Me How (Sunglasses Kid Remix) 05:11
-03. Believe In Me (Italoconnection Remix) 06:45
-04. Million Ways (Gerd Janson Remix) 06:22(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010F6B55E718AD3E739E7275EADF08821F16132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143238   (635118) от 18.06.2017
-
-VA - Uplifting Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris & Ana Criado - Border Line (Original Mix)  6:02
-02.  Ana Criado - Still There's You (A.R.D.I. Remix)  6:22
-03.  Adam Ellis & Fenna Day - What Makes Your Heart Beat (Club Mix)  8:14
-04.  Susana - Only Summer Knows (Original Mix)  7:24(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AFF563E35A1118F54506C78EEB542BDD712C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143242   (634983) от 18.06.2017
-
-VA - Uplifting Trance 2017 Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris & Ana Criado - Border Line (Original Mix)  6:02
-02.  Ana Criado - Still There's You (A.R.D.I. Remix)  6:22
-03.  Adam Ellis & Fenna Day - What Makes Your Heart Beat (Club Mix)  8:14
-04.  Susana - Only Summer Knows (Original Mix)  7:24(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23165D66AA295714776D540BB8D0A63BBB8A646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542823   (634920) от 08.04.2022
-
-Boris Brejcha - Die Maschinen sind Gestrandet (2022) Remastered [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verstaubter Fruchtzucker (Remastered) (7:16)
- 02. Shikora (Remastered) (7:03)
- 03. Push to Play (Remastered) (7:02)
- 04. Anabella (Remastered) (7:10)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB37A94D499448C61F3B558ABDE3A61DB82DFED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143311   (634844) от 18.06.2017
-
-Lorde - Melodrama (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electropop, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Green Light (3:55)
-2. Sober (3:17)
-3. Homemade Dynamite (3:10)
-4. The Louvre (4:31)(   Читать дальше...   )Жанр: Indie Rock, Electropop, DreampopПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C7335DFE299425CC3AD82F401DFC6462588CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

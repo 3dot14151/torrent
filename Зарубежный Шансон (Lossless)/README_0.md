@@ -1,3 +1,67 @@
+###  Публикация: 385291   (476263) от 09.09.2011
+
+VA - Les Inoubliables Chansons (1996) [FLAC|Lossless]<French Shanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_476263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edith Piaf – Non, je ne Regrette Rien
+02. Gilbert Becaud – Je Reviens te Chercher
+03. Jean Ferrat – Aimer a Perdre le Raison
+04. Juliette Greco – Les Feuilles Mortes
+05. Michel Delpech – Pour un Flirt
+06. Salvatore Adamo – La Nuit
+07. Christophe – Je Vous Salue, Madame
+08. Joe Dassin – Siffler Sur la Colline
+09. Enrico Macias – Oh, Guitarre, Guitarre!
+10. Mireille Mathieu – La Derniere Valse(   Читать дальше...   )1996Жанр: French ShansonПродолжительность: 02:25:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246272   (465461) от 09.09.2018
+
+Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson, Jazz>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 C'était L'été 2:13
+2 Dieu Et Diable (En Duo Avec Guy Marchand) 2:30
+3 Je Suis Comme Je Suis 3:59
+4 Il Y A La Nuit 3:21(   Читать дальше...   )Жанр: French, Pop, Chanson, JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552900   (445523) от 27.09.2012
 
 Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
@@ -702,64 +766,6 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D268A623616E051CFE18EF58E0D00960A563C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270389   (157004) от 19.12.2018
-
-Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Si j’osais
-02. Rosina
-03. Poor Fool
-04. Perche(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087532   (144088) от 28.12.2016
-
-Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y'avait tant d'etoiles (1:54)
-02. Hotel Normandy (5:35)
-03. Je retien mon souffle (4:37)
-04. Ceux qui n'ont rien (5:16)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

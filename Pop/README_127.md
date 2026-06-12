@@ -1,3 +1,148 @@
+###  Публикация: 1288775   (691961) от 13.03.2019
+
+VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleph - I'm on Fire (7:29)
+02. Robert Camero - Welcome Back (7:13)
+03. Max System - You Bring the Sun (6:04)
+04. Ryan Paris - Buona Sera Dolce Vita (feat. Mauro) (7:22)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRGПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288788   (691838) от 13.03.2019
+
+Валерий Леонтьев - Я вернусь (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы спасены
+02. Полуночный экспресс
+03. Орёл
+04. Я позабыл твоё лицо(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EA59EDA882B65114186D28D5F002E3A6DBDF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134099   (691484) от 14.05.2017
+
+Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (feat. Mapei)
+02. Ça m'est égal (feat. Daniel Adams-Ray)
+03. This Heat
+04. Fool For Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221710   (691452) от 26.04.2018
+
+French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic / Save Me (Suite) (8:37)
+02. We're the Right Combination / Right Combination (Suite) (9:01)
+03. You Got Me Groovin' (5:09)
+04. All Out of Tears / Lovin' Tears (Suite) (7:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BE08B5028BB170048367F22C16DB5EB3DDC323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134076   (691417) от 14.05.2017
+
+Кристиан Рэй & МФ3 - Жар (1997) [TAK|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - О-Э-О
+02 - Тихий вечер
+03 - Дикая кошка
+04 - Город(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F25FD970B7265ADA5F33E4F3CA3C37B8892615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134190   (691403) от 14.05.2017
 
 VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
@@ -603,157 +748,6 @@ Patrick Norman - Sweet Sweet Lady (1978) LP [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E797FE3C3C02B032CC14578BDA574B4B58FF456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289289   (688361) от 15.03.2019
-
-Sophie Ellis-Bextor - The Song Diaries (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovejet (Orchestral Version) (3:20)
-02. Take Me Home (Orchestral Version) (4:23)
-03. Murder on the Dancefloor (Orchestral Version) (3:46)
-04. Move This Mountain (Orchestral Version) (4:47)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF442CEC6EF954ADC59A783358481CE38EE6D8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289184   (687734) от 15.03.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On 3:18
-02. Battle Of The Sexes (with Rod Stewart) 3:47
-03. Slow Walk 3:13
-04. Seven Waves Away 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680196EF0D5809C1372D9DF017C5EE26229DA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506253   (687621) от 06.06.2012
-
-Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gloria (Version 2001)
-02.Tu (Version 2001)
-03.Te Amo
-04.Yo Caminare
-05.Claridad
-06.De Que Me Sirven Estas Manos
-07.Noche Rota
-08.Olvidate, Olvidate
-09.Dime Que No
-10.Donna Amante Mia(   Читать дальше...   )2001Жанр: Italo-popПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222263   (687586) от 28.04.2018
-
-Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
-02. Prozac 5:19
-03. Bris 5:48
-04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222370   (687488) от 28.04.2018
-
-T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Need No Music (9:47)
-02. Put Yourself In My Place (9:17)
-03. Small Circle Of Friends (11:14)
-04. Am I Dreaming (8:14)Жанр: Funk-Soul, DiscoПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4A3E7DF603E333D04357DFBC63CA2BA3BEFAC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

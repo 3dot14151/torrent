@@ -639,6 +639,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266334   (526722) от 30.07.2011
+
+CLON - Discography[5 albums] (1996-2005) [FLAC|Lossless]<Korean,dance>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 세상 밖으로
+ 02. Ok! Alright! (feat. 채연)
+ 03. 우하
+ 04. Ready To Go (feat. 이지연)
+ 05. 내사랑 송이 (feat. 원우)
+ 06. Let's Go (feat. 이지영)
+ 07. 더이상 침묵할 수 없다
+ 08. 소외된 외침
+ 09. 대면... (Interlude)
+ 10. 무언의 발걸음 (feat. 이정)(   Читать дальше...   )1996-2005Жанр: Korean, danceПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928750   (521465) от 17.08.2015
 
 Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dream, Vaporwave>
@@ -668,6 +703,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377029   (508090) от 19.08.2011
+
+Tetsuya Komuro - 4 альбома (1989-2011) Творчество(избранное) [FLAC|Lossless]<Japanese,trance,electro,remix>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_508090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vienna feat.Miu Sakamoto & KREVA
+ 02. Go Crazy feat.Krayzie Bone & K-C-O
+ 03. 奇跡 feat.Zeebra
+ 04. ほほえみのちから
+ 05. Every feat.Mitsuhiro Hidaka(AAA)a.k.a.SKY-HI & K-C-O
+ 06. Years Later feat.VERBAL(m-flo)
+ 07. Free My Mind feat. Mitsuhiro Hidaka(AAA)a.k.a.SKY-HI
+ 08. L.W.R feat.Misako Uno, Naoya Urata(AAA) & Wataru Yoshida(Purple Days)
+ 09. Reality feat.Nipsey Hussle
+ 10. Extreme(   Читать дальше...   )1989-2011Жанр: Japanese,trance,electro,remixПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944004   (444608) от 05.10.2015
 
 Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossless]<Modern Classical, Experimental, Score>
@@ -690,63 +760,6 @@ Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0922F93F674B47B3E768C30FF7D21C60C94BF6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178327   (352850) от 29.10.2017
-
-VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] <Soundtrack>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 岡部啓一           - 意味_無_ジュニーク・ニコール		[00:02:38]
-02. 岡部啓一           - 遺サレタ場所_斜光			        			[00:06:21]
-03. 岡部啓一	      - 穏ヤカナ眠リ									[00:06:49] (   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 04:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428DBE6CBAA0FA8C9762588EC0D49B0A0FE9F57B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179667   (346467) от 01.11.2017
-
-Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [03:16]
-02. Once Upon a Song [05:11]
-03. Seven Goblins [03:13]
-04. The Sunset Valley [04:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
 ```
 
 https://mybot314.ru/tekegram_catalog/

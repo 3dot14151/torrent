@@ -1,3 +1,32 @@
+###  Публикация: 1592066   (185126) от 20.11.2022
+
+Modern Martina - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Improvisation
+02. Where Have You Been
+03. Tonight
+04. Not Together(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBCD3731942F7AAE95F1C76CDCB6549705C9F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663084   (184642) от 27.09.2023
 
 VA - Ambient Ethereal Dreams (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
@@ -716,35 +745,6 @@ VA - Paradigm House Sound (2022) [MP3|320 Kbps] <Electronica, Progressive, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967173   (173822) от 20.12.2015
-
-VA - Music For Everyone - Club House Vol.4 (2015) [MP3|320 кб/с] <House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173822.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beltek - Bora Bora (Seaside Edit)
-2. Eche Palante - Your Love Is (Original Mix)
-3. MYNC & Mario Fischetti feat. Deborah Cox - Everywhere (Panda Remix)
-4. Jay Vegas - Say To Ya (Tommy Vercetti Remix)(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F080E2DBA375648C198EC73989D9868FC9ABBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

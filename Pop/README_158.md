@@ -1,3 +1,160 @@
+###  Публикация: 805898   (604721) от 18.07.2014
+
+VA - The World Of DJ Hits Vol.1 (1996) [MP3|320 кб/с]<Euro-Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Pression - There Is The Light (Gb Short Mix) 3:39
+02. 4-Ward feat.Marvin McKay - Do You Want (Radio Version) 3:48
+03. Pearl feat.Zaradika - Celebrate (Radio Mix) 3:53
+04. Gale Robinson - Love, Joy & Passion (Radio Edit) 4:07
+05. X-Poz - Live 2 Genter (Short Fm Mix) 3:53
+06. Zar - Nunca Sin Ti (Extended Version) 4:19
+07. Sidney Fresh - Are You Crazy (Radio Edit) 3:54
+08. Sophia - Gimme The Night (Radio Edit) 3:32
+09. Orion 8 - Beyond My Control (Radio Edit) 5:03
+10. II Simmons - It's Raining Men (Radio (   Читать дальше...   )Жанр: Euro-DanceПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B3785CBCC275AB1EF32E0E681D4A26485F7774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805874   (604516) от 18.07.2014
+
+VA- I Love ZYX Italo Disco Collection Vol.17 (2014) 3CD [MP3|320 кб/с]<Italo-Disco, Synthpop, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Two For Love (Mozzart Mix) [05:14]
+02. Tom - Give Me Just A Little Time (Maxi Version) [05:53]
+03. Laserdance - Battle Cry (Space Mix) [06:27]
+04. Morgana - Ready For Love (Vocal Version) [07:39]
+05. Scotch - Money Runner (Extended Version) [06:20]
+06. Tony Moore D.J. - Tonight (Vocal Version) [06:57]
+07. Raffalli - Don't Stop (Vocal Version) [06:14]
+08. Humphrey Robertson - Don't Stop Loving Me [05:42]
+09. Fun Fun - Baila Bolero (Bolero Dance Mix) [09:26]
+10. Fancy - China Blue (Blue Remix) (   Читать дальше...   )Жанр: Italo-Disco, Synthpop, SpacesynthПродолжительность: 03:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CDE9C424553931FF45DF76D719E789C19B137B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148217   (604471) от 05.07.2017
+
+Patrick Lindner - Die kleinen Dinge des Lebens (1990) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Die kleinen Dinge des Lebens
+2. Und wenn i tanz mit dir (des is a Wahnsinn)
+3. A bisserl Abschied gibt's halt nicht
+4. Und wenn's Nacht wird, gibt's a Busserl(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F84D7EA9E0011209AED6C4DACBAC1BFAB9A82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546632   (604419) от 25.04.2022
+
+Lucius - Second Nature (2022) [FLAC|Lossless|tracks + .cue] <Disco, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604419.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Second Nature (03:31)
+2. Next to Normal (03:10)
+3. 24 (04:14)
+4. Heartbursts (03:55)(   Читать дальше...   )Жанр: Disco, Indie PopПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFE677CA95F6368323E1B38A40E7A0BF9E3A149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148179   (604314) от 05.07.2017
+
+VA - Romantic Serenade (2001) [FLAC|Lossless|image + .cue] <Traditional Pop, Vocal, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engelbert Humperdinck - You'll Never Know (2:51)
+02. Vic Damone - Love Letters (3:15)
+03. Kenny Rogers - It Had To Be You (2:42)
+04. Tony Bennett - My Heart Stood Still (3:09)(   Читать дальше...   )Жанр: Traditional Pop, Vocal, Easy ListeningПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2EB98D3D8C7BDCF08334BC56EE64736AF3B3EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148284   (604279) от 05.07.2017
 
 VA - ZYX Italo Disco New Generation vol.7 (2015) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
@@ -600,157 +757,6 @@ Donna Summer - Love to Love You Donna (2013) [FLAC|Lossless|tracks + .cue] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2D3EB6C301A8AF9E7682B90771E5C91E1D4777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297686   (603093) от 24.04.2019
-
-Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight We Rise
-02. Feels Like Love
-03. Red Angel
-04. Everest(   Читать дальше...   )Жанр: Pop Rock, Dream PopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7D95E91419DBE65B5FB3C43F1F79208E7101A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297713   (603086) от 24.04.2019
-
-Emly Starr - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мари-Кристин Марелс (нидерл. Marie-Christine Mareels; род. 5 сентября 1958 в Ларне, Бельгия) - бельгийская певица и киноактриса, более известная под псевдонимом Эмли Старр (нидерл. Emly Starr); представительница Бельгии на конкурсе песни Евровидение 1981.01. Do Svidaanja (4:07)
-02. Hey Aloha (Honolulu) (3:34)
-03. The Reason To Live (3:44)
-04. Up And Down (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6621AA80C0643E820C878E92AF54455611D0388B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231814   (602770) от 22.06.2018
-
-VA - Disco De Ouro 18/19 (2018) [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602770.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Quim Barreiros - A Feira
-02. Emanuel - És A Minha Vida(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:36
-
-01. Irmãos Verdades - É Demais
-02. José Malhoa - Há Baile Na Aldeia(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A6E67681DC6D3A65E7B432C30571C626C18A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231868   (602767) от 22.06.2018
-
-VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602767.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Anna-Maria Zimmermann - Tanz (DJ Echolot Mix)
-02. Annemarie Eilfeld - Dein Herz ist eine Geisterstadt (Radio-Edit)(   Читать дальше...   )Жанр: Disco, Pop, SchlagerПродолжительность: 01:16:53
-
-01. Thomas Anders - Love is in the Air (Radio Version)
-02. Bad Boys Blue - Come back and stay(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F9320528AFED6B52F4D265E1FCBD705251FC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297679   (602669) от 25.04.2019
-
-Chrysta Bell - ThisTrain (2011) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Train
-02. Right Down To You
-03. I Die
-04. Swing With Me(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2437F452DE986C2D25569BE3DD92368F84CE61
 ```
 
 https://mybot314.ru/tekegram_catalog/

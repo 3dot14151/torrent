@@ -1,119 +1,3 @@
-###  Публикация: 1529328   (244844) от 06.02.2022
-
-VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Union, Alexander Alar - Istanbul (Original Mix) (7:00)
-02. Bruno Pauwels - Peaches on the Moon (Original Mix) (5:53)
-03. Feelmark - Contact (Original Mix) (6:45)
-04. Tantra - Bali (Original Mix) (7:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A95286E318E18026FDD022C3DC9CAB9DE623A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529327   (244836) от 06.02.2022
-
-VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helen&Boys - Not Too Long Way (Original Mix) (6:58)
-02. Bruno Pauwels - Temptations (Original Mix) (5:29)
-03. Underbooz - Back to Nature (Original Mix) (6:54)
-04. Mayro - Decisions (Original Mix) (7:57)(   Читать дальше...   )Жанр: Melodic House & Techno, Deep House, Progressive HouseПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120CA5006F3AC76066DB2B4E7969E923DEDF99FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529329   (244828) от 06.02.2022
-
-VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organic/Afro House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Di Sabato, Ras Algethi - Astronomical Bodies (Original Mix) (6:20)
-02. Yerom - Abstrakt (Original Mix) (6:40)
-03. Agma - Hurricane (Original Mix) (6:48)
-04. Artaria - Ramble (Original Mix) (9:12)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic/Afro House, Progressive HouseПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084FB1FC34C61072FE1E16FF9EC4474B488D25FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529330   (244823) от 06.02.2022
-
-VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SHMN - To Be Loved (Original Mix) (8:22)
-02. Deniz Kabu - Endless Walls (Original Mix) (6:40)
-03. Bragken, CATMOONK, Isida - Voice in My Head (Original Mix) (7:52)
-04. Add-us - Orca (Original Mix) (9:04)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6637F3468547A9F19D54B511A7C19BB935F90BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529522   (244800) от 06.02.2022
 
 Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
@@ -744,6 +628,122 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EBFB5197B027F8097FBEDF30BC5362967611AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535297   (244297) от 06.03.2022
+
+VA - Everlust (Compiled by Seel) (2021) [AAC|~323 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Assem - Liquid Soul (5:22)
+02. Angata, Yohana - Ga'agua (8:03)
+03. Seel, Pere - Bise (8:28)
+04. Shan Nash - Sufi (6:41)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9165E0EEE33259F0BAFB561B1BABC273B53F6D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535301   (244291) от 06.03.2022
+
+VA - Chill Out Lovers, Vol. 2 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Tim Gelo - Bring It Back (4:31)
+02. Steen Thottrup, Lunamila - Time (5:08)
+03. CaPa - Counts 1 (4:05)
+04. Dreamhunter - Wolf In The Snow (4:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E49C38C3DFCF376B28F355C79165AF1038EE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535294   (244273) от 06.03.2022
+
+VA - Ethno Sorcery, Vol. 2 (Compiled by Salvo Migliorini) (2020) [AAC|~328 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hisham Kharma - Earth (4:19)
+02. Toulouse - Origins (8:32)
+03. Andrei Laszlo - Desert (5:01)
+04. Jose Solano - Jordania (7:25)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38A356FA3429B47340C87FE8C06990A9264CBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535409   (244264) от 06.03.2022
+
+VA - Viva 2021.2 (2022) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avar Garden, Henzach - Philammon (Anatolian Sessions Remix) (7:00)
+02. Claudio Gasparini - Twelve Spirits (5:56)
+03. Claxy - Dancing Eyes (5:07)
+04. Cristhian Balcazar - Body Trap (7:23)(   Читать дальше...   )Жанр: Tech House, Afro House, Melodic Hosue & Techno, Progressive HouseПродолжительность: 02:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF81DDF5F0D99D6D8A9BB53C1B528D070BBC1306
 ```
 
 https://mybot314.ru/tekegram_catalog/

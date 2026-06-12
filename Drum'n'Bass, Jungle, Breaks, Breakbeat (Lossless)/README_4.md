@@ -1,3 +1,32 @@
+###  Публикация: 1206676   (781694) от 15.02.2018
+
+Propellerheads - Decksandrumsandrockandroll (Delux) (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, Big Beat, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Want It Back (feat. Jungle Brothers) (06:02)
+ 02. 360° (Oh Yeah?) (feat. De La Soul) (04:30)
+ 03. Go Faster (06:12)
+ 04. Ron's Theory (06:39)(   Читать дальше...   )Жанр: Breakbeat, Big Beat, Jungle •Продолжительность: 00:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1D8DE7CDAA50193B5F16F796B8E9DB7A2B6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392354   (769386) от 25.06.2020
 
 Darkhalo - Metamorph (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Ambient>
@@ -716,35 +745,6 @@ Technimatic - Through the Hours (2019) [FLAC|Lossless|WEB-DL|tracks] <Jungle, Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0345FD89CA2987AF77B32351F9353352117CE5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298999   (601603) от 29.04.2019
-
-Painstatic - The Unknown: 1 Year Edition (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Message [04:18]
-02. The Guiding [05:40]
-03. Triggering The Youth [05:33]
-04. Pain Song [05:28](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E5B091CAA050F0D5CC6E987DBCE6BC1A115914
 ```
 
 https://mybot314.ru/tekegram_catalog/

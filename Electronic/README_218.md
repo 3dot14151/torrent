@@ -1,3 +1,148 @@
+###  Публикация: 1137706   (665417) от 28.05.2017
+
+VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zedd & Alessia Cara - Stay 3:31
+02.  Axwell Ingrosso feat. Kid Ink - I Love You 3:11
+03.  The Chainsmokers & Coldplay - Something Just Like This 4:07
+04.  Martin Garrix & Dua Lipa - Scared To Be Lonely (Brooks Remix) 3:21(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F759DF4AB82A0E8CC540E3256A6909356CC4DFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537846   (665383) от 18.03.2022
+
+Becky Hill - Only Honest On The Weekend (2022) Deluxe Edition [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dance-pop, House, Electro House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (Becky Hill, Galantis) (3:10)
+02. I Got You (3:10)
+03. Last Time (3:34)
+04. Make It Hard To Love You (3:19)(   Читать дальше...   )Жанр: Dance-pop, House, Electro HouseПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4001B08FF57B64122013BE1274A8431AC108C34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537882   (665335) от 18.03.2022
+
+Dawn Of Ashes - Blood of the Titans (2021) Remixes [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dark Electro, Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665335.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Blood of the Titans (Inva//id Remix)
+2 Blood of the Titans (Tactical Sekt Remix)
+3 Blood of the Titans (Die Sektor Remix)
+4 Blood of the Titans (Midnight Nightmare Remix)(   Читать дальше...   )Жанр: Dark Electro, IndustrialПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7607ACA998D9FC49ECB42C6FA1AAA3AF13A3563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137604   (665314) от 28.05.2017
+
+Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Children (Dream Version) 7:06
+02.  Fable (Message Version) 6:25
+03.  Children (Message Version) 6:51
+04.  One And One (Radio Version) (feat. Maria Nayler) 4:01(   Читать дальше...   )Жанр: Trance, Dream HouseПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1CCBDD702EDDBFEAA7023047E455D6A2C70F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137938   (665249) от 28.05.2017
+
+Robert Miles - Remember Robert Miles (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version) (7:06)
+ 02. Fable (Message Version) (6:25)
+ 03. Children (Message Version) (6:51)
+ 04. One And One (Radio Version) (4:01)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F8AC1EF5E9E8E3F4F8AC6462683164A81B4350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138342   (664566) от 29.05.2017
 
 VA - Signs Of Chilling Liberty (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -597,151 +742,6 @@ VA - Summer Chill. Smooth Beach Lounge Grooves for Easy Listening (2017) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249A7FC954EA5B918B89B95888FC619873C01C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138593   (663160) от 30.05.2017
-
-VA - Deep House Music (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Elle - T-Bass
-02. Jazz Juice - Fever - ChrisB Remix
-03. Chartclimbers - Lead Man Holler
-04. Dariush - The Elves(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD3253E6B3B4C9F46D1772DD362C3069231E3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138286   (663158) от 30.05.2017
-
-Spacekraft - То падая, то взлетая (Сон) (2016) [FLAC|Lossless|WEB-DL|image] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepy Town Manufacture - Posledniy Son Starogo Robota
-02. Robert Babicz - Duba (Guy J Remix)
-03. Synkro - Recognition
-04. Thrupence - Voyages(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAEC1D738FDF9AB05F8FB0C9DA2E8851161B6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138580   (663156) от 30.05.2017
-
-VA - Monte Carlo Vip Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Monolounge Roudette - La Fleur De La Musique (Loca People Mix) 5:25
-02.  Lounge Foyer - Perfect Day (Booty Swing Mix) 4:47
-03.  Deechiller - City Lights (Soul 2 Sax Mix) 5:10
-04.  Swing Chill Transfer - Somewhere Between (Chill Lounge Manhattan Mix) 4:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69CB9056456321B9DF3D99DAF8E0C1E1657C35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225035   (662921) от 13.05.2018
-
-VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duncan Newell - Gibbo (Radio Edit)
-02. Josa - Nebula (Original Mix)
-03. Gelvetta - Princess Asia (Original Mix)
-04. Axel Walters - New Line (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5990E302E12BA5D01EE6137CBCAD5474A611FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138858   (662412) от 31.05.2017
-
-Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aneesh Gera - Starchaser (Original Mix)
-02. Jerome Isma-Ae & Alastor - Wilde (Extended Mix)
-03. Sunlight Project - Deep Valley ( Original Mix )
-04. Jettan - Sunset (Sicarios Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
 ```
 
 https://mybot314.ru/tekegram_catalog/

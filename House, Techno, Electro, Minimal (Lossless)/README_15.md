@@ -1,3 +1,61 @@
+###  Публикация: 1374920   (871199) от 11.04.2020
+
+Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Void (03:31)
+ 02. Warmer (05:25)
+ 03. Notch (07:50)
+ 04. Worms (03:03)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FD5EBDEF3183EDBD13DE37B9391A5C7D57DB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375092   (869087) от 12.04.2020
+
+Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Downtempo, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orca (04:34)
+ 02. Glue (04:29)
+ 03. Kites (06:26)
+ 04. Vespa (01:27)(   Читать дальше...   )Жанр: House, Techno, Downtempo, TranceПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA4FAE77EC4A32128307DCED3F4238BA7FC3E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998825   (868646) от 20.03.2016
 
 VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
@@ -684,64 +742,6 @@ Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45768A4B2037A2803B50D4A1D23467C79F9D072A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378125   (848168) от 24.04.2020
-
-Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brass Devil
-02. Piano Boy
-03. Don't You Forget (feat. Lilja Bloom & Anduze)
-04. Fade to Red (feat. ESCHES)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990B4444CF2EFDE96E5C70D8ADD0FBDB4A2156AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378147   (848158) от 24.04.2020
-
-Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Thunderstorm (7:37)
-2. The Awakening (8:38)
-3. Nothing Seems To Be (9:19)
-4. Titelbild (7:43)Жанр: Tech House, MinimalПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B5EF67CE4E2AE3A90852F05182A6504168A24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

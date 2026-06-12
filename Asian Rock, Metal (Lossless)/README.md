@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875663   (1072717) от 
+
+Sigh - Hail Horror Hail (1997) 2 x CD, Reissue, Remastered, 2026, Peaceville Records Ltd. [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072717.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hail Horror Hail (5:08)
+ 02. 42 49 (7:43)
+ 03. 12 Souls (6:56)(   Читать дальше...   )Жанр: Black Metal, AvantgardeПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EA93107E73A5856D36AFAA59FE508108F89106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874596   (1071934) от 03.06.2026
 
 Sigh - Ghastly Funeral Theatre (1997) 2XCD, Japanese Edition, Reissue, Remastered, 2026, Peaceville Ltd. [FLAC|Lossless|image + .cue] <Black Metal>
@@ -714,35 +743,6 @@ Onmyo-Za - Karyo-Binga (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54007DC81C0BCDEE7FA35A8DDD580C66F738A414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495801   (877440) от 14.09.2021
-
-Loudness - Rise To Glory -8118- (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877440.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Rise To Glory -8118- :
-01. 8118 (Instrumental)
-02. Soul On Fire
-03. I'm Still Alive(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCCEF78C86BE1A4765685CC983631A9C37C7079
 ```
 
 https://mybot314.ru/tekegram_catalog/

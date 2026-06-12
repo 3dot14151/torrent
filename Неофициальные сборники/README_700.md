@@ -1,3 +1,90 @@
+###  Публикация: 1810398   (9312) от 04.08.2025
+
+VA - Music News For Forum vol.121 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ciara feat. Latto & Jazze Pha - This Right Here (03:10)
+ 002. Юля Эгерман - Косы (02:37)
+ 003. abdr. - Time! (02:14)
+ 004. Ahadadream feat. Champion & Logan_olm - Big Boy Tracks (03:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA529E00FB38EF6651B70B913A67C9BFD435FE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810580   (9245) от 05.08.2025
+
+VA - Motivation Mix 10 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kendrick Lamar - euphoria (6:23)
+02. Drake, Sexyy Red, SZA - Rich Baby Daddy (5:19)
+03. Travis Scott - SICKO MODE (5:12)
+04. Farruko - Pepas (4:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCC0E9D46636B30A43968AB79D87079EFB748AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810702   (9206) от 05.08.2025
+
+VA - The Accent Of My Soul (2025) [MP3|320 Kbps] <Funk, Soul, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Savannah Ré - Bodies (03:08)
+002 Freda Payne - Band Of Gold (02:57)
+003 Rung Hyang - Moment (02:54)
+004 Lettuce - Mt. Crushmore (04:40)(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 13:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F60A12073F583C29189CE3E9A1A5C2673F8E396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810763   (9127) от 06.08.2025
 
 VA - Music News For Forum vol.122 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F238C8DBC403BEDB629BEE71072FC1DFEA4D097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813228   (7085) от 18.08.2025
-
-VA - Music News For Forum vol.127 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7085.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MONA - Черная кошка (02:38)
- 002. Экслав & Masha Hima - Я не хочу просыпаться (02:17)
- 003. A.V.G & Согдиана - Сердце-магнит (02:16)
- 004. AFELIA - Записка (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AEDEB6DA690E32321BA17D755A84769DC28B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813303   (6969) от 19.08.2025
-
-VA - Russian Covers (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tanita Tikaram - Twist in My Sobriety (Русская Версия)
-02 - Deep Purple - Sweet Child in Time  (Русская Версия)
-03 - Animals - Посмотри, Как Над Лесом Смеётся Луна (House of the Rising Sun)
-04 - Shocking Blue - Venus (Русская Версия)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DEC929126A1BFA4DDC0C579787975FC79890FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813506   (6955) от 19.08.2025
-
-VA - Summer Like (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6955.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gracie Abrams - That’s So True (02:46)
- 002. Bruno Mars - When I Was Your Man (03:34)
- 003. Jay Ferguson - Thunder Island (03:59)
- 004. Kenya Grace - Strangers (03:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9916697BD49E5320C81452B994A2320B6FE46D
 ```
 
 https://mybot314.ru/tekegram_catalog/

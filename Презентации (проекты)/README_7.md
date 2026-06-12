@@ -1,3 +1,56 @@
+###  Публикация: 1097180   (915126) от 26.01.2017
+
+Проекты - VideoHive - Movie Intro Maker - 19252364 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movie Intro Maker - проект для создания впечатляющей презентации или кинематографического тизера в стиле “HARRY POTTER”.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295ED837EC5B17B22F6F98A0849D84D37E5798D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990127   (913165) от 24.02.2016
+
+Проекты - VideoHive - Cube Logic [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90E929664D6DD9E086AD83F18F3114E4F3D9D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491269   (911627) от 24.08.2021
 
 Проекты - VideoHive - Digital Slideshow - 22235314 [AEP]
@@ -626,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0871C3973836EF8AD511E59AFE98DFBF78DB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991927   (903840) от 29.02.2016
-
-Проекты - VideoHive - Stylish Corporate Circles Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF8F65B7CB82EF7293059E46967BDE2BE2165F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991950   (903753) от 29.02.2016
-
-Проекты - VideoHive - Broadcast Graphic Tv Clean Pack [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания подкаста телевизионного канала.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6CCC79A2DCE703334A47F1FD97175560AA4854
 ```
 
 https://mybot314.ru/tekegram_catalog/

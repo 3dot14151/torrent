@@ -1,3 +1,96 @@
+###  Публикация: 921186   (573489) от 26.07.2015
+
+VA - Рок впрок (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Северный Флот - Поднимая Знамя
+ 02. TOKAY - Сделай мне музыку
+ 03. PEACE DAYS - Реалити-шоу
+ 04. 6 Страниц Назад - Блеск души(   Читать дальше...   )Жанр: RockПродолжительность: 03:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB6A40313FEF1FC5193855CF21F93C27163CA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921757   (573487) от 26.07.2015
+
+VA - My Favourite Hits of 1977 (16CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Pop, Synth-Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Space - Fasten Seat Belt (06:00)
+002. Smokie - It's Your Life (03:32)
+003. ABBA - Eagle (05:51)
+004. Uriah Heep - The Hanging Tree (03:41)(   Читать дальше...   )Жанр: Easy Listening, Chanson, Pop, Synth-Pop, Disco, RockПродолжительность: 19:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F720E3D5AA6DC8F87C79AEF0D0AC0C8ED5EA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528051   (573473) от 28.07.2012
+
+VA - Esthetics Lounge Vol. 6 (2012) [MP3|320 кб/с]<Lounge, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jake Levinson Band - The Night (5:26)
+ 02. Jet Tricks Feat. Adefunke - Lose You (4:26)
+ 03. Al Blamo & Miley Schmit - Just An Illusion (5:08)
+ 04. Consoul Trainin Feat Joan Kolova - Beautiful (Kosmopolitans Mix) (3:35)
+ 05. Reunited - Sun Is Shining (Out Of Sight Remix) (4:29)
+ 06. Magdalena Mielcarz - Drown In Me (4:09)
+ 07. Dash Berlin - Better Half Of Me (Feat Jonathan Mendelsohn Acoustic Mix) (3:29)
+ 08. Massivan Ft. Bea Luna - So Long (3:59)
+ 09. Dreamers Inc. Feat. Annamaria - The Music Played (4:21)
+ 10. Marcela Mangabeira - Poker Face (3:09)(   Читать дальше...   )Жанр: Lounge, Easy ListeningПродолжительность: 03:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A90D934AD3F553F4C36DCC43D4EA165967E5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 362100   (573404) от 12.07.2011
 
 VA - Прости Меня, Мама (2011) [MP3|256 kbps]<Шансон>
@@ -17,41 +110,6 @@ VA - Прости Меня, Мама (2011) [MP3|256 kbps]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E479C24C419CE08B9A3AB286559A6EA53FDDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362147   (573322) от 12.07.2011
-
-VA - German Top 100 Single Charts (11.07.2011) [MP3|~232 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_573322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Stan - Mr Saxobeat
-02. Jennifer Lopez Feat Pitbull - On The Floor
-03. Pitbull - Give Me Everything
-04. Lmfao Feat Lauren Bennett - Party Rock Anthem
-05. Sarah Engels And Pietro Lombardi - I Miss You
-06. Lady Gaga - The Edge Of Glory
-07. Tim Bendzko - Nur Noch Kurz Die Welt Retten
-08. Snoop Dogg Vs David Guetta - Sweat
-09. Rihanna - California King Bed
-10. Bruno Mars - The Lazy Song(   Читать дальше...)Жанр: PopПродолжительность: 06:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3150163558FEED0A4C5F6682D9E5C0160525D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,64 +754,6 @@ VA - One Day Meditation (2016) [MP3|320 Kbps] <Interlude, Acoustic, Ambient, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25013C11E31CBCBE600AA5EE76522460551BDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234316   (572617) от 04.07.2018
-
-VA - Billboard Hot 100 Singles Chart 07.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Folk, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cardi B, Bad Bunny & J Balvin - I Like It
-002. XXXTENTACION - Sad!
-003. Juice WRLD - Lucid Dreams
-004. Maroon 5 - Girls Like You (feat. Cardi B)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEB23E1071682ED7ACC9B3464714722146682F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043354   (572600) от 16.08.2016
-
-VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me
-02. New Order - Blue Monday '88
-03. Bananarama - Venus
-04. Communards - Don't Leave Me This Way (with Sarah Jane Morris)(   Читать дальше...   )Жанр: PopПродолжительность: 03:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA02B53CCA462D69AD2CE5146138DEAC3C08E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

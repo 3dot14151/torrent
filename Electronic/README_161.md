@@ -1,3 +1,148 @@
+###  Публикация: 1209548   (779299) от 27.02.2018
+
+VA - Chilling Sounds, Vol. 6 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ArcticA - Blueland (Original Mix)  03:21
+02. ArcticA - New World (Original Mix)  06:34
+03. Black-edem - Escape (Original Mix)  04:05
+04. DJ Sasha Fart - Time (Original Mix)  05:32(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2246112814FBACFFD6F424DAE6BB5B033DE609C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209425   (779298) от 27.02.2018
+
+VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jamiroquai - Love Foolosophy (Knee Deep's Re-Edit) (6:15)
+02.Shakedown - At Night (6:43)
+03.Stone Bridge Feat. Therese - Take Me Away (Vocal Mix) (5:36)
+04.Soulshaker Feat. Lorraine Browne - Hypnotic Erotic Games (Soulshakers Orginal Club Mix) (6:43)(   Читать дальше...   )Жанр: House, Electro, DiscoПродолжительность: 05:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209511   (779295) от 27.02.2018
+
+VA - Sexy Lounge Music Songs Selection for Dj (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Copponi - At Midnight 03:45
+02. St. Project - L.A. Sunset 04:34
+03. Giacomo Bondi - A Noite Passa 04:40
+04. Brass - Boston Beat 04:47(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B515D5FA014FB0819B5BF18A2F89D2D8A299EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209513   (779262) от 27.02.2018
+
+VA - Mount Everest: The Base Camp Mix (Mixed by Paul Oakenfold) (2018) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Astronaut Ape & Sunselity  -  Sakura (Original Mix)  8:36
+02.  Paul Oakenfold  -  Deep Space (Original Mix)  7:10
+03.  Paul Oakenfold & Dan Rowe  -  Broken (Mick Parks And Danny Stubbs Remix)  7:31
+04.  Nex Tone  -  Reflections (Original Mix)  6:01(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 06:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71890D89F1809BC56F3BD16C46433ED12211E312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209512   (779230) от 27.02.2018
+
+Fritz Kalkbrenner - Drown (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter (07:07)
+ 02. Ride (07:16)
+ 03. #3 (01:29)
+ 04. Bleed (06:32)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CD3B3F46BCA09800771D61C5EE3E23F89A3A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209660   (779157) от 28.02.2018
 
 VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
@@ -600,151 +745,6 @@ VA - Silk Music Pres. Progressive House Essentials 07 (2018) [MP3|320 Kbps] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CBEB65036B61ED0EDB285550E83D36082F163DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210881   (778564) от 04.03.2018
-
-VA - Dance Smash Hits, Vol. 21 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Kage - Kuman 05:01
-02. DJ K Next - The Darkness 04:26
-03. DJ Luciano - What a World 03:54
-04. DJ Luciano - Why 03:33(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1E6DD70F3FC53AD6DDB1BEF3F36A1E8A549B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210711   (778558) от 04.03.2018
-
-VA - Sound Of Serenity Vol.6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexander S. Karlov  -  I Sea  3:29
-02.  Ocean Mind  -  Dream On  5:26
-03.  Nova Casa  -  You Get Me (Instrumental)  3:57
-04.  Sami Sivananda  -  Wisdom  3:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B94BD0A257B1A719F6D9514D52039BC6EC384EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210771   (778550) от 04.03.2018
-
-VA - Alternative Space Ambient & Chillout Music Vol.7 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sami Sivananda  -  Samadhi Vibes  3:16
-02.  L'Art Mystique  -  Underwater Twilight  4:33
-03.  Chris Le Blanc & Miss Luna  -  Debussy En Es Vedra  4:23
-04.  Sunyata Project  -  Journey To Mandura (Extended Mix)  6:38(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 03:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAC489F559B0EF04FB4505F3EF1AF6FCED7FF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210684   (778540) от 04.03.2018
-
-VA - Toolroom Miami (2018) [MP3|320 Kbps] <House, Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Patrick Topping  -  Be Sharp Say Nowt (Original Mix)  7:24
-02.  KDA & Patrick Cash  -  Hate Me (Original Mix)  7:25
-03.  Eyes Everywhere  -  Murder Weapons (Original Mix)  5:23
-04.  The 2 Bears  -  London Are You There? (Original Mix)  8:13(   Читать дальше...   )Жанр: House, Tech House, ProgressiveПродолжительность: 11:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1162A216F9EC63A2D8FE77DB283D1D274291F6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210710   (778514) от 04.03.2018
-
-HollySiz - Rather Than Talking (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unlimited (02:51)
-02. Rather Than Talking (04:16)
-03. Karma (02:46)
-04. Love is a Temple (03:24)(   Читать дальше...   )Жанр: Indie Pop, Synth-PopПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD84A1ACA596CAE119BE1D17E4BDFA6E0A3F353
 ```
 
 https://mybot314.ru/tekegram_catalog/

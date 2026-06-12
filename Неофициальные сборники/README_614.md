@@ -1,3 +1,90 @@
+###  Публикация: 1433328   (158080) от 20.12.2020
+
+VA - The 100 Best Songs of 2020 by APPLE MUSIC [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158080.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd - Blinding Lights (3:20)
+002. SAINt JHN, Imanbek - Roses - Imanbek Remix (2:56)
+003. Ariana Grande - positions (2:52)
+004. DaBaby, Roddy Ricch - ROCKSTAR (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1069B7B3E35C25DA43F54A14560B6088C9B3489C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194253   (157952) от 24.12.2017
+
+VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157952.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Genix - 6 AM Saint
+002. Laura May - Acid Orchestra
+003. Monoverse - Aftermath (Extended Mix)
+004. Rafael Osmo - Airtight(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346607   (157895) от 20.12.2019
+
+VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157895.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christian Hornbostel - Nebula
+002. Edu Andreazza - Timeless Reality
+003. Vincent Hiest - Behind Me (Original Mix)
+004. Samuel Deep - Ghetto Ds(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 10:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAE6566DC554D2053AB5ED825AEB1B3BA911E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194406   (157816) от 24.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 11) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
@@ -658,93 +745,6 @@ VA - Guitar Collection 15 (The End) (2017) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E31DC4BB903002ADC371F4B6B070CEB2F2DD6EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270471   (157241) от 19.12.2018
-
-VA - Новогодний хоровод Vol.1 (2018) [MP3|256-320 Kbps] <Dance, Acoustic, Electronic, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157241.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валенсия & Spaskiy Project - Новогодний Хоровод
-002. DJ Alexander Yurtaev & LenaGrig - Праздник Стучится
-003. Aruba Ice & Denis Kenzo - Новогодняя
-004. Alisher - Новый Год(   Читать дальше...   )Жанр: Dance, Acoustic, Electronic, PopПродолжительность: 06:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61881E8F23DAD71AAAE2AB7E6990C6278F94A40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270512   (157233) от 19.12.2018
-
-VA - Red Oxitocin: Sound Neuroleptics (2018) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Altan V - River
-002. Danny Serrano - Dance With You
-003. Teacoma - Monotone Movements
-004. Nilo Damasceno - Introduce (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 10:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C315AD7A014BEE28CBAD0AA17F4DB385EFB95BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968212   (157217) от 23.12.2015
-
-VA - Acoustic Chillout Album (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Counting Stars
-02. Meg Birch - Thinking out Loud - Acoustic Mix
-03. Dean Dyson - One Day Like This
-04. Max Tanner - Blame It on Me(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABC79E824BC27590F08A1CDA9E24CAFC58D28C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

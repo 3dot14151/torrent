@@ -1,3 +1,32 @@
+###  Публикация: 1679778   (134035) от 29.11.2023
+
+Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй концертный альбом французской певицы Милен Фармер, выпущенный в 1997 году на лейбле Polydor1. Overture
+2. Vertige
+3. California
+4. Que mon coeur lache(   Читать дальше...   )Производство: Франция, Requiem Publishing, Toutankhamoun, Tuxedo TourЖанр: концерт, музыкаРежиссер: Лоран Бутонна, Франсуа АнссАктеры: Милен Фармер, Валери Бони, Жермен Браун, Айван Кассар, Джефф Дальгрен, Кристоф Даншо, Сьюзи Дэвис, Донна Делори, Эстер Добон» На Эссьенн, Абрахам Лабориэль мл.Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские+французскиеПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3267FFED79A37FBE7063A1A9DFCA9469D684C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680601   (133674) от 30.11.2023
 
 Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
@@ -685,32 +714,6 @@ Live at Mynavi Blitz Akasaka, Tokyo, Japan January 27, 2019.Производст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E96CA168F9C10E983A345C7C1E9F8D3C74BF0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713512   (111874) от 06.04.2024
-
-Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
 ```
 
 https://mybot314.ru/tekegram_catalog/

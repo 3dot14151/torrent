@@ -1,119 +1,3 @@
-###  Публикация: 1504466   (812366) от 23.10.2021
-
-VA - Lounge Freebeat, Vol. 5 (2020) [AAC|~283 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiozoom - Lounging Keys (4:46)
-02. Soundset City - Basic Love (Center Lounge Cut) (3:14)
-03. Jazzy System - Vertigo (3:59)
-04. CiYou - LoFi Chilly (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8E8B5F5FE39D4B525B86F59013797E3E60C3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504459   (812356) от 23.10.2021
-
-VA - Lounge Freebeat, Vol. 1 (2015) [AAC|~306 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Thinking About You (Lounge Mix) (4:51)
-02. Nightzoom - Silence (Vocal Lounge Remix) (5:04)
-03. Jenny Kiwool, Soundset City - Smooth Delight (Vocal Lounge Mix) (5:07)
-04. Johannes Huppertz - Radio Paris (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27B149BCA5BB200F6B28F9DD686433EE0636BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504544   (812222) от 23.10.2021
-
-Григорий Лепс - Подмена понятий (2021) [AAC|~335 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подмена понятий (5:27)
-02. Трибунал (3:08)
-03. Всех благ (4:45)
-04. Одежда между (3:28)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE50DBCD5C687EAA3D747D3861F3C9C41BF2954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504574   (812100) от 23.10.2021
-
-Olivia Newton-John - Physical (Deluxe Edition) (2021) [AAC|~360 Kbps] <Pop, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Landslide (Remastered 2021) (4:20)
-1.02. Stranger's Touch (Remastered 2021) (3:47)
-1.03. Make A Move On Me (Remastered 2021) (3:17)
-1.04. Falling (Remastered 2021) (3:47)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 02:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9168CA16B236BA881A33058A0EB84190A42A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198001   (811753) от 09.01.2018
 
 Ералаш в кино  (2017) WEB-DL [1080p] ATV
@@ -701,6 +585,122 @@ VA - Harabe Daydreams I (2019) [AAC|~309 Kbps] <Tech House, Deep House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29EDE6DC920A29610916BFCD0CFFB3905838E343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504909   (808443) от 25.10.2021
+
+VA - Harabe Daydreams III (2021) [AAC|~319 Kbps] <Tech House, Deep House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max TenRoM - Armenia (4:32)
+02. Adhafera - Lonely Clouds (6:26)
+03. Amol Reon - Tale of Two (6:34)
+04. Monnarsh - Picture (6:10)(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DE2E52D22879C030FED5512962CA6E12E0FAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504964   (808429) от 25.10.2021
+
+Kfir Ochaion - VIII (2020) [AAC|~282 Kbps] <Instrumental Guitar Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel California (Acoustic) (6:45)
+02. Nothing Else Matters (Acoustic) (5:37)
+03. Sultans of Swing (Acoustic) (4:44)
+04. Comfortably Numb (Acoustic) (6:33)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E12D619729EB40B0E0FF8350D3FB3D52AB0914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504872   (808349) от 25.10.2021
+
+Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold Layne (1996 Remastered Version) (2:56)
+02. Interstellar Overdrive (1996 Remastered Version) (9:42)
+03. See Emily Play (1996 Remastered Version) (2:54)
+04. Remember A Day (1996 Remastered Version) (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEDEA2ECFF25958D8A5D78E6696BA14E764A840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504944   (808346) от 25.10.2021
+
+Kfir Ochaion - V (2019) [AAC|~333 Kbps] <Instrumental Guitar Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numb (3:08)
+02. Still Loving You (4:49)
+03. Don't Cry (4:47)
+04. Sweet Child O' Mine (6:01)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E37D1028E01BE3047693FCADEBFF8743730FBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

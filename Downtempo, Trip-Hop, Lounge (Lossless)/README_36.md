@@ -1,148 +1,3 @@
-###  Публикация: 1755696   (40094) от 17.10.2024
-
-VA - Paris La Nuit, Vol 1 (A Premium Lounge Collection) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Balearic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Steen Thottrup, Rafa Peletey - Dreams (The W Song) (Remastered) (04:21)
- 02 - Living Room - Slow Motion Sunset (05:22)
- 03 - Kolby Wade - In the Night (Original Mix) (03:27)
- 04 - Roberto Bronco, Wenawedwa - Memories (Original Mix) (05:50)(   Читать дальше...   )Жанр: Chill Out, Downtempo, BalearicПродолжительность: 02:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5877E0D2332146CAB91684CCAC2E8412963C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756641   (39579) от 22.10.2024
-
-VA - Balearic Chill out Winter 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Living Room - Just Playing Around (03:07)
- 02 - Calmabohain - Calma (On the Beach Mix) (03:08)
- 03 - Lounge Groove Avenue - Seasons (03:44)
- 04 - Chris le Blanc, George Solar, Karmaloft - Tanoura Mantra (George Solar Ambient Rotation Dub) (04:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24E032DB34DF09806CDAFFD5218EE4AF5216DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756640   (39578) от 22.10.2024
-
-VA - Nightfall Dreams: Chillout Your Mind) (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dellasollounge - Love in a Storm (Original Mix) (2:28)
-02. Gary B - Afraid to Fall (Original Mix) (4:53)
-03. Peter Pearson - A Special Time (Original Mix) (3:29)
-04. Pier-O - Coral Reef (Original Mix) (5:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544E86248FDB9D43CDC5739DCD8C48CD463AFD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756644   (39569) от 22.10.2024
-
-VA - Deep Blue Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Akoya (Original Mix) (3:10)
-02. Marga Sol - Hidden Glow (Original Mix) (4:01)
-03. Michael E - It's True (Original Mix) (7:09)
-04. Leo de la Rosa - Into the Blue (feat. Maneela) (Original Mix) (4:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED9559474693E8564BF27E40F535DCE07952EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756847   (39384) от 24.10.2024
-
-V.A. - Vintage Cafe Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Prosen - Summer Vibes
-02. Karen Souza - Ain't No Sunshine (G-Spliff Remix)
-03. Bellestar, Andy Stone - Let Somebody Go
-04. Urban Love - Out in the Dark(   Читать дальше...   )Жанр: Downtempo, Trip-HopПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C494934D399927BA5FC8624CC0BDCA240A81793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757490   (39134) от 27.10.2024
 
 VA - Love Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -745,6 +600,151 @@ Schwarz & Funk - Topas Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794D71D987732799C184D91ACC6E3BEFF30A77AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773141   (31045) от 13.01.2025
+
+VA - Sun Kissed, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Circles Of Sound - Sunrays (Original Mix) (07:36)
+ 02 - Lazy Hammock - My Atlean Sunrise (Original Mix) (05:29)
+ 03 - Taco-Town - Acerado (Original Mix) (03:54)
+ 04 - Worldtraveller - Maui Pie (Original Mix) (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E9E84C8F402BF1399EB11DA228E51419445B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773499   (30735) от 16.01.2025
+
+VA - Chillout Winter Session 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Paco Borges Ensemble - Voces del Amor (04:30)
+ 02 - Habermohl - Strongest Matches (04:20)
+ 03 - Silex Soils - Subsidiary Factors (04:19)
+ 04 - Random Classes - Fading Reflections (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC435D29A0CA727901183B0827912DC25933272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774351   (30317) от 20.01.2025
+
+VA - La Isla Del Sol, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Amber (02:25)
+ 02. Calmabohain - Underwater World (Open Sea Version) (03:26)
+ 03. Dreamhunter - Fragile Skin (04:20)
+ 04. Five Seasons - Baby (04:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5373B0F36269B31020C2787E90792E489167A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774341   (30314) от 20.01.2025
+
+VA - Ultimate Cocktail Lounge Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Elan Vital - Fading Stages (04:28)
+ 02 - Silex Soils - Subsidiary Factors (04:19)
+ 03 - Habermohl - Strongest Matches (04:20)
+ 04 - Random Classes - Fading Reflections (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE03AABD879825EBF9A1F25F4035F5AEC0DA0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774353   (30313) от 20.01.2025
+
+VA - La Isla Del Sol, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ganga - Koalition (05:16)
+ 02 - Calmabohain - Silent Ocean (Sa Trincha @Night Version) (03:08)
+ 03 - Derrick - Just To Be (Spring Version) (04:22)
+ 04 - Mo'jardo - Sun Shining (05:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3B4F04E010464B72910014E5999A17F25A5AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

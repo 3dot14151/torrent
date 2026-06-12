@@ -1,3 +1,61 @@
+###  Публикация: 1240147   (529764) от 10.08.2018
+
+Way Out West - Tuesday Maybe (Remixed) (2018) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. Tuesday Maybe (Modd Remix) (5:47)
+ 02/20. Lullaby Horizon (Ben Böhmer Remix) (3:52)
+ 03/20. Tuesday Maybe (Guy J Remix) (5:44)
+ 04/20. Set My Mind (Luttrell Remix) (5:01)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8759FC3DB31F6B48473C18F6C41C941D6F12FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926641   (528579) от 13.08.2015
+
+VA - Club St Tropez 2015 (Mixed By Dj Jack-E & Djette Benji De La House) (2015) 2CD[FLAC|Lossless|WEB-DL]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imiuru - The Grandma [3:41]
+02. Mhe - The Thrill is Gone [5:55]
+03. Enzo Siffredi - Sometimes [3:58]
+04. Gregory Porter - Liquid Spirit (Claptone Remix Edit) [4:40](   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1939DF162AC814ED6050AC71CE885543D73E4C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156390   (527666) от 07.08.2017
 
 Rey & Kjavik - Rkadash (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
@@ -372,6 +430,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375679   (513340) от 14.08.2011
+
+VA - Fabric 59 (2011) [FLAC|Lossless]<Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_513340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Natured feat. Ali Love & Kenny Glasgow - Time Intro (00:28)
+ 02. Sebastien Tellier - La Ritournelle (Metronomy Mix) (02:04)
+ 03. James Teej - Don't Appear (Redux) (03:16)
+ 04. Coat Of Arms - Is This Something (Jones Fly Edit) (03:08)
+ 05. White Lions - DePalma (03:55)
+ 06. Karen Pollack - You Can't Touch Me (Murk Remix - Jones Fly Edit) (02:05)
+ 07. Cajmere feat. Jamie Principle - God Sent (’10) (03:38)
+ 08. Felix Da Housecat - Madame Hollywood (03:41)
+ 09. Waifs & Strays - Body Shiver (03:31)
+ 10. jennygoesdirty - Amoureux Solitaires (03:31)(   Читать дальше...   )2011Жанр: Deep House, Tech House, MinimalПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932113   (509989) от 28.08.2015
 
 Moonbeam - Atom (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
@@ -661,93 +754,6 @@ Underworld - Drift Episode 3 "Heart" (2019) [FLAC|Lossless|WEB-DL|tracks] <Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47121C860685707A227379F7C6F8E8A7A55D46B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317458   (501382) от 31.07.2019
-
-VA - Joey Negro presents Ibiza 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Z Factor & Joey Negro - Gotta Keep Pushin' (Grant Nelson Radio Edit) (4:29)
-02. Mistura feat. Angela Johnson - Do You Love Me? (Joey Negro Radio Edit) (4:29)
-03. Bob Sinclar & Dimitri From Paris feat. Byron Stingily - Love Is the Answer (Club Edit) (6:30)
-04. Bobby D'Ambrosio feat. Michelle Weeks - Moment of My Life (Joey Negro Radio Edit) (4:54)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 03:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D7A37B3445ABFC2E76C12D3A14F49EC41774F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564371   (500592) от 18.07.2022
-
-VA - Northern Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500592.jpg" />
-</div>
-
-
-###  Подробнее
-
-[7:28] 01. NohL - New Life
-[6:24] 02. Reyul Mather - Freight to Faith
-[8:16] 03. Hot Tuneik - Calling Us feat. Jahsun Abrasax Masik (Ruls Remix)
-[8:23] 04. Andrei Niconoff - Atmasense(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA38FCEA4F5C940C0C2D674F442B12E47FF1D30C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318016   (497800) от 04.08.2019
-
-Jeff Mills - Moon - The Area Of Influence (2019) Axis [FLAC|Lossless|tracks+.cue] <Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control, Sattva And Rama (07:03)
- 02. Stabilising The Spin (05:04)
- 03. The Tides (04:25)
- 04. Sleep-Wake Cycles (08:32)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888DED2FFB20B5C19F2CCE94AA71FA308290AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

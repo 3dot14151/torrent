@@ -1,116 +1,3 @@
-###  Публикация: 1516143   (167004) от 10.12.2021
-
-VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker, Helsloot - Because You Move Me (3:16)
-02. Kidnap, Leo Stannard - Moments (Ben Böhmer & Nils Hoffmann Remix) (4:10)
-03. Loud Luxury, Thutmose - Red Handed (2:51)
-04. Armin van Buuren, Davina Michelle - Hold On (3:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, TranceПродолжительность: 03:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516299   (166991) от 10.12.2021
-
-VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignacio Tardieu - BASIC002 (6:48)
-02. Kyrro - Regeneration (7:08)
-03. Lotech/Hijack - further out (7:49)
-04. Ajnkana - Monoject (Hypno Dub Edit) (7:34)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516314   (166981) от 10.12.2021
-
-Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166981.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Alicia Keys, Pusha T - Plentiful (Originals) (3:09)
-1.02. Skydive (Originals) (3:04)
-1.03. Best Of Me (Originals) (3:59)
-1.04. Dead End Road (Originals) (3:32)(   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345228   (166970) от 14.12.2019
-
-Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516247   (166891) от 10.12.2021
 
 Галлиполи / Gallipoli (1981) BDRip [720p] ATV
@@ -728,6 +615,116 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654B099412190DD094D918AB0CBEC8293CD179AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516766   (165289) от 12.12.2021
+
+VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Remembering You (Original Mix) (4:04)
+02. Marga Sol - Soulheaven (Original Mix) (5:50)
+03. Gary B, Ken Fan - Volar (4:54)
+04. Weathertunes - Follow Your Heart (4:21)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516607   (165240) от 12.12.2021
+
+The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Baylor Project, Kenny Garrett - Strivin' (5:13)
+02. A Love Story (Interlude) (1:46)
+03. Happy To Be With You (6:13)
+04. Love Makes Me Sing (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345997   (164962) от 17.12.2019
+
+Код 8 / Code 8 (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164962.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF544FF0500A6D11A2B5CDFA692619C2CA14E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345995   (164895) от 17.12.2019
+
+Код 8 / Code 8 (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0280730D31377872325F3C8B965B82854ADAC1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

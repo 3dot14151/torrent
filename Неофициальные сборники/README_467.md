@@ -1,3 +1,38 @@
+###  Публикация: 566962   (398302) от 28.10.2012
+
+VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398302.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Favorite feat. Theory - Beautiful night
+002. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you
+003. Guy Sebastian - Gold
+004. Linkin Park - Until It Breaks
+005. Justin Bieber feat. Ludacris - All Around The World
+006. Far East Movement feat. Justin Bieber - Live my life
+007. Giga Dance vs. Rainy - Like an Angel (Deniz Rain radio mix)
+008. Loverush UK! feat. Bryan Adams - Tonight in babylon
+009. Avicii - Fade into darkness (Vocal radio edit)
+010. Bryce feat. Carlprit - Dance with me(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566372A34311B7B79E6EF5528EE13DB22CEAEC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566754   (398246) от 28.10.2012
 
 VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
@@ -830,35 +865,6 @@ VA - 50 Chill & Nu-Lounge Experience Vol.2: Great Chillout and Deep Lounge Tunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5138646775906BB6CA95223BAC45FE7ACC835CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171525   (395761) от 05.10.2017
-
-VA - Big Room Electro House October 2017 (2017) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardage - There's Enough for All of Us
-002. Toyboy & Robin - Tristis
-003. Basti Glanz - Yo y Tu
-004. Flume feat. Little Dragon - Take A Chance(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F78DA8F65CE335011FEEEFF7D151C488BF3852
 ```
 
 https://mybot314.ru/tekegram_catalog/

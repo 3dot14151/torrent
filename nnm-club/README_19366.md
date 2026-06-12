@@ -1,135 +1,25 @@
-###  Публикация: 499137   (256015) от 20.05.2012
+###  Публикация: 1193332   (262150) от 21.12.2017
 
-Подборка журналов | Калининградские дома [2010-2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех кто строит дом, делает ремонт и конечно для всех кто только это планирует. Основой каждого номера выступает дом или квартира как своеобразная «персона», «личность» со своей судьбой и характером. Это рассказ о том, как планировалось и строилось то или иное жилье, какие технологии применялись, что из дизайнерских идей удалось воплотить.2010-2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69A036184D3466E850E9D74E1E760DD750C1031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498973   (256013) от 20.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls (19.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2566
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE74DBBBB5804E57B5D91712BDEFC20296CAF657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498987   (256012) от 20.05.2012
-
-[Wallpapers] Girls Wallpapers (20.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 5616х3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA98EFFBA107EFA42B60E1F59E95F266803819CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498970   (256011) от 20.05.2012
-
-VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fafaq - 21st Century (06:37)
-02. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix) (06:31)
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (08:28)
-04. Dan Stone - Baltic (Ost & Meyer Remix) (08:28)
-05. John Askew - Bastard (Original Mix) (07:56)
-06. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (08:49)
-07. Miroslav Vrlik - Charisma (Original Mix) (06:51)
-08. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (05:12)
-09. Darren Porter - Daytona (Eight Minus Eight Remix) (07:27)
-10. Andreas Mats - Elate (Mike Danis Remix) (07:50)(   Читать дальше...   )May 2012Жанр: Trance, Vocal TranceПродолжительность: 03:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499253   (256010) от 20.05.2012
-
-Центральное телевидение. Выпуск №65 (2012.05.20) SATRip
+Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на "официальные" и "из жизни". Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию - быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ "Центральное телевидение". Формат, в котором нет понятий "формата" и "неформата". Мультимедийный и мультижанровый. Отбирающий информационные поводы по единственному весомому критерию: что интересно - то и показываем!Жанр: ТележурналистикаПродолжительность: ~ 00:57:37
+17 декабря 2017 года, воскресенье. 11:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Альта-Бадия (Италия).
+Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D298F317251AE425789FEE38C71A9B6C7933ABC1
+magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498982   (256007) от 20.05.2012
+###  Публикация: 1193308   (262149) от 21.12.2017
 
-[Wallpapers]Marvelous Mix Wallpapers01
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Широкоэкранные обои для рабочего стола.
+09 декабря 2017 года, суббота. 17:00 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Двойки. 2-я попытка
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2164063EB44B4B456505E2E644E4DEAC9AE73079
+magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498984   (256006) от 20.05.2012
+###  Публикация: 1193374   (262148) от 21.12.2017
 
-[Wallpapers] The Best Wallpapers (20.05.12)
+Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Creation 03:38
+02. Heathen Reigns 04:19
+03. Depicting the Macabre 03:39
+04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D4A901A28223438092C56727E05BC997A0680E
+magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 499266   (256005) от 20.05.2012
+###  Публикация: 1193424   (262147) от 21.12.2017
 
-Н.С.Колесова | Права человека и демографические процессы [2009] [PDF]
+VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Монография посвящена исследованию теоретико-правовых проблем регулирования демографических процессов. Автор стремилась показать значимость обеспечения фундаментальных прав человека в поддержании стабильности демографического развития государства. Комплексно, на основе сравнительного анализа мирового опыта рассматриваются социальные и репродуктивные права гражданина в контексте современных демографических процессов в развитых и развивающихся странах, в Российской Федерации.
-Опираясь на федеральное законодательство и практику его применения, автор исследует чрезвычайно важную на сегодняшний день для России проблему преодоления депопуляции страны, предлагает адекватные пути проведения системно организованной государственной демографической и семейной политики.
-
-Для государственных служащих, юристов — теоретиков и практиков, специалистов других гуманитарных наук — демографов, социологов, а также всех заинтересованных данной проблематикой читателей.Формат: PDF
+01. Men-D - Vine napoi (Original Mix)
+02. Eric Maes - Circular Time (Original Mix)
+03. Zirenz, Men-D - Valhalla (Original Mix)
+04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2ED05B61D022507E5E84295D25B0C3CD5065E3A
+magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 499079   (256004) от 20.05.2012
+###  Публикация: 1193604   (262146) от 21.12.2017
 
-Журнал | Harper’s Bazaar №04 (164) [2012] [PDF]
+VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Harper's Bazaar - это журнал, который уже 140 лет находится в авангарде мировой моды, вдохновляя миллионы своих читательниц. Это журнал, который первым из модных изданий (в марте 1996 года) пришел в Россию. Он принес с собой уникальный взгляд на моду и стиль. Он стал путеводителем по миру моды и роскоши для нового поколения российских женщин.2012Формат: PDF
+01. Paul Denton – Curtain Call (Original Mix)
+02. Bryan Kearney – Adrenaline (Original Mix)
+03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
+04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE0B7928C707FE82A2BAED6FC5A6650C38C68D93
+magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 499165   (256001) от 20.05.2012
+###  Публикация: 1193390   (262145) от 21.12.2017
 
-[Wallpapers] Best Mix Wallpapers (21.05.12)
+Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. The Ascent
+02. Nosferatu
+03. Viral Exogence
+04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B888A43AF57F7B5802CEA5AFF15A2431A06DA5EA
+magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498963   (255999) от 20.05.2012
+###  Публикация: 1193612   (262144) от 21.12.2017
 
-[Wallpapers] Computer Desktop Wallpapers Collection (19.05.12)
+VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
+02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
+03. Twin View – Bubblegun (Ruslan Radriges Remix)
+04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD245B57E79C27FFC5AEA2915389E65E911D1414
+magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,51 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498972   (255998) от 20.05.2012
+###  Публикация: 1193586   (262143) от 21.12.2017
 
-[Wallpapers] Wallpapers Sexy Girls Pack (19.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6658E0426E946CAB18FA7D71B2BC63823A5A857A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499045   (255997) от 20.05.2012
-
-Fleshmould - Interitum (2012) [MP3|320 кб/с]<Technical Death>
+VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2012Жанр: Technical DeathПродолжительность: 00:45:15
+01. Paul Oakenfold – Deep Space (Original Mix)
+02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
+03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
+04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA40CCA1E82240FA6EE80E652871DFCF548F8F5D
+magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +230,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498969   (255995) от 20.05.2012
+###  Публикация: 1193311   (262142) от 21.12.2017
 
-[Wallpapers] Sexy Girls Pack Wallpapers (19.05.12)
+Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exoneration Denied
+02. Drone Wars
+03. Filled with Hate
+04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193432   (262141) от 21.12.2017
+
+VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Numark - Story of A Little Elf (Original Mix)
+02. CJ Stereogun - Margarita's Heart (Original Mix)
+03. Dreaman - Justice (Original Mix)
+04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193430   (262140) от 21.12.2017
+
+afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3120x2060
+01. Apart (05:10)
+02. Due (06:07)
+03. Naked Icon (06:55)
+04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7209AF23AD6C8C0F6BA711B395DAC7115EB67B17
+magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 499166   (255994) от 20.05.2012
+###  Публикация: 1193428   (262139) от 21.12.2017
 
-[Wallpapers] Sexy Girls Pack Wallpapers (21.05.12)
+Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4978x3734
+01. Anticline (10:01)
+ 02. Iso (05:58)
+ 03. Lead (05:54)
+ 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E088D3AA4AE6BFA22523446D5455ABE69AA70A26
+magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +346,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498986   (255993) от 20.05.2012
+###  Публикация: 1193377   (262138) от 21.12.2017
 
-[Wallpapers] Girls Wallpapers Mix (20.05.12)
+Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors of Cadavers
+02. Reptile
+03. Anatomy of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193409   (262137) от 21.12.2017
+
+B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Road
+02. Evil Greazer
+03. Brain Trust
+04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193425   (262136) от 21.12.2017
+
+Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make You Believe In Love (03:33)
+02. Please Don't Go (03:23)
+03. Next To Me (03:00)
+04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193444   (262135) от 21.12.2017
+
+Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subatomic Days (05:00)
+ 02. Losslessness (05:00)
+ 03. Douglas Firs (05:00)
+ 04. The Primal Forces Of Nature (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Modern Classical, Ambient, Drone, Minimal •Продолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193455   (262134) от 21.12.2017
+
+Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Verità (05:02)
+02. Luomo Nero (04:28)
+03. Canzone Contro La Paura (03:44)
+04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193297   (262133) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 5616х3744
+01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
+02.  Pupo  -  Vita Da Artista  3:19
+03.  Toto Cutugno  -  Solo Noi  4:07
+04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDF7FD4569D9D40A88DEA862736DDF3F5526494F
+magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 499143   (255988) от 20.05.2012
+###  Публикация: 1193338   (262132) от 21.12.2017
 
-Журнал | Калининградские дома №4 (88) [2012] [PDF]
+VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для всех кто строит дом, делает ремонт и конечно для всех кто только это планирует. Основой каждого номера выступает дом или квартира как своеобразная «персона», «личность» со своей судьбой и характером. Это рассказ о том, как планировалось и строилось то или иное жилье, какие технологии применялись, что из дизайнерских идей удалось воплотить.2012Формат: PDF
+01.  Tony Dallara  -  Come Prima  2:05
+02.  Schola Cantorum  -  Il Calendario  2:31
+03.  Pupo  -  La Vita E Molto Di Piu  3:15
+04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F1C151C2DC1ACA35970E4250272FB505D396572
+magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,29 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498643   (255987) от 19.05.2012
+###  Публикация: 1193396   (262131) от 21.12.2017
 
-Геймер / Gamer (2009) [H.264] HDRip
+Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие фильма происходит в недалёком утопическом будущем, где высочайшее развитие нанотехнологий позволило технологическому гению Кену Кастлу соединить видеоигру с реалити-шоу и смоделировать ультрафункциональную, мультиплеерную игру «Убийцы», которая стала средой обитания местных преступников.
-
-Джон Тиллман, приговоренный к пожизненному заключению за преступление, которого не совершал, должен принять участие в Игре, чтобы получить свободу. Для одного богатого молодого игрока Джон Тиллман это — Кэйбл, всего лишь сим, управляемый персонаж игры. Благодаря своим боевым способностям и физической силе, Кэйбл становится национальным героем и занимает первые позиции в игре.
-
-Каждую неделю миллионы людей во всём мире в режиме онлайн следят за ним и сотней других смертников, которые участвуют в битвах игры. По мнению группы мятежников, которая противостоит Кастлу, его игра — это высокотехнологичное рабство, а он является тем критическим элементом, который необходимо уничтожить. Кэйбл/Тиллман оказался между двумя мощными (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Джерард Батлер, Мило Вентимилья, Аарон Йоо, Майкл С. Холл, Кит Дэвид, Джон Легуизамо, Элисон Ломан, Кайра Седжуик, Амбер Валлетта, Зои Белл, Терри Крюз, Логан Лерман, ЛудакрисПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 01:34:47
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51E4FC32138E1F8B65EA41AF7C1483CBDD69FB49
+magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,25 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498769   (255986) от 19.05.2012
+###  Публикация: 1193466   (262130) от 21.12.2017
 
-Вышибала / Goon (2011) HDRip
+Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Даг — простой вышибала, работающий в провинциальном баре. Однажды, ввязавшись в драку на хоккейном матче с одним из игроков, он попадает в поле зрения тренера команды мастеров. Ему срочно нужен игрок, который сможет защитить на льду ведущего нападающего клуба. Даг не умеет стоять на коньках, но этому можно научиться, зато в драке ему нет равных! У команды-главного конкурента есть свой тафгай, Росс «Босс-Мать-Его» Риа, от одного вида которого дрожит вся хоккейная лига. Дагу и Россу предстоит сойтись в одном матче. Наш герой, с помощью своего друга, делает головокружительную карьеру, сплотив вокруг себя всю команду, и завоевывает любовь самой лучшей девушки на свете. С точки зрения Дага, конечно.Жанр: Комедия, СпортРежиссер: Майкл ДаусПродюсер: Джесси Шапира, Дон Кармоди, Йен ДимерманАктеры: Шонн Уильям Скотт, Джей Барушель, Лив Шрайбер, Юджин Леви, Элисон Пилл, Марк-Андре Гронден, Ким Коутс, Дэвид Петкау, Шон Скин, Джонатан ЧерриПеревод: Одноголосый закадровыйПродолжительность: 01:31:30
+Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:304B9E4A3447E871F8C6D855103C4C76337AE110
+magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498840   (255984) от 19.05.2012
+###  Публикация: 1193531   (262129) от 21.12.2017
 
-Евгений Попов | Базовый курс по Adobe Dreamweaver CS 5.5 [2012, unpacked]
+Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Vocal Jazz, Christmas>
 
->>Мультимедийные материалы
->>Компьютеры
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В данном курсе рассматривается работа с одной из популярных программ веб-разработки сайтов Adobe Dreamweaver. Вы научитесь верстать сайты, используя основные возможности и инструменты данной программы, при этом у вас уже должны быть базовые знания по HTML и CSS.
-
-Вводный курс по Adobe Dreamweaver CS 5.5 в который вошли 14 видеоуроков. Курс получился практическим, потому что в процессе создается продающая страница, задействуя те инструменты, которые чаще всего используются.
- Благодаря данного курсу, Вы приобрете базовые навыки по работе с программой Adobe Dreamweaver CS 5.5.2012Жанр: Вэб-дизайнФормат: unpacked
+01. Beegie Adair - Let It Snow, Let It Snow, Let It Snow (2:57)
+02. Denis Solee - Winter Wonderland (3:58)
+03. Beegie Adair & Jaimee Paul - Jingle Bells/Jolly Old St. Nicholas (3:22)
+04. Lori Mechem (feat. Jack Jezzro) - White Christmas (4:04)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal Jazz, ChristmasПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEDD28435A460B96265CDF949BF48B7E0AAD8DD9
+magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,83 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498695   (255983) от 19.05.2012
+###  Публикация: 1193324   (262128) от 21.12.2017
 
-Свидание (2012) [H.264] DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой, неженатый, преуспевающий хирург Дмитрий Горин по совету сестры назначает свидание ее подруге — привлекательной учительнице Ане Светловой. Прекрасное создание, попав под действие алкоголя, на деловом обеде, столь важном для Дмитрия, теряет над собой контроль, и торжественное мероприятие превращается в кошмар.
-
-В довершение ко всему преследуемый похожим на Терминатора поклонником Ани, Дима остается без работы, любимого мотоцикла и ему грозит тюремное заключение. Начавшись столь невинно, свидание превращается в бесконечную череду комичных ситуаций, погонь и драк, что, впрочем, не помешает возникшим чувствам перерасти в настоящую любовь.Жанр: КомедияРежиссер: Юсуп БахшиевПродюсер: Юсуп Бахшиев, Сергей Грибков, Елена ЛогиноваАктеры: Владимир Кристовский, Екатерина Климова, Сергей Бадюк, Алёна Бабенко, Константин Мурзенко, Андрей Кайков, Григорий Сиятвинда, Нелли Неведина, Ольга Карпович, Геннадий ВенгеровПеревод: ОриганальныйПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC347854A3D55781C3F5372053DDCE695C043072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498720   (255982) от 19.05.2012
-
-Toy Defense / Солдатики (L) [Ru] 2012
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255982.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой игре «Солдатики» вас ожидает настоящая тяжёлая и опасная военная миссия в  Первой мировой войне. Самое время показать, на что способна ваша армия в условиях жёстких полевых действий. Вам предстоит истреблять самолёты врагов, взрывать танки с одной целью — защитить свой штаб от вражеских сил. Карты боёв реализованы в антураже настоящих боевых локаций. В вашем распоряжении несколько видов оружия - стрелки, пушки, огнемёты и зенитки - и необходимо расставить свои силы так, чтобы не дать противнику достигнуть штаба. Враг может наступать с  одной или нескольких локаций одновременно, поэтому продумайте свою стратегию защиты при расстановке войск. С прохождением каждого уровня вам открывается возможность совершенствовать свою армию. Копите очки и не допускайте потери жизней от прорыва штаба. Станьте достойным героев войны и ведите свою армию к победе!(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Nevosoft GamesЖанр: Казуальная, Аркада, СтрелялкиЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F641501D2DF0BD5E0EC45D750421308E80769D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498645   (255981) от 19.05.2012
-
-Far Cry 2: The Fortune’s Pack [Ru/En] (RePack/1.3) 2008 l Seraph1
+VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы — наемник, заброшенный в раздираемую войной и малярией африканскую страну.
-Ваше задание: найти и уничтожить оружейного барона, для которого эта война неплохой источник дохода.
-Против вас действует целая армия вооруженных до зубов профессионалов.
-Внезапность, изобретательность и точный расчет — ваше основное оружие на этой войне.
-Долгожданное продолжение нашумевшего Far Cry перевернет ваши представления об экшенах от первого лица: полная свобода действий, более 50 квадратных километров карты, уникальные погодные и атмосферные эффекты, реалистичная модель искусственного интеллекта — на базе одной из самых совершенных графических технологий на сегодняшний день.Тип издания: RePackРазработчик: Ubisoft EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+01.  Al Bano & Romina Power  -  Libertа  4:21
+02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
+03.  Bobby Solo  -  Zingara  2:43
+04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:141621C11D4961DAF2D93359A650BB43F82C277E
+magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,26 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495986   (255980) от 19.05.2012
+###  Публикация: 1193304   (262127) от 21.12.2017
 
-[RePack] The Walking Dead: Episode 1 [Ru] 2012 l Fenixx {обновляемая}
+Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>След.
->>Архив Игр
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Walking Dead: The Game – адвенчура с элементами «хоррора».
-Cюжет освещает приключения новой группы «выживших», которые резонно вознамерились сбежать из Атланты в свете нашествия зомби.Посмотрите на то, что творилось в первые дни неожиданно нагрянувшего апокалипсиса, и примите участие в событиях, которые так или иначе пересекаются с похождениями шерифа Рика Граймса.(   Читать дальше...   )Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+01. Radiation Romeos
+02. Ocean Drive
+03. Bad Bad Company
+04. Mystic Mountain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D96737B878055F96880AAD035208CC0CBF6D40C
+magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,29 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498930   (255979) от 19.05.2012
+###  Публикация: 1193457   (262126) от 21.12.2017
 
-[RePack] Wargame: European Escalation [Ru/En] 2012 l R.G. ReCoding
+VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два лагеря, восемь государств, один театр военных действий – Европа!
-"Wargame: Европа в огне" - это увлекательная и зрелищная стратегическая игра в реальном времени, отличающаяся невероятным реализмом и глубиной стратегии.
-Соберите собственную армию из более чем 350 различных видов войск и техники и начните грандиозную военную кампанию в Европе 1980-х, сделав шаг от Холодной войны к Третьей мировой.
-Благодаря передовой технологии IRISZOOM ™ игра Wargame обладает непревзойденным качеством графики: зрелищность этой игры не уступает ее реализму. Готовьтесь командовать сотнями боевых единиц - от танков и вертолетов до пехотных отрядов - на огромных полях сражений площадью до 150 квадратных километров!
-Сетевая служба EugenNet© поддерживает все функции коллективной игры, включая создание кланов, организацию турниров и мировые рейтинги, а в грандиозных сетевых битвах могут участвовать до 8 игроков одновременно!(   Читать дальше...   )Тип издания: RePackРазработчик: Eugen SystemsЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+01.  Raffaella Carra'  -  A Far L'Amore Comincia Tu  2:42
+02.  Carmelo Pagano  -  L'Amore Se Ne Va  2:52
+03.  Umberto Tozzi  -  Notte Chiara  4:15
+04.  Gianni Morandi  -  Se Non Avessi Piu Di Te  2:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F25DB47D17EE99D326E62D7E1C6921F79DCC87
+magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,30 +717,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498282   (255978) от 19.05.2012
+###  Публикация: 1193539   (262125) от 21.12.2017
 
-Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][английский]
+Журнал | Дарья. Биография №13 (декабрь 2017) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакеты 10 000 пресетов ( presets ) для популярного синтезатора NI MASSIVE. Содержит 76 различных подборок от различных производителей. Идеально подойдут для создания электронной, танцевальной, клубной музыки.
-
-Год выпуска: 10 JANUARY 2012
-Релиз-команда: ASSiGN
-Формат: KSD/WAV/MIDI/Patches NMSV/EXE
-Качество: 24-32Bit, 44.1 kHz, stereoНазвание программы: Packs 10 000 Presets for Ni MassiveЯзык интерфейса: английский
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F11256D4E4073F5EA0CBB779F691EFF8B5FDB56D
 ```
 
 https://mybot314.ru/tekegram_catalog/

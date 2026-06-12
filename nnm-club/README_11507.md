@@ -1,25 +1,22 @@
-###  Публикация: 1298956   (601632) от 29.04.2019
+###  Публикация: 1298190   (601778) от 27.04.2019
 
-Du Blonde - Lung Bread for Daddy (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Папа, сдохни (2018) WEB-DL [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Coffee Machine (03:22)
-02.Take Out Chicken (02:09)
-03.Peach Meat (04:04)
-04.Holiday Resort (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:51
+Самый гнусный отец в мире, опер Андрей Геннадьевич, собирает у себя в квартире компанию отъявленных мерзавцев: мстительную дочь-актрису, озлобленного хулигана и обманутого мента. У каждого из них есть свои причины для мести.Производство: Россия, Белое ЗеркалоЖанр: КомедияРежиссер: Кирилл СоколовАктеры: Виталий Хаев, Александр Кузнецов, Евгения Крегжде, Михаил Горевой, Елена Шевченко, Игорь Грабузов, Александр Домогаров мл., Владимир Афанасьев, Владимир Кондауров, Артём БашенинПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:34:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8022220989266180AE4068EF95411D86E103242D
+magnet:?xt=urn:btih:9D4B4B3F6CB3B903EAF7A6135EC331801C5F2135
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298816   (601631) от 29.04.2019
+###  Публикация: 1298574   (601777) от 28.04.2019
 
-VA - Forms of Hands 19 (2019) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Rhythmic Noise, IDM, Techno>
+Dave Pike - Four Classic Albums (1961, 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ICD-10 - Blister (4:26)
-02. Supersimmetria - Vacuum Energy (4:41)
-03. Katran - Mirror Reflection (4:38)
-04. 16Pad Noise Terrorist - Evilment (4:27)(   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, IDM, TechnoПродолжительность: 01:07:08
+CD1:
+01. Cheryl [5:06]
+02. On Green Dolphin Street [5:40]
+03. It's Time [5:44](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 02:32:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E53D51908BE7F4EEA911C08F2375C172325E8D73
+magnet:?xt=urn:btih:078BC1AD6A380FD9C4BE4F05A6F3D99BBC7ED903
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,24 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298876   (601630) от 29.04.2019
+###  Публикация: 1298565   (601776) от 28.04.2019
 
-Simon Le Grec - Romantique (2016) Drizzly Loungerie [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chillout, Trip-Hop>
+Александр Воронцов | Юнгаши (1985) [FB2]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midnight Lounge (De Paris Mix) (5:13)
- 02. How Does It Feel to Be Loved (Radio Mix) (4:27)
- 03. About Love (Sunset Island Mix) (4:46)
- 04. Between Us 2 (Radio Mix) (5:09)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, Trip-HopПродолжительность: 01:28:34
+В грозные годы Великой Отечественной войны сотни и тысячи славных мальчишек стали юнгами флота. В матросской среде их называли иногда ласково-уменьшительно: юнгаши. Трудными путями шли они по своему опаленному войной детству. И лучшей наградой для юнгашей были завоеванные в опасных схватках с врагом любовь и доверие боевой флотской семьи. О том, как юные патриоты (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
@@ -85,25 +79,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298957   (601629) от 29.04.2019
+###  Публикация: 1298531   (601775) от 28.04.2019
 
-Журнал | Архивы ХХ века. Спецвыпуск №2. ХХ век. Шпионы (2019) [PDF]
+Velum Break - Bench Manoeuvres (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamellae Tear (05:17)
+ 02. Vanilla Mint (04:02)
+ 03. Poubelles (04:59)
+ 04. Leaving In Parts (04:06)(   Читать дальше...   )Жанр: IDMПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5D36652A064FD63AD72C09C2C08301D902540D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298461   (601774) от 28.04.2019
+
+Баскетбол. Евролига 2018-2019. Женщины. "Финал 4-х". Шопрон (Венргия). Финал. УГМК (Россия) — Динамо-Курск (Россия) (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601774.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 апреля 2019 года
+Евролига 2018-2019. Женщины.
+"Финал 4-х". Шопрон (Венргия).
+Финал(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF47CF9BFB04C3E9EFB4894DDA1968E88838571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298381   (601773) от 28.04.2019
+
+Russ Tolman - Goodbye El Dorado (2019) [MP3|320 Kbps] <Rock, Americana>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Angeles 03:44
+02. Kid 04:01
+03. North Hollywood Dream 04:15
+04. 405 03:30(   Читать дальше...   )Жанр: Rock, AmericanaПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298627   (601772) от 28.04.2019
+
+Журнал | Story [Россия] №5 (123) (май 2019) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bauer Media Group — одна из самых успешных и передовых медиа-компаний в мире. Имея около 570 журналов, более 300 интернет-проектов и около 50 телевизионных и радиоканалов, она является значимым игроком в стремительно развивающейся и постоянно совершенствующейся индустрии. Стабильное развитие и успех компании под руководством издателя Ивонн Бауэр (Yvonne Bauer) являются (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8028E9CDDDF9BA9743A7B8F66D6B64F02C6913E3
+magnet:?xt=urn:btih:2B07931D2AB43F067D8E21212EA65DE9B5EDEFED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,108 +193,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298841   (601628) от 29.04.2019
+###  Публикация: 1298526   (601771) от 28.04.2019
 
-Astral Doors - Worship or Die (2019) [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night of the Hunter (04:42)
-02. This Must Be Paradise (04:03)
-03. Worship or Die (03:17)
-04. Concrete Heart (03:57)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8590EADEA3527C1FBF6BE288C68C2DF93F75EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298612   (601627) от 29.04.2019
-
-Mantra - Roots (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Different Keys (4:14)
-02. Dirty River (5:13)
-03. The Architechtures Of The Sky (7:50)
-04. Garden Of Secrets (3:55)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABB79B9BA7A9B2152E76BE8EDF5B359108DA1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298991   (601626) от 29.04.2019
-
-Sounds From The Ground - Footprints (2001) Compilation [FLAC|Lossless|tracks + .cue] <Dub, Ambient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow feat. Redjen (3:59)
-02. Shine (5:09)
-03. Melisma (5:46)
-04. Mineral (5:46)(   Читать дальше...   )Жанр: Dub, Ambient, DowntempoПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5165F3A2B3C275C507F3EC0AE2B08103C2D6980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298992   (601625) от 29.04.2019
-
-Растровый клипарт - Carnival #01 [PNG]
+Hello Meteor - Momentary Infrastructure (2019) Evergreen Prefecture [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Breaks, House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт карнавал для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 164x247-1200x1076
+01. Malachite (03:34)
+ 02. Chrysoprase (04:09)
+ 03. Epidote (03:59)
+ 04. Cadmium (04:27)(   Читать дальше...   )Жанр: Downtempo, Ambient, Breaks, HouseПродолжительность: 00:32:36
 
 ## Скачать торент
 ```bash
@@ -224,27 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298734   (601624) от 29.04.2019
+###  Публикация: 1298591   (601770) от 28.04.2019
 
-Youkoso Japari Park | Welcome to Japari Park | Добро пожаловать в Джапари-парк! [2018, ONA, 12 эп.] WebRip 720p raw
+Enforcer - Zenith (2019) [MP3|320 Kbps] <Heavy Metal>
 
->>Аниме с субтитрами
->>Аниме (HD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гид Мирай и Сервал вместе с друзьями записали историю директора парка, и теперь самое время показать ее зрителям.
-
-Ответвление второго сезонаЖанр: приключенияРежиссер: Касугамори ХарукиПеревод: CrunchyRollСубтитры: #1: Английские; #2: РусскиеПродолжительность: 12 эп. по 5 мин.
+1 - Die for the Devil (3:12)
+ 2 - Zenith of the Black Sun (5:36)
+ 3 - Searching for You (2:53)
+ 4 - Regrets (6:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6CF0B7E0CABD2F64CBEC649D68D9B474CE4EA20
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298825   (601623) от 29.04.2019
+###  Публикация: 1298682   (601769) от 28.04.2019
 
-Red Sand - Forsaken (2019) [FLAC|lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop, Country>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forsaken Part 1 (01:48)
-02. Forsaken Part 2 (12:37)
-03. All The Life (08:22)
-04. Hello To The Last Goodbye (13:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:44:41
+01. Cowboy Dreams 05:19
+02. Wild Card in the Pack 03:41
+03. I’m a Troubled Man 03:19
+04. The Streets of Laredo-Not Long for This World (trad. / arr. by Paddy McAloon) 04:38(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-Pop, CountryПродолжительность: 00:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF12DE87F62953A20A05A8EAAAFBC1AC10283A82
+magnet:?xt=urn:btih:9B37B77D356B088DD45DE21A2476E495B763932E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,25 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298985   (601622) от 29.04.2019
+###  Публикация: 1298717   (601768) от 28.04.2019
 
-Растровый клипарт - Bread #01 [PNG]
+VA - Big City Beats Vol.30 (2019) 3CD [MP3|320 Kbps] <House>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Хлеб для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 270x332-5263x6008
+CD 01:
+
+01. Intro - Take Off Vol. 30
+02. Alok & Timmy Trumpet - Metaphor(   Читать дальше...   )Жанр: House, Bigroom, ProgressiveПродолжительность: 03:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B86B3AA08FFD05994667D90D5AB712396197310A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,77 +309,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298815   (601621) от 29.04.2019
+###  Публикация: 1298660   (601767) от 28.04.2019
 
-Растровый клипарт - Animals #27 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 211x340-4432x4635
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7EF3BC7D63714C5855918AC37B76B295CC031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298819   (601620) от 29.04.2019
-
-Растровый клипарт - Animals #28 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 346x600-6458x2782
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D2A98BCE4531F775A40FE47F8230D5855248AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299000   (601619) от 29.04.2019
-
-Журнал | Домашние заготовки. Спецвыпуск №4 (апрель 2019) [PDF]
+Журнал | Сваты на даче №4 (52) (апрель 2019) [PDF]
 
 >>Журналы
->>Кулинарные журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC46B65CA00E73F9EAAD72FB656399EA9436EC9
+magnet:?xt=urn:btih:C51624720424149652DF719363CA48D100DB5B28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,210 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298826   (601618) от 29.04.2019
+###  Публикация: 1298593   (601766) от 28.04.2019
 
-Растровый клипарт - Beautiful Roses #13 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт прекрасные розы для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 186x350-2910x1056
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002066EFFF2CCC892EF2B1B93DF80E4CEB8CB915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298829   (601617) от 29.04.2019
-
-Растровый клипарт - Beautiful Roses #14 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт прекрасные розы для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 230x988-5222x5182
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8082C810E136B5226864DCE769E369CAF87463A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298988   (601616) от 29.04.2019
-
-Растровый клипарт - Butterflies #23 [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт бабочки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 232x211-2500x1171
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298832   (601615) от 29.04.2019
-
-Растровый клипарт - Birdie #03 [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт птички для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 145x457-7244x4789
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298990   (601614) от 29.04.2019
-
-Растровый клипарт - Butterflies #24 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт бабочки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 238x231-1450x900
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBE1779F8BA2DFC5BC3459C2EA207FC3F053D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298892   (601613) от 29.04.2019
-
-А.Г. Арушанова | Поговорки от Егорки (2003) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие для индивидуальной работы по развитию связной речи детей в детском саду и дома. Книжка посвящена развитию речи детей на материале поговорок, стихотворений и дидактических игр.Жанр: Учебное пособие, Развитие речиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1547A97E8B349131C504B003393C5EB5EA425F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298821   (601612) от 29.04.2019
-
-Растровый клипарт - Animals #29 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 271x296-8072x4884
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866D9DC078B6E414AEE82AFB4C9568F85D06A5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298798   (601611) от 29.04.2019
-
-King Gizzard And The Lizard Wizard - Fishing for Fishies (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+Steel Prophet - The God Machine (2019) [MP3|320 Kbps] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fishing for Fishies (05:01)
-02. Boogieman Sam (04:41)
-03. The Bird Song (04:24)
-04. Plastic Boogie (03:03)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:56
+1 - The God Machine (3:22)
+ 2 - Crucify (4:04)
+ 3 - Thrashed Relentlessly (4:36)
+ 4 - Dark Mask (Between Love and Hate) (3:09)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA5A9D1CFA8C6A7FF084CEBADD2493DDA5833A2F
+magnet:?xt=urn:btih:12202707E92928B8B5DF9675A7020987112F8E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,21 +364,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298982   (601610) от 29.04.2019
+###  Публикация: 1298685   (601765) от 28.04.2019
 
-Растровый клипарт - Blue Elements #03 [PNG]
+Журнал | ОГОРОД RU №2 (4) Розы с Еленой Демьянчук (2019) [PDF]
 
->>нет
->>нет
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт голубые элементы для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 109x176-3060x560
+Садово-дачный журнал для широкого круга читателей.Жанр: цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D1A150820167B82A2BB29C47B9629F559EA5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298570   (601764) от 28.04.2019
+
+Иван Белогорохов | Рассказы (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Белогорохов - писатель-фантаст, литературный псевдоним – Иван Беров. Начал публиковаться в 2009 году, а в 2015 победил в международном конкурсе "Новое имя в фантастике".Жанр: ФантастикаПродолжительность: 03:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80849CB24C6D0BB0AC73AFE0EC6AF741A1246195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298582   (601763) от 28.04.2019
+
+Sean Hayman - Forget Time & Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Dreamwave Mix)
+02. Mirage (Illusion Mix)
+03. The Night of the Sultans (Le Voyage Ethno Mix)
+04. Spiral Dynamics (New Way Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A547DE6256551743D04651E5AF0EC859B795F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298575   (601762) от 28.04.2019
+
+Первая передача на НТВ. Автомобильная передача (28.04.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изъятие авто у должника и вмятины-хлопушки на кузове.
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A955814411FA9A963E4FC55CB17B1D48E6C702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298380   (601761) от 28.04.2019
+
+VA - The Remixes, Vol.04 (2019) [MP3|320 Kbps] <House, Progressive House, Minimal, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11th Dimension - Beat Goes On (Tom Novy Remix) 6:15
+02. 1st Place - Feel The Groove (Delighters & Mark Grande Remix) 4:35
+03. Kit Mason - Big Suze (Tony Waller Remix) 5:46
+04. Graeme Vass - Craze (Carl Shawn Remix) 6:34(   Читать дальше...   )Жанр: House, Progressive House, Minimal, TechHouseПродолжительность: 02:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90F0B4161BF4A868A6B89BC954501F7AE7F2C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298679   (601760) от 28.04.2019
+
+Журнал | Дарья. Биография №5 (2019) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -622,28 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298827   (601609) от 29.04.2019
+###  Публикация: 1298544   (601759) от 28.04.2019
 
-Формула 1. Сезон 2019. 4-й Этап. Гран-при Азербайджана. Гонка (28.04.2019) HDTV [H.264/1080i-LQ]
+VA - Milchbar Seaside Season 11 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
 
->>Спорт и активный отдых
->>Формула 1
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 апреля 2019 года, воскресенье. 15:10 МСК
-70-й сезон Формулы-1 2019 года
-4-й Этап. Гран-при Азербайджана. Баку (Азербайджан)
-Гонка(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:56:51
+01. Blank & Jones - Sweet Spot (Original Mix) 3:38
+02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
+03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
+04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6196856A2D67DD2DB991959D7276AED57B0473F5
+magnet:?xt=urn:btih:1CD1335C4CD99558721988CFA1821534845A2728
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,27 +557,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298720   (601608) от 29.04.2019
+###  Публикация: 1298635   (601758) от 28.04.2019
 
-Формула 1. Сезон 2019. Этап 04. Гран-при Азербайджана. Гонка (28.04.2019) HDTVRip
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №2 (февраль 2019) [PDF]
 
->>Спорт и активный отдых
->>Формула 1
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Азербайджана. Гонка (51 круг, 306.049 км)
-Арена: Городская трасса Баку (Баку, Азербайджан)
-28 апреля 2019 года, воскресенье. 15:10 МСКТелекомпания: Матч АренаЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:56:57
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52A690AC4E052A84274D303916B275269D3DC7DF
+magnet:?xt=urn:btih:2191E5E10C8E5444EE23546836DE6F490D5C48D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,24 +583,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298996   (601607) от 29.04.2019
+###  Публикация: 1298577   (601757) от 28.04.2019
 
-Painstatic - The Unknown (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
+Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Proximity
-2. Triggering The Youth
-3. The Guiding
-4. Pain Song(   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:42:05
+01. Overture [6:01]
+02. Tenderly [7:22]
+03. Night and Day [5:38]
+04. Sweet Georgia Brown [4:38](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FBDFE5992263BE27E9F4CFFDB9728376968D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298634   (601756) от 28.04.2019
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №1 (январь 2019) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED4CE5355B8D35EEB5965BFFC3A9E64A1C93406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298560   (601755) от 28.04.2019
+
+DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bonnie Clyde, The Big-Bull-Hen Of The Women's Prison (6:37)
+2. Deerslayer (5:26)
+3. From The Estate Of John Denver (6:59)
+4. In San Francisco Bay (4:07)(   Читать дальше...   )Жанр: Folk, Americana, Gothic CountryПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298678   (601754) от 28.04.2019
+
+Журнал | Тайны СССР №8 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CF0FF2F531B00CA3AAECECAC8B4CDF82F30AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298578   (601753) от 28.04.2019
+
+Чудо техники с Сергеем Малозёмовым (28.04.2019) SATRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы до упада: могут ли зажигательные фламенко, зумба или танец живота заменить скучную беговую дорожку в фитнес-зале - выяснят в воскресенье утром в программе "Чудо техники". Из рубрики "За что такие деньги?" зрители узнают, правда ли, что только дорогое мыло может увлажнять кожу, защищать её и не пересушивать, а дешёвое содержит лишь щелочь. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:23
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,90 @@
+###  Публикация: 1799149   (66540) от 25.05.2025
+
+Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Edition [WavPack|Lossless|image + .cue] <Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Towards the Utopia
+02. The Reason We Fight
+03. Lost in the Darkness
+04. Finally, It Comes!(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1714F28F60C40BB8CC7C614963060FC201F62C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802284   (66083) от 15.06.2025
+
+Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, Compilation, Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sabbrabells (1983)
+02 Dog Fight Ep (1985)
+03 Sailing on the Revenge (1986)
+04 Live! (1986)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 07:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D680676158FB82EDE0605E78F45EE79BAA9D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805309   (65486) от 05.07.2025
+
+Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon [00:03:51]
+02. Sanguine Covenant [00:03:48]
+03. Vesperal Salvation [00:05:24]
+04. Umbral Exorcism [00:04:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCBDC4F547C0E9391BC95744F519C5E728469CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562227   (54690) от 01.06.2024
 
 Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Nu Metal>

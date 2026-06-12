@@ -1,3 +1,56 @@
+###  Публикация: 953530   (348825) от 04.11.2015
+
+Проекты - VideoHive - Social Network [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для представления аккаунтов бренда в социальных сетях.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3F4BA706B0832090A8025002CFE4AAC1C25B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838362   (348740) от 06.11.2014
+
+VideoHive - TV Broadcast News Packages - 7968363 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект новостейФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19C266F9ADEC3C2F0A0A07068CCA022C06AC52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329990   (347536) от 07.10.2019
 
 VideoHive - Destruction Zone (Broadcast Pack) - 3156299 [AEP]
@@ -628,61 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B58D1807F4DFCC54F2ECBDA398257D7F996AE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331065   (334526) от 13.10.2019
-
-VideoHive - Travel Agency Promo Lets Go - 24203742 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Travel Agency Promo Lets Go - это профессионально разработанный и анимированный шаблон After Effects, который вы можете использовать для продвижения и рекламы своих туристических агентств или туроператоров.
-Произведите впечатление на вашу аудиторию с помощью этого веселого, быстрого и динамично анимированного шаблона AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C20ED4F26E071FE49EA05737826F89114F2241D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331120   (334402) от 13.10.2019
-
-VideoHive - Newspaper Titles, Urban Typography Slideshow - 8861193 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведите впечатление на вашу аудиторию стильной и динамичной анимацией пакета "Newspaper Titles, Urban Typography Slideshow".
-Идеально подходят для демонстрации портфлио, новостных тизеров, и пр.
-3 проекта включены: Dynamic Dubstep Slides , Extended Abstract Showcase , Intro Opener.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82B32B94AD44F5438E53334612A7C566DCDBE61
 ```
 
 https://mybot314.ru/tekegram_catalog/

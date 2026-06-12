@@ -1,3 +1,61 @@
+###  Публикация: 1176144   (374344) от 20.10.2017
+
+Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinball Playboy (5:30)
+02. Little Girls & Ladies (3:42)
+03. Comin' To Getcha (4:25)
+04. Olympiad '84 (3:54)(   Читать дальше...   )Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415820   (374176) от 13.10.2020
+
+Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый австрийский композитор и аранжировщик Кристиан Колоновиц относится к числу самых заметных музыкантов, формировавших ландшафт европейской поп-сцены в 70-х-80-х годах XX века. Работал с такими звёздами как Chilly, Boney M., Eruption , Scorpions, Tiger Lillies, Jose Carreras, Wolfgang Ambros, Ludwig Hirsch, Einstein, Black Jack, Joy и многими другими.Список альбомов:
+1976 - Life Is Just A Carnival
+1982 - Christian Kolonovits
+1984 - Erbsünde Für Fortgeschrittene(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950026   (372581) от 25.10.2015
 
 Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
@@ -717,64 +775,6 @@ VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952230   (358822) от 31.10.2015
-
-Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Race Of Life
-02. Trials Of A Modern Man
-03. Sucker
-04. Episode(   Читать дальше...   )Жанр: Classic Pop RockПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EA5E19D20BDBEB53B379E33F613B762022393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255951   (358746) от 20.10.2018
-
-Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis
-02. Lost In Your Light (feat. Miguel)
-03. Hotter Than Hell
-04. Be The One(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F778DB12BF5C4311D48FC91FF02CB1C90D5F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

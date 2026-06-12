@@ -1,3 +1,32 @@
+###  Публикация: 222010   (609412) от 27.07.2010
+
+Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adiemus (Adiemus I - 1999 Version) (3:57)
+02. Pie Jesu (Requiem) (4:33)
+03. Hymn Before Action (The Armed Man) (2:38)
+04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148497   (603412) от 07.07.2017
 
 Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
@@ -204,6 +233,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369274   (524997) от 03.08.2011
+
+Maurice Ohana - Tombeau de Claude Debussy (1998) [APE|Lossless] <instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_524997.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:49] 01.  Ohana Tombeau de Claude Debussy Hommage
+[02:13] 02.  Ohana Tombeau de Claude Debussy Soleils
+[03:31] 03.  Ohana Tombeau de Claude Debussy Ballade de la Grande Guerre
+[05:31] 04.  Ohana Tombeau de Claude Debussy Autres Soleils
+[02:14] 05.  Ohana Tombeau de Claude Debussy Miroir endormi
+[04:37] 06.  Ohana Tombeau de Claude Debussy Rose des Vents
+[03:29] 07.  Ohana Tombeau de Claude Debussy Envoi
+[15:51] 08.  Ohana Silenciaire
+[04:28] 09.  Ohana Chiffres de Clavecin Contrepoint-Dechant-Choral
+[03:31] 10.  Ohana Chiffres de Clavecin Deflagration-Passacaille-Chaos d'accords(   Читать дальше...   )1998Жанр: instrumentalПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1423A1187C432C19DC33E6850D030DA002E5B7DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536187   (515361) от 17.08.2012
 
 Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
@@ -356,6 +420,41 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 08. Puccini - La Boheme: Non Sono in Vena [04:10]
 09. Mikis Theodorakis Duolaijisi - Delicate Dawn [02:58]
 10. Mighty Echoes Quartet - Under the Boardwalk [03:26](   Читать дальше...   )Жанр: High-End Audiophile Test ( Pop, Rock, Classical, Jazz Compilations )Продолжительность: 01:08:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384328   (480882) от 07.09.2011
+
+Can Atilla - 1453 Sultanlar Askina (2006) [APE|Lossless] <ambient, new age, turkish>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480882.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:09] 01. Once Gunes Tutuldu
+[04:45] 02. 1453 - Fetih
+[05:29] 03. Constantinopole
+[05:22] 04. Bogazici Ruyalari
+[04:57] 05. Yeni Hayat
+[04:48] 06. Gulbahar
+[05:01] 07. Rumeli Hisari'nin Yapilisi
+[03:30] 08. Zeynep Hatun'un Gizli Aski
+[04:50] 09. Kahramanlarin Hikayesi
+[03:23] 10. Bellini Portreyi Yaparken(   Читать дальше...   )2006Жанр: ambient, new age, turkishПродолжительность: 01:05:25
 
 ## Скачать торент
 ```bash
@@ -684,105 +783,6 @@ VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564122   (402794) от 23.10.2012
-
-Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Elena [03:49]
-02. Maria-La-O [03:27]
-03. La Mer [05:10]
-04. Concierto De Aranjuez [04:33]
-05. One Note Samba [03:54]
-06. Amapola [04:00]
-07. Besame Mucho [04:23]
-08. The Girl From Ipanema [04:25]
-09. It's Now Or Never [03:45]
-10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564144   (402789) от 23.10.2012
-
-Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Te Quiero Dijiste [02:22]
-02. Angelitos Negros [03:34]
-03. Maria Elena [03:08]
-04. Beguin The Beguine [03:42]
-05. Cuando Sali De Cuba [02:53]
-06. Cielito Lindo [02:38]
-07. Amapola [02:28]
-08. La Flor De La Canela [03:37]
-09. Guadalajara [02:33]
-10. My Way [03:06](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257239   (345182) от 26.10.2018
-
-Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasm 05:53
-02. Oyarsa (ft. Timbre) 06:52
-03. Aurora 02:49
-04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

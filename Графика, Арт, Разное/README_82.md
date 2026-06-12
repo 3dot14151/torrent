@@ -1,3 +1,29 @@
+###  Публикация: 533600   (519795) от 13.08.2012
+
+Sci Fi Art. Ships and Mechs [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sci Fi Art. Ships and Mechs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF5ED766EBD1102380EE8235B80BB1A6629DE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534014   (519753) от 13.08.2012
 
 [Wallpapers] Тема "Assasins Сreed III"
@@ -173,6 +199,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9986E9BC211077C144680543C231D2AD0B7E5560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241628   (519196) от 18.08.2018
+
+Обои - Desktop Wallpapers Full HD. Part (263) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_519196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731D48B86E0453C2924FFFE9BD7FCD924DED5ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EE3046C84966AD2FF5CAB2F2525A1F62F4FA242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929730   (517301) от 21.08.2015
-
-Обои - 3D wallpapers 19 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тематику  3DФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A793DEEEA4D904D011E2EEEEF2E7F13889F78C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929478   (517193) от 21.08.2015
-
-Аватарки - Аватарки 90x90 [JPG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517193.jpg" />
-</div>
-
-
-###  Подробнее
-
-АватаркиФормат: JPGРазрешение файлов: 90x90
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150DEB081BB013621CEAE03C11A478F8B10C292D
 ```
 
 https://mybot314.ru/tekegram_catalog/

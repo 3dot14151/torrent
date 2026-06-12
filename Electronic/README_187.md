@@ -1,3 +1,148 @@
+###  Публикация: 1529703   (732577) от 07.02.2022
+
+Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Indian Dance (Original Mix) (7:41)
+02. Christmas Choir (Original Mix) (5:42)
+03. From Depth To The Sky (Original Mix) (5:18)
+04. New Magic Place (Original Mix) (7:23)(   Читать дальше...   )Жанр: Chillwave, Ambient, DowntempoПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B3281280C8D24A950CE7CE55F2ADF3F3D62279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529708   (732571) от 07.02.2022
+
+Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnosis Of Happiness (6:20)
+02. Plutonius (2:37)
+03. Love Of Life (5:22)
+04. Free Flight (7:03)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529709   (732559) от 07.02.2022
+
+Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайны жизни (7:59)
+02. Небесный работник (5:55)
+03. В лунном свете (3:56)
+04. Двигаясь по звёздам (5:31)(   Читать дальше...   )Жанр: Ambient, ChillwaveПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DD9581086A7B225375D44E41E4D461ACB24F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529502   (732530) от 07.02.2022
+
+Lazy Hammock - Discography 23 Releases (2008-2022) [MP3|320 Kbps] <Chillout, Lounge, Easy Listening, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732530.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - Island Lover
+2010 - Lost In Dreams (Relax & Chillout Edition)
+2011 - The Prophet
+2012 - Rise With You (EP)(   Читать дальше...   )Жанр: Chillout, Lounge, Easy Listening, Downtempo, Deep House, Lounge Jazz, Trip-Hop, Nu Soul, Spoken Word, AmbientПродолжительность: 15:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109E7EDBD439ACDCC7446C27C10AE57CA87F4A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127410   (732163) от 21.04.2017
+
+VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ToShuk - Amentia (Original Mix) (6:55)
+02. Andrei Pavlov - Elysium (Original Mix) (7:08)
+03. Hesham Watany - Twisted Thoughts (Original Mix) (5:59)
+04. Gabriel Volt - Night Mode (Original Mix) (7:07)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 05:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3794ECACF701D8F2D317562A5A0FBC878ED500E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283888   (732144) от 18.02.2019
 
 autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Electronic, Dark Jazz>
@@ -600,149 +745,6 @@ Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC80C42F8ED3D84EDD4EB33F989DA5EA50BBE95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283936   (731027) от 19.02.2019
-
-VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Più - Let's Begin (Intro)
-02. Mario Più & Matteo Marini - The Other Side I (Original Mix)
-03. Mario Più - Intollerance (Original Mix)
-04. Mario Più & Matteo Marini - Sabres of Hell (Original Mix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E24A4E32FDC0BBF5023DE5B504D1DF1C896C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284090   (731025) от 19.02.2019
-
-VA - Abora Chillout: Best Of 2018 (Mixed by Johannes Fischer & Ori Uplift) (2019) [MP3|320 Kbps] <Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno - It's Your Day (Orchestral Mix)
-02. Johannes Fischer - Early Morning (Piano Version)
-03. Tycoos, Sandro Mireno - A Place Where Love Is Born (Orchestral Mix)
-04. Syntouch, Spins - Desolation (Orchestral Mix)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E66DFCE35442B90001DB70E77A2709F6AF664C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021959   (730987) от 31.05.2016
-
-VA - Deep Vibes - Ibiza (2016) [MP3|320 кб/с] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassara - Shadow Show [05:44]
-02. Milk & Sugar - Heat (African Day)Жанр: Deep HouseПродолжительность: 05:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073C2A08273DC0ACA4532E957F37D75EE46F7F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127690   (730600) от 22.04.2017
-
-VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Bryder - Kenobi (Original Mix)  5:15
-02.  DJ Swindali - Clouds (Original Mix)  3:30
-03.  Van de Like - To Your Heart (Original Mix)  4:17
-04.  Max Freegrant feat. Brandon Hills - Sometimes We Need To Forget (Silva Remix)  7:58(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73298A453E73498039AA73388981173D76D7FD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127683   (730443) от 22.04.2017
-
-VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Foxt - Pulsar (Original Mix)  7:05
-02.  Leoo Eco - Flying Away (Original Mix)  6:24
-03.  Platunoff - Global Connection (Phase Difference Remix)  6:28
-04.  Yearzwalker - The Night (Original Mix)  4:59(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

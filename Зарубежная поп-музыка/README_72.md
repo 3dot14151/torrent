@@ -1,3 +1,95 @@
+###  Публикация: 586716   (226142) от 09.12.2012
+
+Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый двойной альбом Адриано Челентано, запись концерта проходившего 8-9 октября в Вероне, маэстро дополнил его еще девятью отличными студийными композициями в виде бонуса...1. Solo da un quarto d'ora (5:45)
+ 2. Io sono un uomo libero (5:48)
+ 3. Quel casinha (Il ragazzo della via Gluck) (4:28)
+ 4. 24.000 baci (2:19)
+ 5. Nata per me - Remix (2:58)
+ 6. Dormi amore (5:31)
+ 7. Tir (4:29)
+ 8. Per sempre (5:10)
+ 9. Gelosia (4:31)Жанр: PopПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965368   (225640) от 14.12.2015
+
+VA - Hot Parade Winter 2016 (2015) [MP3|320 кб/с] <Dance, House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. Janieck Devy - Reality (2:3)
+02. Charlie Puth feat. Meghan Trainor - Marvin Gaye (3:04)
+03. Jess Glynne - Don\'t Be So Hard On Yourself (3:29)
+04. Robin Schulz feat. Francesco Yates - Sugar (3:3)(   Читать дальше...   )Жанр: Dance, House, PopПродолжительность: 2:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1B07708B38D272F171E716096A5E272FA8D5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341987   (225339) от 01.12.2019
+
+Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225339.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-CLUB MIX:
+01. Oh Tweak To Me (03:22)
+02. Luv 91 (04:22)
+03. You Got To (05:03)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 04:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268701   (225154) от 12.12.2018
 
 VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Video [MP3|320 Kbps] <Pop, Euro-Disco, Latin, Euro-House>
@@ -658,99 +750,6 @@ Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084281   (220836) от 18.12.2016
-
-VA - ZYX Italo Disco [New Generation 7'' Collection] (2016) [MP3|320 Kbps] <Synthpop, New Wave, Retro-Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220836.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. D. White Feat. Soulya Id - Devil's Plan 03:54
-02. Dario Silver - Back Tonight 03:37
-03. Savage - Save Me 04:12(   Читать дальше...   )Жанр: Synthpop, New Wave, Retro-SoulПродолжительность: 02:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4954054A562998534342B892B6DA67C66A844F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586961   (220762) от 11.12.2012
-
-Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994) [MP3|320 кб/с]<Pop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Stay Together (5:17)
- 2. What's Love Got To Do With It (3:46)
- 3. Better Be Good To Me (5:10)
- 4. Private Dancer (7:11)
- 5. I Can't Stand The Rain (3:43)
- 6. Help (4:30)
- 7. We Don't Need Another Hero (Thunderdome) (4:15)
- 8. Typical Male (4:15)
- 9. What You Get Is What You See (4:27)
- 10. Paradise Is Here (5:29)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BD959B68E06B01E766A179BBD63F410A3E1466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966184   (220497) от 17.12.2015
-
-Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одна на миллион
-02. Не больно
-03. Забыть тебя
-04. Ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C959E1AD67F21C785DD8C6BE2C4F3CF31D29EA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

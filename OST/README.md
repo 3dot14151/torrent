@@ -1,33 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1867233   (1066774) от 24.04.2026
-
-VA - Король и Шут. Навсегда (2026) [MP3|320 Kbps] <Punk Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066774.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Андрей Князев/Алексей Горшенёв/КняZz - Лес (OST «Король и Шут. Навсегда»)
-2. Андрей Князев - Ром (OST «Король и Шут. Навсегда»)
-3. Король и Шут - Фокусник (OST «Король и Шут. Навсегда»)
-4. Король и Шут - Отражение (OST «Король и Шут. Навсегда»)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77475A3BEDF68AD9037AD369873BFF069E4E40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866507   (1066304) от 21.04.2026
 
 Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
@@ -86,35 +57,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865939   (1065446) от 18.04.2026
-
-VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065446.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
-2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
-3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
-4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853569   (1056800) от 13.02.2026
 
 VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
@@ -137,35 +79,6 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285F4C25F512B88584A5077ABDD077754BA837DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -760,6 +673,93 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356058   (980540) от 29.01.2020
+
+Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Darkwave>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West of Arkham (03:52)
+02. The Gardners (04:02)
+03. Contact (04:57)
+04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CA784237E2D3AEDA543F285DE71233F4FC53AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356269   (980515) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356229   (980356) от 29.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

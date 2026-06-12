@@ -1,3 +1,119 @@
+###  Публикация: 1281522   (750010) от 09.02.2019
+
+Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol'itude (Concerto) (11:01)
+ 02. Leaves In The Wind (Concerto) (9:30)
+ 03. Beethoven's Silence (Concerto) (9:54)
+ 04. Nights Of Silk And Tears (Concerto) (10:10)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7ECC697C43058CAA94B02BD778348B7F50A7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281347   (749916) от 09.02.2019
+
+Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749916.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:24] 1 - Formation
+[2:38] 2 - Infected
+[2:49] 3 - Octane Test
+[2:19] 4 - The Wheel of Fire(   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6ED2BF7CEC719E101810F9828730A2CC38D6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216592   (749422) от 31.03.2018
+
+Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never change 2:30
+02. Wander 5:20
+03. Skyfall 4:48
+04. Inside 4:15(   Читать дальше...   )Жанр: Ambient, Chill Out, DowntempoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66078CB839089A74D7E10BB896E69734E34030F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216784   (747839) от 01.04.2018
+
+VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massini - Enae Volare Mezzo (4:24)
+02. Mary McDowell - Only Be One (3:53)
+03. Emerald Singers - Song of Tears (4:01)
+04. Tranceparence - Return to Innocence (4:01)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 03:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F540F085FD2DDACFA72775C4469DA33AF3B6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020083   (746900) от 25.05.2016
 
 2002 - Land of forever (1998) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Relax>
@@ -627,122 +743,6 @@ VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C4448CA511E2A22D4B57C6FAC4C0A9B6F37A09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282843   (741163) от 15.02.2019
-
-Birds of Chicago - Love in Wartime (2018) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro:Now/Sunlight (01:03)
-02. Never Go Back (02:33)
-03. Love in Wartime (05:50)
-04. Travelers (04:40)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777384B586929D974785FAFF869FF7FEDADE3953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282891   (741159) от 15.02.2019
-
-Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maale Mani (07:37)
-02. Dokhtare Irooni (06:44)
-03. Naaz Nakon (07:10)
-04. Ghahro Ashti (06:08)(   Читать дальше...   )Жанр: World MusicПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760B8A921B42EC1D123298886FB7508660F0A28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127146   (740905) от 20.04.2017
-
-Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubaton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sone
-02 - La Campana
-03 - Le Gustan Los Artistas
-04 - Yo Te Ensene(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B13901CCB37BEECC02E077CE5CB497ECF0BAB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127150   (740903) от 20.04.2017
-
-Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Castellano
-02 - Como Me Da La Gana (Hip Hop)
-03 - Quien Eres Tu
-04 - La Silicona(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B364A7DA6215B6EFE8DD6C9C2B80908BA2EE4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

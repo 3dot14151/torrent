@@ -1,210 +1,22 @@
-###  Публикация: 1850771   (1054710) от 29.01.2026
+###  Публикация: 1851616   (1055246) от 03.02.2026
 
-Сын в отца / Каков отец, таков и сын / Soshite chichi ni naru / Like Father, Like Son (2013) BDRip [H.264] [AVO]
+Чип Хьюен | AI-инженерия. Построение приложений с использованием базовых моделей (2026) [PDF]
 
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный архитектор Рёта, его молодая жена и 6-летний сын кажутся идеальной семьёй. Но герой теряет все жизненные ориентиры в тот день, когда узнаёт, что в роддоме, где родился его сын, перепутали младенцев. Мальчик, которого Рёта с женой воспитывали, им не родной, а их собственный ребёнок растёт в другой семье...Производство: Япония / Amuse, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу КорээдаАктеры: Масахару Фукуяма, Мачико Оно, Ёко Маки, Джан Фубуки, Рири Фрэнки, Шоген Хванг, Арата Иура, Кирин Кики, Дзюн Кунимура, Мегуми МорисакиПеревод: авторский (Юрий Сербин), любительский одноголосый (D.I.M.)Язык озвучки: русский, японскийСубтитры: русские (Murasaki, Kotobastia-Yaguarundi), английскиеПродолжительность: 02:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CFA02095DB7A6C483187EF9049CF63F7C1CB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850777   (1054709) от 12.02.2026
-
-Под землёй / Yeralti (2026) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) AlisaDirilis, DeziDenizi (обновляемая)
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь отомстить за свою семью, мужчина попадает в тюрьму и присоединяется к опасному картелю. Спустя годы он узнаёт, что женщина, которую он любит, вышла замуж за близкого ему человека, что приводит к напряженному конфликту между верностью, любовью и выживанием.Производство: Турция / MedyapimЖанр: драмаРежиссер: Мурат ОзтюркАктеры: Дениз Джан Акташ, Деврим Озкан, Ураз Кайгыларолу, Эмир Бендерлиоглу, Мехмет Иилмаз Ак, Сумейе Айдоган, Бурак Севинч, Экин Мерт Даймаз, Хакан Челеби, Нилай Эрдонмез и др.Перевод: Двуголосый любительский (AlisaDirilis, DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE2A88D1A387B298C5ADBAFE5918475112E2CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850776   (1054708) от 29.01.2026
-
-Станислав Лем | Рассказ Пиркса (2026) [MP3, ReadMic]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывалому космонавту Пирксу есть, что рассказать, хватит на целый сборник необычных историй. Как-то раз, в одном из рейсов, во время которого надо было собрать космический металлолом (остовы старых ракет) и доставить на Землю, корабль Пиркса по недосмотру экипажа попадает в галактический рой, пролетавший из глубин Космоса через Солнечную систему. К счастью, рой не (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AE4ECE9A5945F7E708923DE3AD9A56C2F6B935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850765   (1054707) от 29.01.2026
-
-GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Space>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Space (6:22)
-02. The Dreams of Morpheus (5:10)
-03. Infinity (5:32)
-04. Dreamer (5:16)(   Читать дальше...   )Жанр: Chillout, Lounge, SpaceПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA1A08BF7383C0E1E5D7887FAF3A5C388D3AC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850764   (1054706) от 29.01.2026
-
-GARRISON (Игорь Савосин) - Atmospheric (2026) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Location (4:12)
-02. Atomic Pulse (5:55)
-03. Deep Sleep (4:09)
-04. Atmospheric (5:06)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F085BA099F385B54BA2CDA1EFBAD34FD390C58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850782   (1054705) от 29.01.2026
-
-Шаман / Shaman (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья миссионеров — Кэндис с мужем и сыном — живёт в небольшой коммуне у подножия эквадорского вулкана. Женщина старается во всём быть примером для новообращённых верующих и с нетерпением ждёт первого причастия сына. Но накануне большого события парень по неосторожности заходит в запретную пещеру, и в него вселяется злой дух. Кэндис уверена, что в этом виноват местный (   Читать дальше...   )Производство: Эквадор, США / Night Tree, Epopeya Films, Macumba FilmsЖанр: ужасыРежиссер: Антонио НегреАктеры: Дэниэл Гиллис, Сара Каннинг, Джетт Клайн, Кури Фуэрес, Алехандро Фахардо, Матильда Лагос, Мерси Лема, Пинту Фуэрес, Сегундо Фуэрес, Дилан ТакуриПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF97C5B973E108B5B1A035496C3FFD096636EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850784   (1054704) от 29.01.2026
-
-Шаман / Shaman (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья миссионеров — Кэндис с мужем и сыном — живёт в небольшой коммуне у подножия эквадорского вулкана. Женщина старается во всём быть примером для новообращённых верующих и с нетерпением ждёт первого причастия сына. Но накануне большого события парень по неосторожности заходит в запретную пещеру, и в него вселяется злой дух. Кэндис уверена, что в этом виноват местный (   Читать дальше...   )Производство: Эквадор, США / Night Tree, Epopeya Films, Macumba FilmsЖанр: ужасыРежиссер: Антонио НегреАктеры: Дэниэл Гиллис, Сара Каннинг, Джетт Клайн, Кури Фуэрес, Алехандро Фахардо, Матильда Лагос, Мерси Лема, Пинту Фуэрес, Сегундо Фуэрес, Дилан ТакуриПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D74E6132295B7A3FC9E8C26951B0035C672B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850775   (1054703) от 29.01.2026
-
-Кибердеревня (2023) WEBRip [AV1/1080p] [10-bit] (сезон 1, серии 1-10 из 10)
-
->>Отечественные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: приключения, фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (full, SDH)Продолжительность: ~00:30:00 серия
+Базовые модели открыли путь множеству новых сценариев применения AI, одновременно снизив входной порог для создания продуктов на основе искусственного интеллекта. Так AI из тайного учения превратился в мощный инструмент разработки, доступный каждому — даже тем, у кого еще нет опыта работы с ним. В этом практическом руководстве Чип Хьюен рассказывает об AI-инженерии (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E50DE474EC6BE295B85B294D5A4610F99776D1BE
+magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,26 +24,399 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850785   (1054702) от 29.01.2026
+###  Публикация: 1851615   (1055245) от 03.02.2026
 
-Проекты - VideoHive - Dark Cinematic Grunge Intro | Criminal Opener - 61507703 [AEP]
+Ronald Mak | Software Design for Python Programmers. Principles and patterns (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Software Design for Python Programmers shows you how to level up from writing Python code to designing Python applications. Following intuitive “before” and “after” examples of improved code, you’ll learn to plan and execute Python applications effectively and avoid bugs associated with unmanaged state, poorly-formed classes, inflexible functions, and more.
+
+Great (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Object-Oriented Design, Python ProgrammingЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851602   (1055244) от 03.02.2026
+
+Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055244.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book teaches you how to incorporate Kafka into enterprise applications. This book stays above the code-level details, focusing instead on how to use Kafka to achieve your technical and business goals.
+
+Architects across industries are turning to Kafka for its unparalleled speed, reliability, and scalability. In this book, author Katya Gorshkova lays out how (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Databases & Big Data, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851601   (1055243) от 03.02.2026
+
+Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055243.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Should we use Kubernetes?” This unique guide condenses 15 years of deployment experience to help answer that very question. It teaches you sustainable deployment practices you can use with any programming language and nearly any kind of modern app. You’ll create portable and containerized applications that can move across deployment options and cloud providers and (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851613   (1055242) от 03.02.2026
+
+Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Are you struggling to manage and make sense of the vast streams of data flowing into your organization? In today's data-driven world, the ability to effectively unify and organize disparate data sources is not just an advantage—it's a necessity. The challenge lies in navigating the complexities of data diversity, volume, and regulatory demands, which can overwhelm (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851607   (1055241) от 03.02.2026
+
+Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with OpenTelemetry and AIOps. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Become an expert in implementing observability methods for legacy technologies and discover how to use AIOps and OpenTelemetry to analyze root causes and solve problems in banking and telecommunications. Through this book, you will engage with issues that occur in kernels, networks, CPU, and IO by developing skills to handle traces and logs, as well as Profiles (eBPF) (   Читать дальше...   )Жанр: Unix Operating System, Software Development, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CD3CB4BE59A8B334A28C46EF67A7D4F2631FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851605   (1055240) от 03.02.2026
+
+Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation and Provisioning (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055240.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Terraform for Developers" provides a comprehensive guide to mastering infrastructure as code with Terraform, intended for both beginners and experienced practitioners. The book starts by introducing foundational Terraform concepts like its architecture, setup on various cloud platforms, and the syntax of its configuration language HCL. This grounds the (   Читать дальше...   )Жанр: Computer Reengineering, Software Testing, Software Design & EngineeringЯзык: АнглийскийИздательство: GitforGitsФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7101211B053C075424F6C0586AF727F1C2B4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851738   (1055239) от 03.02.2026
+
+Haken - Fauna (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taurus 4:49
+02. Nightingale 7:25
+03. The Alphabet Of Me 5:34
+04. Sempiternal Beings 8:24(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6EFB5B82429223AF9F0EB30A94927FE2E8C9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851675   (1055236) от 03.02.2026
+
+Therion - Con Orquesta (Live in Mexico) (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood Of Kingu
+02. The Ruler Of Tamag
+03. The Birth Of Venus Illegitima
+04. Tuonela(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33EEB93AB5AB036BDE2C41C711629B3CF0463F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851599   (1055235) от 03.02.2026
+
+Scott Tilley | Systems Analysis & Design. 13th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discover a practical, streamlined approach to systems development that focuses on the latest developments with Tilley's SYSTEMS ANALYSIS AND DESIGN, 13th Edition, and MindTap digital resources. Real examples clearly demonstrate both traditional and emerging approaches to systems analysis and design, including object-oriented and agile methods. You also study emerging (   Читать дальше...   )Жанр: Management Information Systems, Computer ScienceЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15D64BF29E6613ACFBE4A94079D4491890FDA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851588   (1055234) от 03.02.2026
+
+Fabrizio Espindola | The Godot Shaders Bible [2 книги] (2025-2026) [PDF] [EN, ES]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Designed for both absolute beginners and seasoned developers, this in-progress project aims to deliver 300 pages on shaders — from the ground up — with no prior experience required. You'll learn the fundamentals of Godot’s shader language, master essential math concepts, and gain a clear understanding of rendering pipelines in a beginner-friendly manner. You’ll progress (   Читать дальше...   )Жанр: Компьютерная литература, ШейдерыЯзык: Английский, ИспанскийИздательство: Jettelly PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0523D7D478251D9CE19A5A87BD223997EAA3DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851740   (1055233) от 03.02.2026
+
+Маг-целитель: Новый старт | Kaifuku Jutsushi no Yarinaoshi | Redo of Healer [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055233.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья» авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: Япония / Студия TNKЖанр: Тёмное фэнтези, приключения, драма, эротикаРежиссер: Асаока ТакуяЯзык озвучки: Русский (ТО Дубляжная, Beloved (AniLibria), AniDUB, Fronda Studio, SHIZA Project, Amazing Dubbing, AniStar, Youmiteru); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA96135FDF8256F133905DA2DF1F8725D6A4073D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851742   (1055232) от 03.02.2026
+
+Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055232.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом тактическом шутере-головоломке Вам предстоит отправиться в смертельное путешествие во тьму, найти траекторию для единственной пули и жестоко отомстить зловещему культу, который разрушил вашу жизнь. Пылающая гневом ДЕВУШКА ведет одиночную войну против КУЛЬТА, уничтожая сектанта за сектантом, выпуская пулю за пулей, чтобы добраться до своей истинной цели: ЛИДЕРА. (   Читать дальше...   )Тип издания: RepackРазработчик: René RotherЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB98AF78F367367C8CE80DB708BC854E1ED62B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851739   (1055231) от 03.02.2026
+
+Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055231.jpg" />
+</div>
+
+
+###  Подробнее
+
+После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B9D32B15CB134BEE284ABFC92573AC593C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851671   (1055230) от 08.02.2026
+
+Adobe Photoshop 2026 27.3.0.13 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2026 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE035078B509AAB2A7B8E86C5E87104BC533050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851746   (1055229) от 03.02.2026
+
+Проекты - VideoHive - Sport Player Intro - 61571893 [AEP]
 
 >>Проекты
->>Презентации (проекты)
+>>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мрачный кинематографический гранж-шаблон для After Effects.
-Идеально подходит для криминальных заставок, драматических вступительных роликов, мрачных промо-роликов, трейлеров, документальных фильмов и видеороликов в стиле триллера.Формат: AEP
+Поднимите свои видеопроекты на новый уровень с помощью Sport Player Intro — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6AA27298E1896481D80D7C0E707C24D4DF11F7B
+magnet:?xt=urn:btih:F3744E4106FC7E6383CDC6BBDF3B5BAA870F6426
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +424,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850786   (1054701) от 29.01.2026
+###  Публикация: 1851743   (1055228) от 03.02.2026
 
-Экшены - Envato - High-End Smooth Skin Retouch Photoshop Action - M2NFL4P [ATN]
+Неспокойной ночи / Nightman (2023) BDRip [H.264/1080p]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Быстро и невероятно просто в использовании. Продвинутая техника безупречной ретуши и смягчения кожи в Photoshop! Сэкономьте часы работы с этим экшеном. Экшен предоставляет вам хорошо организованный и структурированный файл. Экшен отлично работает на Mac и ПК. Экшен для Photoshop «Сглаживание кожи» улучшает красоту ваших фотографий, смягчая кожу и сохраняя ее красивую (   Читать дальше...   )Формат: ATN
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Ирландия / Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасы, триллерРежиссер: Мелани ДеллойАктеры: Зара Дэвлин, Марк Хубермэн, Маив Леонард, Gary Murphy, Оуэн Даффи, Энтони Моррис, Кэролайн Доннелли, Paul Ward, Тесс Брайант, Áine Ní LaoghaireПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1788DCFD938191E2F7CB0523A59B9DF4BD737312
+magnet:?xt=urn:btih:BFE0205827B602C4B1E8C5ECAF694B703C01AD71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,28 +450,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850787   (1054700) от 29.01.2026
+###  Публикация: 1851744   (1055227) от 03.02.2026
 
-Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+Неспокойной ночи / Nightman (2023) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1:
-01. Bird Of Prey
-02. The Park
-03. Time To Live(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:20:45
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Ирландия / Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасы, триллерРежиссер: Мелани ДеллойАктеры: Зара Дэвлин, Марк Хубермэн, Маив Леонард, Gary Murphy, Оуэн Даффи, Энтони Моррис, Кэролайн Доннелли, Paul Ward, Тесс Брайант, Áine Ní LaoghaireПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
+magnet:?xt=urn:btih:FE79DA1C60129FB40465627029F42A3F746FE28B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,27 +476,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850613   (1054699) от 29.01.2026
+###  Публикация: 1851737   (1055226) от 03.02.2026
 
-Мёртвая Вера - 2 Albums (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <black-metal, death-metal, doom-metal>
+Папуля / Daddio (2023) BDRip [H.264/720]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2025 - Запечатлённый дьявол
-2026 - Не ври мне, что всё будет хорошоЖанр: black-metal, death-metal, doom-metalПродолжительность: 2 CD, 01:08:23
+Случайный разговор, завязавшийся между пассажиром и водителем такси по пути из аэропорта, внезапно оказывается необычайно важным. Теперь многое в жизни видится им в другом свете. Оба понимают, что такие встречи происходят не просто так.Производство: США / Creative Artists Agency (CAA), Projected Picture Works, Rhea Films (II), TeaTime PicturesЖанр: драмаРежиссер: Кристи ХоллАктеры: Дакота Джонсон, Шон Пенн, Маркос Антонио Гонсалес, Зола Ллойд, Шеннон ГэннонПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B44F2BD134987795C014798D7628EF73714D4B5
+magnet:?xt=urn:btih:09B9DCC797183068EA1E762A1EE7DD7766DE8906
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,25 +502,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850537   (1054698) от 29.01.2026
+###  Публикация: 1851735   (1055225) от 03.02.2026
 
-Б.Н. Бессонов (отв. ред.) | Диалектический материализм (1989) [DJVU]
+Папуля / Daddio (2023) BDRip [H.264/1080p]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник, подготовленный кафедрой философии АОН при ЦК КПСС, вобрал в себя современные реалии переживаемого переломного периода. Содержание учебника ориентировано на осознание диалектичности практики перестройки и революционного обновления советского общества. Раскрываются фундаментальные положения диалектико-материалистической философии: материи и сознания, основных (   Читать дальше...   )Жанр: История, науковедение, философия, политология, логикаИздательство: МысльФормат: DJVUКачество: Обработанный скан
+Случайный разговор, завязавшийся между пассажиром и водителем такси по пути из аэропорта, внезапно оказывается необычайно важным. Теперь многое в жизни видится им в другом свете. Оба понимают, что такие встречи происходят не просто так.Производство: США / Creative Artists Agency (CAA), Projected Picture Works, Rhea Films (II), TeaTime PicturesЖанр: драмаРежиссер: Кристи ХоллАктеры: Дакота Джонсон, Шон Пенн, Маркос Антонио Гонсалес, Зола Ллойд, Шеннон ГэннонПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213F77DBE4BF99FE21C6F781E934F711B0BD81A0
+magnet:?xt=urn:btih:060D6AE345FB94155DE0849AB3367ECAF90D5621
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +528,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850532   (1054697) от 29.01.2026
+###  Публикация: 1851724   (1055224) от 03.02.2026
 
-И.И. Адабашев | От камня до мозга (1968) [DJVU]
+Слепой Шерлок / Blind Sherlock (2026) WEB-DLRip [H.264] (сезон 1, серии 1-6 из 6) RuDub
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге И. И. Адабашев рассказывает о проблеме вечности высокоразвитой материи, проблеме «пределов» развития человечества в пространстве и во времени. Вы узнаете о величайших достижениях науки и техники, о развитии биологии и проблеме народонаселения, о сказочных богатствах нашей планеты и о грандиозной силе человеческого разума, который в состоянии подчинить (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: МысльФормат: DJVUКачество: Обработанный скан
+Обладая исключительным слухом, слепой Роман Мертенс получает работу своей мечты в местном полицейском подразделении по прослушиванию телефонных разговоров - работу, которая оказывается гораздо опаснее, чем он предполагал.Производство: Нидерланды / Studio TF1, Netflix StudiosЖанр: драмаРежиссер: Йост ВейнантАктеры: Bart Kelchtermans, Франк Ламмерс, Чарли Дагелет, Сигрид Тен Нейпел, Пьер Бокма, Синтия Абма, Aysegül Karaca, Рейн Хоффман, Denzel Goudmijn, Элайн Тен КэмпПеревод: Многоголосый (RuDub)Язык озвучки: РусскийСубтитры: Датские (Forced, Full, SDH), английскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE16C730BE51971F19916C78EAB7DE01D8BF5EE6
+magnet:?xt=urn:btih:F56ED70B89B40D08BC79E6190333E4A0E70EBC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850535   (1054696) от 29.01.2026
+###  Публикация: 1851717   (1055223) от 09.02.2026
 
-И.И. Резвицкий | Личность. Индивидуальность. Общество [Проблема индивидуализации и ее соц.-филос. смысл] (1984) [DJVU]
+Слепой Шерлок / Blind Sherlock (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) RuDub
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что такое человеческая индивидуальность? Как строить свою жизнь, чтобы с наибольшей полнотой реализовать себя? Какую роль играет индивидуализация, индивидуальный подход в социальном познании и управлении, в воспитании личности? Отвечая на эти мало разработанные в философской науке вопросы, автор книги — доктор философских наук, профессор И. И. Резвицкий — освещает (   Читать дальше...   )Жанр: История, политология, философия, психология, социологияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+Обладая исключительным слухом, слепой Роман Мертенс получает работу своей мечты в местном полицейском подразделении по прослушиванию телефонных разговоров - работу, которая оказывается гораздо опаснее, чем он предполагал.Производство: Нидерланды / Studio TF1, Netflix StudiosЖанр: драмаРежиссер: Йост ВейнантАктеры: Bart Kelchtermans, Франк Ламмерс, Чарли Дагелет, Сигрид Тен Нейпел, Пьер Бокма, Синтия Абма, Aysegül Karaca, Рейн Хоффман, Denzel Goudmijn, Элайн Тен КэмпПеревод: Многоголосый (RuDub)Язык озвучки: Русский, датскийСубтитры: Датские (Forced, Full, SDH), английскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1196B53C84EDF43206E98B6B83C265EA1966694C
+magnet:?xt=urn:btih:75A256390AC1F7E47EB90AE37B85B50881656807
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +580,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850529   (1054695) от 29.01.2026
+###  Публикация: 1851731   (1055222) от 03.02.2026
 
-Интернет-Журнал | Домашняя лаборатория №1 (январь 2026) [DJVU]
+Мексиканские дипломаты (1932) WEBRip [H.264/1080p]
 
->>Журналы
->>Научно-популярные журналы
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Интернет-изданиеФормат: DJVUКачество: OCR
+Сатира на буржуазно-нациналистическое марионеточное государство дашнаков, стоявших у власти в Аремии в мае 1918 — сентябре 1920 годов.
+ Дашнакское «правительство» во главе с премьер-министром, заботясь о своем шатком престиже, просит империалистические державы направить в Армению дипломатических представителей западных держав. Но никто что-то не торопится лично поддержать (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: комедия, сатирический кинопамфлет, немое киноРежиссер: Левон Калантар, Амаси МартиросянАктеры: Амвросий Хачанян, Арам Амирбекян, Грачья Нерсисян, М. Линевич, Армен Хасан-Джаланян, Христофор Абрамян, Дж. Чахирян, Л. Дайреджян, Р. Григорян, Сурен КочарянСубтитры: русские интертитрыПродолжительность: 00:56:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:202053E778DCC48BF0C1F8BAFAA8BB28332BAECD
+magnet:?xt=urn:btih:12DEDCDB752CD048B73161CD41A9148788AC63A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,27 +607,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850525   (1054694) от 29.01.2026
+###  Публикация: 1851745   (1055221) от 05.02.2026
 
-А.Г. Маслова | Гуманизм атеизма (1981) [DJVU]
+Горничная  / The Housemaid (2025) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [EN / RU, EN Sub]
 
->>Разное (категория книг)
->>Публицистика
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наши идеологические противники, стремясь опорочить научный атеизм, обвиняют его в том, что он якобы обесценивает духовную, нравственную жизнь человека, лишает людей надежды на вечное существование, а следовательно, антигуманен по своему существу.
-
-В работе кандидата философских наук А. Г. Масловой показывается несостоятельность этих утверждений, раскрывается гуманистическая (   Читать дальше...   )Жанр: История, политология, публицистикаИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+Сюжет основан на романе-бестселлере Фриды МакФадден. Молодая девушка Милли пытается сбежать от своего прошлого и устраивается горничной в богатый дом семьи Винчестер. Кажется, это шанс начать всё заново… но скоро она понимает, что под роскошью скрываются тёмные тайны, опасные игры и психологические манипуляции. А её комната в мансарде запирается снаружи. Чем ближе (   Читать дальше...   )Производство: США / Lionsgate, Hidden Pictures, Pretty Dangerous PicturesЖанр: Триллер, драмаРежиссер: Пол ФигАктеры: Сидни Суини, Брэндон Скленар, Аманда Сайфред, Микеле Морроне, Элизабет Перкинс, Меган Фергюсон, Эллен Тамаки, Indiana Elle, Алайна Сердженер, Арабелла Оливия КларкПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 02:11:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56D5DB61A4B40A47331BB7149CB842F861654541
+magnet:?xt=urn:btih:87BDF68333CC202158205EC66C47ABE195F770FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +633,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850521   (1054693) от 29.01.2026
+###  Публикация: 1851747   (1055220) от 05.02.2026
 
-И.Н. Сиземская | Человек и труд: условия гармонии и развития [Социально-философский анализ общественного производства] (1981) [DJVU]
+Горничная / The Housemaid (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге кандидата философских наук И. Н. Сиземской рассматриваются актуальные вопросы развития труда и человека в условиях социализма. Как соотносятся между собой экономическая эффективность и гуманистическая ценность производственной деятельности, экономический рост и духовный прогресс общества, профессионализм и свободная самодеятельность? Автор показывает, что (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+Сюжет основан на романе-бестселлере Фриды МакФадден. Молодая девушка Милли пытается сбежать от своего прошлого и устраивается горничной в богатый дом семьи Винчестер. Кажется, это шанс начать всё заново… но скоро она понимает, что под роскошью скрываются тёмные тайны, опасные игры и психологические манипуляции. А её комната в мансарде запирается снаружи. Чем ближе (   Читать дальше...   )Производство: США / Lionsgate, Hidden Pictures, Pretty Dangerous PicturesЖанр: Триллер, драмаРежиссер: Пол ФигАктеры: Сидни Суини, Брэндон Скленар, Аманда Сайфред, Микеле Морроне, Элизабет Перкинс, Меган Фергюсон, Эллен Тамаки, Indiana Elle, Алайна Сердженер, Арабелла Оливия КларкПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 02:11:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC32F8168DECA976075A7CE39AED68CD6EE6B50E
+magnet:?xt=urn:btih:5397C7EAB4E659362AE8B64227A7EE89800F6C21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,217 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850514   (1054692) от 29.01.2026
+###  Публикация: 1851617   (1055219) от 03.02.2026
 
-Майкл Коннелли | Собрание сочинений [41 книга] (1992-2025) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Коннелли — один из самых влиятельных мастеров современного детективного жанра, бывший криминальный репортёр, чей опыт придаёт его произведениям документальную достоверность. Центральное место в его творчестве занимают несколько культовых персонажей: детектив Гарри Босх, адвокат Микки Холлер и журналист Джек Макэвой.
-	Уникальная особенность литературной вселенной (   Читать дальше...   )Жанр: Детектив, триллерЯзык: русскийИздательство: РазличныеФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719CD11266620EDC3D3BA900AA100EA18D760297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850792   (1054691) от 30.01.2026
-
-GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice and Flame (5:38)
-02. Magical Story (5:29)
-03. Energy Flow (5:04)
-04. Pandora (5:49)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26248F895433B3E6C965D9038BC0B40390EE14E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850794   (1054690) от 30.01.2026
-
-GARRISON (Игорь Савосин) - Sound Vibrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World of Light (4:57)
-02. Stratosphere (3:37)
-03. Valhalla (3:59)
-04. A Journey into the World of Dreams (6:00)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E662AC5021A9CEA96E8139F4B6D573788B1DB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850789   (1054689) от 30.01.2026
-
-GARRISON (Игорь Савосин) - The Best (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World of Light (4:57)
-02. Ice and Flame (5:38)
-03. Electronic Positive (4:32)
-04. Atmosphere (5:00)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DBD016F72EB70F8AC0408D751855BA45A17209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850809   (1054688) от 30.01.2026
-
-R-Studio Network / Technician 9.5 Build 191686 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054688.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Studio - основанная на новейшей уникальной технологии анализа информации на носителе и обработки данных, R-STUDIO является наиболее исчерпывающим программным решением из доступных на рынке утилит восстановления для файловых систем NTFS, NTFS5, ReFS, FAT12/16/32, exFAT, HFS/HFS+ (Macintosh), Little and Big Endian variants of UFS1/UFS2 (FreeBSD/OpenBSD/NetBSD/Solaris) (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1659DD86880A6AA2984FE10E91B7F697DB29D973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850814   (1054687) от 30.01.2026
-
-MediaHuman YouTube Downloader 3.9.18 (2901) (x64) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054687.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DB2E74D0E239CC59A6CE7F779ED77BDA7278B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850133   (1054686) от 30.01.2026
-
-В Европе запустили социальную сеть W в качестве альтернативы соцсети Х
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Европе начала работу новая социальная платформа W, позиционируемая как альтернатива соцсети X и другим сервисам, находящимся под контролем американских компаний. Проект ориентирован прежде всего на европейскую аудиторию и создавался как ответ на обеспокоенность властей и общественных организаций распространением «системной дезинформации» и утратой контроля над (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850820   (1054685) от 30.01.2026
-
-Пленник / El cautivo / The Captive (2025) WEB-DLRip [H.264] [MVO]
+Сорванец / Urchin (2025) WEB-DLRip [H.264] [MVO]
 
 >>Горячие новинки
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раненый испанский моряк Мигель де Сервантес попадает в плен к османским корсарам. Его жизнь висит на волоске, но в темнице он открывает силу, дарующую надежду — искусство рассказывать истории. Его рассказы пленяют слушателей и очаровывают даже грозного бея Алжира Хасана. Тайная связь между ними вызывает подозрения и усиливает напряжение в городе. А Сервантес, исполненный (   Читать дальше...   )Производство: Испания, Италия / Mod Producciones, Himenóptero, Misent Producciones S.L., Rai Cinema, EurimagesЖанр: триллер, драма, приключения, биография, историяРежиссер: Алехандро АменабарАктеры: Хулио Пенья Фернандес, Алессандро Борги, Мигель Рельян, Фернандо Техеро, Луис Кальехо, Хосе Мануэль Ривера, Роберто Аламо, Альберт Саласар, Хуанма Муниагуррия, Сесар СарачуПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русский, испанскийСубтитры: русские (forced, full - AI), испанскиеПродолжительность: 02:13:53
+Лондонский бродяга Майк пытается перестать заниматься саморазрушением и наладить свою жизнь.Производство: Великобритания, США / BBC Films, BFI, Devisio PicturesЖанр: драмаРежиссер: Харрис ДикинсонАктеры: Фрэнк Диллэйн, Харрис Дикинсон, Меган Нортэм, Карина Химчук, Шона Мари, Амр Вакед, Buckso Dhillon-Woolley, Лэйси Бонд, Майкл Колган, Рут УилсонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:39:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:661EA71CACC6BF87B0D79781BDE4BD8FA2F795CF
+magnet:?xt=urn:btih:A95AB0C14F6D3DA641F2A319E72F98C82D4765EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

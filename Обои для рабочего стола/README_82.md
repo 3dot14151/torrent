@@ -1,3 +1,29 @@
+###  Публикация: 597023   (130905) от 31.12.2012
+
+New year wallpapers 2013 (31.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99E6B9F0AE2D446A165E7382BA1AE31FDFAD879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596973   (130901) от 31.12.2012
 
 Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
@@ -704,36 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470157   (97134) от 18.03.2012
-
-[Wallpapers] Japan Wallpapers Pack 1
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97134.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Japan Wallpapers Pack 1
-Название: Japan Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
 ```
 
 https://mybot314.ru/tekegram_catalog/

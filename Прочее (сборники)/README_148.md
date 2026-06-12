@@ -1,3 +1,201 @@
+###  Публикация: 1631948   (254507) от 08.05.2023
+
+VA - Remix NNM 6 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andro, ELMAN, TONI, MONA - Зари (Ramirez Remix) (2:29)
+02. Кравц, Гио Пика - Где прошла ты (Monamour x Slim x Shmelev Remix) (2:44)
+03. DJ Smash, Марина Кравец - Ты со мной или нет (DJ Andersen Radio Mix).mp3 (2:19)
+04. MONA, Баста - Ты так мне необходим (Hang Mos & Kolya Dark Remix) (2:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E936AF3BF04CB6977FD03D847DE2C5DB8168DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632237   (254449) от 11.05.2023
+
+VA - Shazam Хит-парад Top 100 Russia 09.05.2023 (2023) [MP3|256-320 Kbps] <Pop, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. xxxmanera - Скажи мне кто ты [0:01:58]
+002. Kravz & Гио ПиКа - Где прошла ты [0:02:48]
+003. NLO - Танцы [0:02:58]
+004. Heuss L'enfoiré - Moulaga (feat. JUL) [0:02:59](   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D5D4A844C168A8FA412272F6E472197680DC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498609   (254344) от 19.05.2012
+
+VA - Зарубежные Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will.I.Am feat. Eva Simons - This Is Love
+02. James Egbert, Kill Paradise - Halo (Original Mix)
+03. Goddess Andreea - My Lover Boy (Remix)
+04. Lana Del Rey - Dangerous Girl
+05. Rick Ross feat. Usher - Touch 'N You
+06. Garbage - Control
+07. Craig David feat. Kano - Where's Your Love
+08. Owl City - Shooting Star
+09. Paloma Faith - Picking Up The Pieces
+10. Topakabana feat. Jonathan La Locura - Damela Belen (Radio Edit)2012Жанр: PopПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EB64AF90FAB72408CC3B45BA2ED40FD2590E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498442   (254304) от 19.05.2012
+
+VA - Avto Club Май Vol.6 (2012) [MP3|320 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Solveig - The Night Out (Lenno Remix)
+02. Ronski Speed feat. Stine Grove - Run To The Sunlight (Original Mix)
+03. Blaxxsoul - Funkystar (When I Think Of You) (Rob Hayes Cuban Mix)
+04. Katharine McPhee - Touch Me (Jody Den Broeder Radio Edit)
+05. Paradisco feat. Giorgio - Kokoloko (Radio Edit)
+06. Right Said Fred - Sxaholic (Klubjumpers Edit)
+07. Инфинити - Я Так Скучаю (GMmusic Remix)
+08. Ben La Pompe, Pedro De Cabra - La Soupe Aux Choux (Dan Winter Radio Edit)
+09. Giuseppe Ottaviani feat. Betsie Larkin - Toys (Radio Mix)
+10. Michael Mind Project feat. Francisco - Power That Let's Us Be2012Жанр: ClubПродолжительность: 04:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C42B065996B6A853588672714E3E6734E8566F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498231   (253989) от 18.05.2012
+
+VA - Сборник тяжёлых песен 9 (2012) [MP3|128-320 кб/с]<Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labyrinthe - Body Chute
+02. Whitechapel - Hate Creation
+03. Bermuda - Parasitic
+04. The Vile Impurity - Annihilate This Destination
+05. Bloodshed By Reality - Obliterated Centuries
+06. Tear Out The Heart - Game Changer
+07. Devastated - Drip. Drip.
+08. Destruction of a Rose - Empty Throne, Empty Crown
+09. Oceano - Inhuman Affliction
+10. With Ink Instead Of Blood - Part II: Genocidal Preconceptions(   Читать дальше...   )2012Жанр: MetalПродолжительность: 05:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11ABD909811B190D81B47B49E47CAB3688534C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498218   (253933) от 18.05.2012
+
+VA - Клубные Новинки Vol.80 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Sonar feat. Jan Johnston - Freedom (Poison Pro Remix)
+02. Audien - Keep This Memory (Original Mix)
+03. Paloma Faith - Picking Up The Pieces (Moto Blanco Club Mix)
+04. Estiva feat. Tania Zygar - Death Of Me (Original Mix)
+05. Dub Effect Feat Mix Usha - Perfect Love (Original Mix)
+06. Arty - Zara (Original Mix)
+07. Alex Gaudino ft Crystal Waters - Destination Calabria (Josh Feedblack Remix)
+08. Marzio Dance - Evolution Drum (Club Mix)
+09. Grube Hovsepian feat. Tiffany Johnston - Venom (Original Mix)
+10. 2Elements, Martin Sola - Heat It Up (Original Version)2012Жанр: Club, DanceПродолжительность: 04:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11FB274270E0323C65EBBEF3F6C5CADB56049BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498173   (253929) от 18.05.2012
 
 VA - Клубный драйвовый музон (2012) [MP3|224-256 кб/с]<Dance, Club>
@@ -691,192 +889,6 @@ VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495826   (252831) от 14.05.2012
-
-VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume 1 (1995)
-
-01. The Exciters - Do-Wah Diddy
-02. Betty Everett - You're No Good
-03. Shirley Ellis - The Name Game
-04. The Cookies - Chains
-05. Carole King - It Might As Well Rain Until September
-06. Earl-Jean - I'm Into Something Good
-07. Skeeter Davis - I Can't Stay Mad At You
-08. Little Peggy March - I Wish I Were A Princess(   Читать дальше...   )1995-2008Жанр: Pop, Rock & Roll, OldiesПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836189   (252472) от 09.11.2025
-
-VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JANNA RAY - Стреляй (03:08)
- 002. 2xA & GSG - Sky is Falling (01:55)
- 003. 5 Seconds of Summer - Boyband (02:57)
- 004. Alessi Rose - Get Around (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CDBA824F5996D8859F9B24AA0C637170517143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495708   (252378) от 13.05.2012
-
-VA - Time Life - Sounds of the Eighties (1980-1989)(10CD) [MP3|~245 кб/с (V0)]<pop, rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roxette - The Look (3:57)
-2. Tears for Fears - Sowing the Seeds of Love (5:46)
-3. Love and Rockets - So Alive (4:14)
-4. Martika - Toy Soldiers (4:40)
-5. Bad English - When I See You Smile (4:20)
-6. Donny Osmond - Soldier of Love (3:52)
-7. Michael Damian - Rock On (3:23)
-8. Debbie Gibson - Lost in Your Eyes (3:35)
-9. Sheriff - When I'm With You (3:56)
-10. Tone-Loc - Funky Cold Medina (4:13)(   Читать дальше...   )1980-1989Жанр: pop, rockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D03E5FA795974414F64780E8B5FE0CE450EAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327541   (252118) от 21.05.2023
-
-VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macelleria Mobile di Mezzanotte - In the Still of the Night
-02. Macelleria Mobile di Mezzanott - Just You and I
-03. Macelleria Mobile di Mezzanott - Kennedism
-04. Macelleria Mobile di Mezzanotte - The Big Nowhere(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 10:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4721EEAE7EE725C62E7AD6F1D29CD4284135B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637018   (251834) от 02.06.2023
-
-VA - Не спи за баранкой 7 (Музыка в машину) (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream Soda - Никаких больше вечеринок (Lykov Spring Edit 2023) (5:42)
-02. Surmillo, Arsen Ibragimov feat. Niana - Soul of Stars (Anton Ishutin remix) (7:04)
-03. Dj GRU - BY JAY Blue (Remix Tech House) (6:02)
-04. Era - Ameno (Alex Jungle Remix) (5:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9041514F72B14E3A19AB75868DA43DBE48008B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835708   (251685) от 07.11.2025
-
-VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оксана Мажулис - На линии сердца (03:01)
- 002. 8d.va feat. Monty Fray & Gaida - Раздень меня (03:09)
- 003. 10AGE - Вот уж вечер. Роса ft. С. Есенин (03:56)
- 004. 21 Keyz & Gasteza - Паранойя (03:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF70B5E88906CE07E855E39F43DDCD228F7C89F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

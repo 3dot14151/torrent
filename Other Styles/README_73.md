@@ -1,3 +1,116 @@
+###  Публикация: 509231   (676055) от 11.06.2012
+
+Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136439   (674901) от 22.05.2017
+
+NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Take A Minute (3:43)
+02 - Sunshine Good Times (3:26)
+03 - Make Each Moment Last (3:47)
+04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030318   (674414) от 30.06.2016
+
+J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674414.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Romans 6.4-6) (0:45)
+2. Theme, Pt. 1 (6:24)
+3. A New Day, Pt. 2 (4:12)
+4. Joy Comes in the Morning, Pt. 3 (6:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290765   (674334) от 22.03.2019
+
+Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. October in the Railroad Earth (04:58)
+02. Small Engine Repair (03:50)
+03. T-Bone Steak and Spanish Wine (05:16)
+04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290860   (674332) от 22.03.2019
 
 Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Piano>
@@ -647,122 +760,6 @@ The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3297D3068045655BD050DAE90619B0BFB159129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291669   (668804) от 25.03.2019
-
-Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love You Too Late
-02. All Of It
-03. Somebody's Been Drinkin'
-04. Sounded Good Last Night(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291586   (668668) от 25.03.2019
-
-Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, Contra Dance>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lörincreve, Amari Szi (3:20)
-02. Tirontanita, Anaconda (3:51)
-03. La Bruja (3:38)
-04. Koga Ke Odish Mome Za Voda, Üsküdar (4:54)(   Читать дальше...   )Жанр: Folk, Contra DanceПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031229   (668647) от 03.07.2016
-
-Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Promise of Love [00:05:08]
-02. Energy [00:09:03]
-03. Pure [00:05:51]
-04. Seraphim (The Spirits of Love) [00:07:39](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031371   (668646) от 03.07.2016
-
-VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiance [00:10:20]
-02. Cloud Dancing [00:03:36]
-03. In a New Light [00:06:27]
-04. Sungrass [00:06:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
 ```
 
 https://mybot314.ru/tekegram_catalog/

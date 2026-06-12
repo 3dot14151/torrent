@@ -1,3 +1,32 @@
+###  Публикация: 1779915   (70617) от 15.02.2025
+
+VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umar Keyn & Imazee - A Girl Alone
+02. Dndm & Umar Keyn & Davvi - You Said Forever
+03. Menda - Calmness
+04. Isskoy - Confident(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF9FD49E30229A5B7D134128E0C0A4FAC914FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779818   (70613) от 15.02.2025
 
 Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
@@ -710,35 +739,6 @@ VA - Trance In Motion Vol.388 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF86651B4A9D925211D8DDA20BBD5FAD59691ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804428   (65649) от 29.06.2025
-
-VA - Musical kaleidoscope part 45 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aleksey Boychenko - Way
-02 - Aleksey Boychenko - Hold My Hand
-03 - Era, Music for Soul - Ameno
-04 - Giovanni Marradi - Roggy's Theme(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9DA883715CF62835645097D7618C28FD69D618
 ```
 
 https://mybot314.ru/tekegram_catalog/

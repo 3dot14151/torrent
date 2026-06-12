@@ -1,3 +1,90 @@
+###  Публикация: 1130660   (714425) от 02.05.2017
+
+Aly & Fila - Future Sound Of Egypt 494 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TrancEye & Tuomas J - Immortal (Extended Mix)
+02. Manuel Rocca & Illitheas - Enchanted (Original Mix)
+03. TranzLift vs. Airy - 1989 (AirLab7 Remix)
+04. Susana - Only Summer Knows (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADEB3A709ABB22C1AD4A304CD99502BCAAEC3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025050   (712055) от 11.06.2016
+
+ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aleksave & Maryana Dan - In My Room (Original mix)
+ 02 Optick & Manuel Riva - Close the Deal (Midi Culture Remix)
+ 03 Richard Durand feat. Ellie Lawson - Wide Awake (RoelBeat Remix)
+ 04 Cotry, JazzyFunk, Hot Light, Nikita Silver - Red Roses (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532936   (710943) от 21.02.2022
+
+Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitesquare - Folded Reality
+02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
+03. Felipe Puertes - Niyama
+04. Øostil & U S H N U - Safe (Hunter/Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131755   (707096) от 06.05.2017
 
 VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -657,93 +744,6 @@ VA - Markus Schulz  - Global DJ Broadcast (World Tour London) (2018) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999ADAB199416D9E586133A0059C4B68B56A3AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223868   (669780) от 07.05.2018
-
-VA - Ori Uplift & Phoenix - Uplifting Only 273 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntouch & Spins - Desolation (Intro Mix)
-02. FAN FAVORITE 269: RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
-03. Sandro Mireno - Saffo (EXCLUSIVE PREMIERE)
-04. Factor B feat Cat Martin - White Rooms (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2094C8ADCC3F79EC981C11882EDF05F90F48E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537968   (665459) от 18.03.2022
-
-Klingande - Tomorrowland Friendship Mix (2022-03-17) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dom Dolla ft. Mansionair - Strangers
-02. Soul Speech - Talking About Her (Sonny Fodera Remix)
-03. Will Clarke & Shermanology - Searching
-04. Solardo & House Gospel Choir - Save Me(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D8C3F9CC4161A765687DF06431937CEA98C058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138858   (662412) от 31.05.2017
-
-Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aneesh Gera - Starchaser (Original Mix)
-02. Jerome Isma-Ae & Alastor - Wilde (Extended Mix)
-03. Sunlight Project - Deep Valley ( Original Mix )
-04. Jettan - Sunset (Sicarios Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
 ```
 
 https://mybot314.ru/tekegram_catalog/

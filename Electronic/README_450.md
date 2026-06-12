@@ -1,3 +1,235 @@
+###  Публикация: 1673737   (163303) от 03.11.2023
+
+Siskin - We Are Siskin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always You [4:49]
+02. Fly Away [4:32]
+03. Let Go [5:31]
+04. Deeper Love [5:10](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304C9DA38164334A6360F9281911D8933137BA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673241   (163252) от 03.11.2023
+
+aname (SE) - Beautiful World (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aname - Anywhere (Road Trippin') [4:35]
+02. aname & Lydmor - Someone We Used To Love [3:23]
+03. aname & Bien - Must Be Dreaming [3:54]
+04. aname - Bermondsey Bender [4:04](   Читать дальше...   )Жанр: Vocal House, Melodic House & TechnoПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEAF10D9991AC9648E3E5C9825B9D8DD56BCD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432684   (163080) от 18.12.2020
+
+VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Night for Dreaming (04:32)
+02. Michael Е - After the Storm (05:57)
+03. La Estación Del Mar - A Sax in the City (03:28)
+04. Peter Pearson - Apres Sun (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374637F3C78C0FB918759682C6129E56DFADBCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673701   (163012) от 03.11.2023
+
+Jean-Michel Jarre - Oxymoreworks (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163012.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brutalism Take 2 (5:00)
+2. Epica Extension (4:29)
+3. Brutalism Reprise (4:28)
+4. Epica Take 2 (5:33)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF82FFAF4B6063168047A29F9D675A437FE3ACE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517475   (162975) от 15.12.2021
+
+David Gainsford - The Best Of Lounge: The Blue Lounge (2001) [FLAC|Lossless|tracks + .cue] <Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recline (1:34)
+02. Indicator On (5:41)
+03. Tangent (5:15)
+04. Gold Icon (6:35)(   Читать дальше...   )Жанр: Downtempo, Easy Listening, LoungeПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61603CD3A0E3638D7CFE772DFB75B2D2CB5AC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517481   (162967) от 15.12.2021
+
+Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Romance (4:45)
+02. Find The Best In Time (5:18)
+03. Walk Of The Lion (4:19)
+04. Don't Forget About Me (4:35)(   Читать дальше...   )Жанр: Latin Jazz, LoungeПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A299B0D2592CC8894A375C14EDAD7E4C430280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517479   (162955) от 15.12.2021
+
+VA - The Best Of Lounge: Latino Lounge (2001) [FLAC|Lossless|tracks + .cue] <Latin, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Suerte - Esperanza (4:47)
+02. Lucio De Santos & Toribio - Lagoa Blanco (4:21)
+03. Velasco - Orange Walk (5:52)
+04. Lucio De Santos & Toribio - Remates De Pulgar (4:40)(   Читать дальше...   )Жанр: New Age, Ambient, Latin, LoungeПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A69F791A4C9A4A7C40D015DC16670716C215F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517483   (162946) от 15.12.2021
+
+VA - The Best Of Lounge: Asian Lounge (2001) [FLAC|Lossless|tracks + .cue] <Downtempo, Hindustani, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rajiv Basham Singh - Thousand Mirrors (3:55)
+02. Lin Fu Chan - Unfolding Spirits (6:15)
+03. Michiko Tanaka - Nara (4:44)
+04. Rajiv Basham Singh - Vishnu's Fire (5:13)(   Читать дальше...   )Жанр: Downtempo, Hindustani, LoungeПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC021127C30AD42DDD4B9EE35E7391EB225C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362336   (162934) от 18.12.2020
 
 Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Synthpop, Industrial>
@@ -513,233 +745,6 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA12C30B4A25E65303CBDE4AAF6416969AFB9584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517738   (161580) от 17.12.2021
-
-Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filmic (CRi Remix) (5:06)
- 02. Sun & Moon (ilan Bluestone Remix) (feat. Richard Bedford) (4:41)
- 03. Prelude (Above & Beyond Future Summer Mix) (3:05)
- 04. Love Is Not Enough (Hybrid Minds Remix) (feat. Zoë Johnston) (5:03)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 01:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF66F359D995575B869B25915D58D62FDA9EB083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674017   (161402) от 05.11.2023
-
-Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Popov & Brandon Mignacca - In The Rain (Extended Mix) [5:06]
-02. Alexander Popov & Whiteout - Right Back (Extended Mix) [5:28]
-03. Alexander Popov & Kitone - Fantasy (Extended Mix) [4:15]
-04. Alexander Popov & Heatbeat - VIVALDI (Extended Mix) [4:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CF20A3E1A0C6C1864DD70D84F486F208D01802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674387   (161352) от 05.11.2023
-
-Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666DF7D87DC45BCB7A1933E4246523FB113A2753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674259   (161349) от 05.11.2023
-
-VA - Anjunadeep Explorations 24 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal/Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Tumas - Calling Los Angeles [4:02]
-02. TRU Concept & Romany - Give No More [2:59]
-03. Arina Mur - Together Again [3:21]
-04. Arley & Descend & Julene - Can't Get To You [3:49](   Читать дальше...   )Жанр: Minimal/Tech HouseПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0A6CEF5D7457368DFE7A159C728921C5C361C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673579   (161331) от 05.11.2023
-
-Special D. - You (2023 mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You (2023 mix) (2:17)
-02 You (2023 extended mix) (3:06)Жанр: Euro TranceПродолжительность: 00:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FE805B5992142213CA35B3FDD52FAC2BBDD973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433434   (161267) от 20.12.2020
-
-Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mickey Mouse Strut (7:58)
-02. The Prairie (7:36)
-03. Words Of Wonder (3:30)
-04. Theme From (4:19)(   Читать дальше...   )Производство: Mélodic - 5060168041739Жанр: Ambient, Dark Jazz, Post Rock, Electronic, InstrumentalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA723AD7FA4C2BB0922CC8E5AC2EE15FEC3EB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433456   (161239) от 20.12.2020
-
-The Avalanches - We Will Always Love You (2020) [FLAC|Lossless|tracks + .cue] <Trip Hop, Hip-Hop, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Story (feat. Orono) (1:24)
-02. Song For Barbara Payton (1:41)
-03. We Will Always Love You (2:52)
-04. The Divine Chord (feat. Johnny Marr & MGMT) (3:08)(   Читать дальше...   )Производство: EMI, Modular Recordings, Astralwerks – 0849962Жанр: Trip Hop, Hip-Hop, Experimental, Pop, DowntempoПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726D22EAFA97CCE64C38C39899365A11AD00766C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518181   (161143) от 18.12.2021
-
-VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VER:WEST - Elements Of A New Life
-02. Drumstone - Lost River
-03. Alexander Alar & Korolova ft. Yann Menge - Symphony w/Alexander Alar & Korolova ft. Yann Menge - Symphony (Dub Mix)
-04. Miss Monique & Nahue Sintes ft. Josefina - Don't Come Back(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA615C231FF6EB0150D7388D5597994DAE9FA52
 ```
 
 https://mybot314.ru/tekegram_catalog/

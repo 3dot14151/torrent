@@ -1,3 +1,29 @@
+###  Публикация: 1277775   (774862) от 22.01.2019
+
+Фоны и наложения - Creative Market - Fog overlays - 2441109 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fog overlays - Коллекция реалистичных наложений тумана.Формат: PNGРазрешение файлов: 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8038D72B56C5FE7F707E7D615E9E437517B3984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277958   (774033) от 23.01.2019
 
 Фоны и наложения - Creative Market - Firefly Magical Overlays - 2511545 [PNG]
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9A584D9D95623E29C840EEBF629C3DCD2B6DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284934   (722448) от 25.02.2019
-
-Текстуры - Creativetacos - 50 Free Swirl Textures Collection [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722448.jpg" />
-</div>
-
-
-###  Подробнее
-
-100% Бесплатные текстуры (бесплатно для коммерции и личного пользования).
-Автор: Ruslan MaslenkowФормат: JPGРазрешение файлов: 2560 x 1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1D1012933BD5D6F38896FD88FFC73A1201C5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

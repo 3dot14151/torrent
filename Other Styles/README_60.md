@@ -1,3 +1,119 @@
+###  Публикация: 1022285   (729765) от 01.06.2016
+
+Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever [00:03:39]
+02. Midnight [00:04:29]
+03. Daydream [00:04:38]
+04. Brilliant [00:03:48](   Читать дальше...   )Жанр: New Age, Piano, ViolinПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127928   (729742) от 23.04.2017
+
+VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del pueblo (1996) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osvaldo Pugliese - El Monito | Osvaldo Pugliese
+02. Francisco Fiorentino - Maria
+03. Francisco Rotundo - Sobre El Pucho
+04. Raul Garello - Che, Buenos Aires(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85859FE943FAC20E810CE5352AA43ABE6302E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284400   (728905) от 21.02.2019
+
+Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airmid (04:31)
+02. The Sandshaper (03:59)
+03. Dust & Cloud (04:10)
+04. The Falcon in the Snow (04:32)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283989   (728895) от 21.02.2019
+
+Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (02:11)
+02. The Cop (02:21)
+03. Harry's Ostinato (01:01)
+04. Magnum Force (01:59)(   Читать дальше...   )Жанр: Jazz-Funk, ScoreПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBF24093C8ECC166267A2344BF5E727E12BA571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128231   (728673) от 24.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.16 - Osvaldo Fresedo: El aristocrata (1996) [MP3|192 Kbps] <Tango>
@@ -634,119 +750,6 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023012   (726072) от 04.06.2016
-
-Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squirrel Formation (03:02)
-02. Shredder (03:38)
-03. Tartaruga Brothers (03:00)
-04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023023   (725727) от 04.06.2016
-
-Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Черепашки-ниндзя 2 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squirrel Formation (03:02)
-02. Shredder (03:38)
-03. Tartaruga Brothers (03:00)
-04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122837101E08B08A365D33AB4B527A92A306FE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667829   (725526) от 14.06.2013
-
-Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [APE|Lossless]<New Age, Progressive Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Progressive Rock, Ambient, Art RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218186   (725089) от 08.04.2018
-
-VA - Classical Is Sexy A Rousing Collection Of Homophonic Melodies Vol.1 (2018) [MP3|320 Kbps] <New Age, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Alan Cosmono - Violin Concerto In A Minor 4:27
-02. Trina Marquez - Concerto For Violin in D major op. 61 9:43
-03. Gordon Matsumoto - Brandenburg Concerto 3:24
-04. Lima Musica - Suite In F 3:36(   Читать дальше...   )Жанр: New Age, ClassicalПродолжительность: 02:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB98814C82ADE7344FA842B7E423C97A3AA36CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

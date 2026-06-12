@@ -1,3 +1,119 @@
+###  Публикация: 1362835   (945299) от 26.02.2020
+
+Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945299.jpg" />
+</div>
+
+
+###  Подробнее
+
+|07:45| 01. Hope (Title Theme)
+|02:00| 02. Hope, Forever
+|04:19| 03. Left Adrift (Character Creation)
+|01:07| 04. Phineas Escapes(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95A7E862A005D3D1C8DADF2D203E34DE08100EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983232   (945217) от 05.02.2016
+
+Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Of The Morning (By Juice Newton)
+02. Maximum Effort
+03. Small Disruption
+04. Shoop (By Salt-N-Pepa)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A634E62484CEDB7F2058DB68FA89837E179C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090323   (944765) от 08.01.2017
+
+Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944765.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:17] 01. Moon Signal
+[06:47] 02. Red Widow
+[08:33] 03. Black Dice Maze
+[03:07] 04. Gallows Way(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9388B30B8FFCD95B91A2F758783ED8B4AF0A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090354   (944704) от 08.01.2017
+
+Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944704.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:05] 01. Revolver
+[07:15] 02. Citadel
+[10:27] 03. Deliverance
+[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E62BF7BC3283DB47FB5D94C68A9491F75314601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090444   (944646) от 08.01.2017
 
 Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
@@ -629,122 +745,6 @@ Sarah Harmer - Are You Gone (2020) [FLAC|Lossless|tracks + .cue] <Rock, Pop, Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13101FBB6CCB8A5208C85C4351E59BBB47304B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363867   (939512) от 01.03.2020
-
-Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Reiki>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of Departure (9:57)
-02. Empty Sky (7:45)
-03. Circle of Light (8:21)
-04. Tao of Heaven (13:38)(   Читать дальше...   )Жанр: New Age, Meditative, ReikiПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68771BAF3CDC22297D5DDBA118A12CB8466D99F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984104   (938472) от 09.02.2016
-
-Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning, There Was Nothing (04:08)
-02. The World Was Filled With Violence (01:29)
-03. The End Of All Flesh Is Before Me (02:14)
-04. Sweet Savor (04:27)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1182EC22CF0A589BE156DBFF7B7CF72847A13352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983901   (938232) от 09.02.2016
-
-M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight City (4:04)
-02. By The Kiss (4:03)
-03. On A White Lake, Near A Green Mountain (4:43)
-04. We Own The Sky (5:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59906ECD663AEAE63A82DD23D9057BEDF583B3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363170   (937962) от 02.03.2020
-
-Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937962.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:08| 01. Mortal
-|03:15| 02. Ecce Eric
-|04:12| 03. The Interrogation Scene
-|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A7EE883A40BC2625A803878036C15F9F7A0FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

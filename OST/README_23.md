@@ -1,32 +1,3 @@
-###  Публикация: 1268005   (229768) от 09.12.2018
-
-OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moniker - Makutekahu [2:09]
- 02. Moniker - Ricky Runs [1:46]
- 03. Moniker - Cloak of the Sky [2:58]
- 04. Rima Te Wiata & Julian Dennison - Ricky Baker Birthday Song [0:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424682   (227805) от 17.11.2020
 
 Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
@@ -745,6 +716,35 @@ VA - Хочу замуж (к\ф «Хочу замуж» официальный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665949   (177874) от 06.10.2023
+
+Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prognosis
+02. Henry Hope
+03. Meet Gabriela
+04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 ```
 
 https://mybot314.ru/tekegram_catalog/

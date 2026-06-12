@@ -1,3 +1,90 @@
+###  Публикация: 1335867   (284583) от 04.11.2019
+
+Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mascherata (3:14)
+02. Orfeo Negro (4:34)
+03. Les Feuilles Mortes (4:35)
+04. More (Theme From Mondo Cane) (4:45)(   Читать дальше...   )Жанр: Funk Soul, Disco, ChansonПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F968848C4EB0689F3BB302DF672ECD752FE6783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263981   (284499) от 21.11.2018
+
+VA - NOW That’s What I Call A Party 2019 (2018) [MP3|320 Kbps] <Electropop, Synthpop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss
+02. Sigala - Just Got Paid (feat. French Montana)
+03. Shakira Feat. Wyclef Jean - Hips Don't Lie
+04. Camila Cabello feat. Young Thug - Havana(   Читать дальше...   )Жанр: Electropop, Synthpop, EurodanceПродолжительность: 02:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382DC189E05DC09AB136642FD1E6C2D081D73DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081416   (284454) от 09.12.2016
+
+VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kadebostany - Castle in the Snow (Bentley Grey Remix)
+02. Röyksopp - Here She Comes Again (Dj Antonio Remix)
+03. Lost Frequencies - Reality (feat. Janieck Devy)
+04. Willy William - Ego (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4688AC9BECF58A151F032E961D357072029F8F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964240   (283956) от 10.12.2015
 
 Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
@@ -662,99 +749,6 @@ Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CEC0BC116A6E11FC4C430FF8D020326F6DFE58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273466   (275846) от 21.12.2010
-
-Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Not Time For Revolution                          00:03:49
-02.Out Of The Dark                                      00:03:35
-03.Shake                                                      00:03:38
-04.Der Kommissar 2000                               00:03:45
-05.Mutter, Der Mann Mit Dem Koks Ist Da    00:03:34
-06.Hit Me                                                      00:03:42
-07.Cyberlove                                               00:03:34
-08.Egoist                                                     00:03:08
-09.Naked (Full Frontal Version)                   00:06:02
-10.Matth. XI, 15..                                        00:03:40Жанр: Pop/RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265276   (275205) от 27.11.2018
-
-VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275205.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Morandi - Kalinka
-2. Eldzhey - Rvanie jinsy
-3. Ariana Grande - Breathin(   Читать дальше...   )Жанр: Dance, Pop, R&B, Hip-HopПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265317   (275204) от 27.11.2018
-
-VA - Ministry Of Sound: Heartstrings (2018) 3CD [MP3|320 Kbps] <Pop, Folk, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275204.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Shotgun - George Ezra
-02. I Miss You - Clean Bandit feat. Julia Michaels
-03. Naked - James Arthur(   Читать дальше...   )Жанр: Pop, Folk, Soft Rock, BalladПродолжительность: 03:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

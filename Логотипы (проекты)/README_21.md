@@ -1,3 +1,55 @@
+###  Публикация: 1024896   (713697) от 10.06.2016
+
+Проекты - VideoHive - Fast Smokey Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продемонстрируйте Ваш бренд или сайт при помощи этого быстрого и стильного шаблона с задымленным, красочным визуальным эффектом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F5B540D75A95B4177082D9F323D7A288EFCD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024923   (713571) от 10.06.2016
+
+Проекты - VideoHive - Particle Logo Animation - 336831 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26845416D68875C935C5997E9FE62E81CCE49F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219518   (713138) от 14.04.2018
 
 Проекты - VideoHive - The Runner Logo - 7755406 [AEP]
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:207CDC6C627BECC7FABBFE014B374FF2A0494F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132269   (702472) от 08.05.2017
-
-Проекты - VideoHive - Cards Wall Logo Reveal - 19466436 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа или названия вашей компании. Отлично подойдет для канала YouTybe, Twitter, Facebook и др. социальных сетей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ED5ACA1718B0014966077DAF1CB5C36B780205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132060   (702396) от 08.05.2017
-
-Проекты - VideoHive - Grunge Glitch Logo - 19552310 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации вашего логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2981888E9C97C65541FCF8FD8CE0A50E016951E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1430726   (169970) от 11.12.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [AAC|~330 Kbps] <Chanson; Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я вам мозги не пудрю (2:45)
-02. Штрафные батальоны (2:59)
-03. Жил я с матерью и батей (1:16)
-04. Их восемь, нас двое (2:43)(   Читать дальше...   )Жанр: Chanson; PopПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430812   (169945) от 11.12.2020
-
-Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. butterfly (3:09)
-02. hold it all together (3:02)
-03. i'll be there (2:24)
-04. scary part of me (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6903C0F482C4078DB0E60AD389F683712CF3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430717   (169906) от 11.12.2020
-
-Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [AAC|~329 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой первый срок (2:01)
-02. Татуировка (2:07)
-03. Счётчик щёлкает (2:00)
-04. Я был душой дурного общества (2:10)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39F563738D278A19D9A2347F8A87FDC4C0C8E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430731   (169889) от 11.12.2020
-
-Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [AAC|~328 Kbps] <Chanson, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подумаешь, с женой не очень ладно (1:36)
-02. В пику, а не в черву (2:08)
-03. Попутчик (2:44)
-04. Про соседа-завистника (2:02)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED8023FD1CAC4546A3E965C0205F22D59E9EB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430707   (169880) от 11.12.2020
 
 Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 1] (2020) [AAC|~182 Kbps] <Acoustic, Chanson, Ballad>
@@ -743,6 +627,122 @@ VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F8C748668DE9FA8360DDAA36B1E0B349DE653EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515563   (169717) от 07.12.2021
+
+VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolcut - Please Come Home (Smooth Radio Edit) (4:26)
+02. Jizz Jazz - Just a Friend (Tenderly Mix) (4:19)
+03. Jazz Breezin - Black or White (For Couples to Make Love) (5:17)
+04. Jazzy Brazzy - Touch Me Kiss Me (Instrumental Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06969703090D20368C8B42F636C01C8B1AFDBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515261   (169703) от 07.12.2021
+
+VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamw41ker - Lullaby (2:06)
+02. Openzone Bar - Caribbean Nights (3:45)
+03. T2'n - Ataraxia Rouge (2:14)
+04. Living Room - Wisdom & Freedom (2:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF09F955FDE43276A7ADAA837C606858D4B4EA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515333   (169698) от 07.12.2021
+
+VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofa Groovers - Stop Here (Chill Trip Mix) (2:56)
+02. Influenzer - Lofi Smoke (1:46)
+03. Roleystone, Rebel Angel - First Day (Enigmatic Dubstep Chill Mix) (4:04)
+04. Substrata - High Love (Chillax Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515564   (169697) от 07.12.2021
+
+VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphazz - Stories And Lies (4:04)
+02. Gary Rosenblatt - Nightmoves (Guitarras de Luna Mix) (4:22)
+03. Smooth Jazzerz - Look to the Future (Night Lounge Mix) (4:54)
+04. Redundant Mankind - Alpaca (Chillax Saxy Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0365B3CF50BC88285C2E5A583F9D6C48FCC8C9E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

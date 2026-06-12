@@ -1,3 +1,38 @@
+###  Публикация: 498970   (256011) от 20.05.2012
+
+VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fafaq - 21st Century (06:37)
+02. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix) (06:31)
+03. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (08:28)
+04. Dan Stone - Baltic (Ost & Meyer Remix) (08:28)
+05. John Askew - Bastard (Original Mix) (07:56)
+06. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (08:49)
+07. Miroslav Vrlik - Charisma (Original Mix) (06:51)
+08. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (05:12)
+09. Darren Porter - Daytona (Eight Minus Eight Remix) (07:27)
+10. Andreas Mats - Elate (Mike Danis Remix) (07:50)(   Читать дальше...   )May 2012Жанр: Trance, Vocal TranceПродолжительность: 03:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836936   (255698) от 13.11.2025
 
 Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
@@ -774,35 +809,6 @@ VA - The Best of Trance 48 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B32B4BE5EAB62CA2392D7E76CD4F33EE06FE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448604   (245774) от 18.02.2021
-
-VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка транса это то, что заставляет людей чувствовать эмоции и погружаться в феерическое настроение. Эта музыка наводит на ассоциации об "идеальной" жизни, своеобразной утопии в которую мечтает окунуться каждый из нас.001. Daniel Skyver - As The Clouds Pass
-002. F4t4l3rr0r - Everlasting
-003. Timelab - Youself
-004. Solarstone - Summer Fills The Sky(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F06E97FF6134ECD8AFF58583854099677A2C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

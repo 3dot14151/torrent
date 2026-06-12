@@ -1,3 +1,32 @@
+###  Публикация: 1729452   (53645) от 11.06.2024
+
+Discotron - Last Night A DJ Saved My Life (2017) [FLAC|Lossless|tracks] <Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron – Last Night A DJ Saved My Life (06:35)
+02. Discotron – Last Night A DJ Saved My Life (Audio Jacker remix) (06:05)
+03. Discotron – Last Night A DJ Saved My Life (radio edit) (04:20)
+04. Discotron – Last Night A DJ Saved My Life (Audio Jacker radio edit) (04:02)(   Читать дальше...   )Жанр: Nu-Disco, HouseПродолжительность: 00:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8832AB2742D27B5457D9D5139A7606D3E65E4C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729783   (53502) от 12.06.2024
 
 V.A. - ZYX Italo Disco Spacesynth Collection 10 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
@@ -711,35 +740,6 @@ Mflex Sounds - Flashback Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09A8FD364675F4A5FC38376710DD6C57342395AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763695   (35300) от 03.12.2024
-
-Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline (Space Remix 2) (6:07)
-02. The Blame (5:54)
-03. One side of the truth (Clubbing Time Mix) (feat. Ghost Girl) (7:53)
-04. I Know (7:31)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289F69A993ED33A3D06BF4E11AB353E6730D00EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,148 +1,3 @@
-###  Публикация: 1693833   (121466) от 22.01.2024
-
-VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass,Suzy Duffy - Lucky (4:05)
-02. Glam Sam & His Combo - Yeah, It's Good (4:00)
-03. Michiko - Pieces Of Your Heart (3:38)
-04. Yin & Yang,Tiefblau - Golden Sun (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3497B273E9548EDB53DCD561E8F9C3A93736E07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694486   (120970) от 25.01.2024
-
-VA - Deep Blue Sea, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Akoya
-02. Matt Sour - Nessie
-03. Martin Hiska - Highway
-04. Hölderlin - Lullaby(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87835872A8FAD6183F674DCD6A72795C379230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696156   (119812) от 01.02.2024
-
-V.A. - Buddha-Bar Beach & Love by Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tetouze - Divine Moon
-02. TraBBarT - Children of Ksar
-03. Y.LOH - Te Pido (Haarp Remix)
-04. VS Prjct - Waking Up in Capri(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE72A06427990AABD8A31D4F711EEA4E5D4614B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697554   (118771) от 07.02.2024
-
-VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - All Phased Out (Original Mix) (5:01)
-02. Deeparture - Bleach of the Night (Original Mix) (5:42)
-03. Lounge Groove Avenue - Diamonds (Original Mix) (2:35)
-04. Schwarz & Funk - Drift Away (Original Mix) (5:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8F534C3B5E267E7096F8A3D8DEBCD93707B730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698568   (118255) от 10.02.2024
-
-Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foundations [00:05:56]
-02. Thoughts [00:04:07]
-03. Settle [00:04:09]
-04. Self-Discovery [00:07:28](   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE69D148001D62E1B8C19AAF9FE3004DFD877F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699209   (117977) от 12.02.2024
 
 VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Trap, Other>
@@ -745,6 +600,151 @@ VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5985867FFE56DB9D33580BFB0AF5D1EAB8A588B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711560   (112456) от 30.03.2024
+
+VA - Bar Groove Analog 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allume - Crystal Sea (Original Mix) (4:50)
+02. Monodeluxe - Far Away (Original Mix) (6:21)
+03. Jens Buchert - Cocomotion (Original Mix) (4:31)
+04. Charly McLion, Tina - This Is Not America (Original Mix) (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCE2FE6AD0475FC42794745154AB98FA83539A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712468   (112194) от 02.04.2024
+
+VA - Fiji Golden Sunrise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grec - Smooth Moments (6:19)
+02. Martin Hiska - You're My Thrill (6:21)
+03. Mo'jardo - Midnight in Paris (4:43)
+04. ThE fluiD musics lab. & Ritmo - Jazzfantastic (4:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7D1E94545CAE742C29538F06241694FE2279F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712762   (112133) от 03.04.2024
+
+VA - Essential Chillout & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marciana Vieira Da Silva - Sinto Sua Falta (3:36)
+02. Gamma Orionis - Poetic Moments (4:22)
+03. El Nicoya - Canyamel (4:33)
+04. Breviarium Musicae - Universus (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47838D8EDC7D2DAF32EF221464451EC415CFB0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712755   (112078) от 03.04.2024
+
+VA - A Taste of Chillout, Lounge & Lofi Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helfau Reload - Summer Blossoms (4:21)
+02. Redde Rationem - Kiss And Tell (4:20)
+03. Les Liaisons Dangereuses - On The Edge Of The Night (4:26)
+04. El Nicoya - Frente Al Mar (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34756CF03ED0AB2D9AFC9F81D9E2CD499036496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713179   (111935) от 05.04.2024
+
+Blank & Jones - Milchbar - Seaside Season 16 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mornin'
+02. Coastline (Stardelay Remix)
+03. Freedom Ain't Free (feat. Jpye)
+04. Conexao  (feat. Pepe Link)(   Читать дальше...   )Жанр: Electronic, Downtempo, Chill outПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 ```
 
 https://mybot314.ru/tekegram_catalog/

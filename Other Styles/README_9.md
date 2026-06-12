@@ -1,3 +1,119 @@
+###  Публикация: 1486968   (1003860) от 04.08.2021
+
+Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of Dawn (3:48)
+02. Headed For A Fall (4:09)
+03. Getaway (3:46)
+04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487213   (1003786) от 04.08.2021
+
+Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский Фестиваль в Сан-Ремо - одно из самых ярких событий в мире популярной музыки. В 1967 году исполнилось 17 лет этому музыкальному празднику, на котором за это время прозвучало столько красивых песен и мелодий, которых с лихвой хватило бы на три подобных фестиваля. На этом альбоме Caravelli собрал подборку лучших песен, спетых в Сан-Ремо в последние годы, (   Читать дальше...   )Caravelli At San Remo (1967)
+01. Io Ti Daro Di Piu (Can I Trust You) (2:54)
+02. Le Colline Sono in Fiore (The River) (3:00)
+03. Io Che Non Vivo Senza Te (You Dont Have to Say) (2:45)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2582822A0CB718FB27D3AA3F22787C9DDF904C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349731   (1003775) от 04.01.2020
+
+Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sementes de Esperanca (4:48)
+02. Vaga Lume (4:48)
+03. Brisa de Lavanda (4:04)
+04. Domingo no Parque (4:27)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349992   (1003772) от 04.01.2020
+
+Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental, Experimental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003772.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. intro 	1:12
+2. snow in midsummer 	8:26
+3. wind flower 	05:56
+4. kumoito 	5:32(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBB1224A6EAE170C22B3FFB33359A1260CE57A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349903   (1003730) от 04.01.2020
 
 Кай Метов - Негромко о сокровенном (Инструментальный альбом) (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
@@ -647,146 +763,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598659   (999119) от 07.01.2013
-
-Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from 'The Godfather'
-02. Sleep Walk
-03. Cabaret
-04. Love Theme from 'Blade Runner'
-05. Laura
-06. Love Story
-07. Djamballa
-08. Love me tender
-09. As Time Goes By
-10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598653   (999116) от 07.01.2013
-
-Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) La vie en rose (Schau mich bitte nicht so an) 03:03
-2) I Have A Dream 04:17
-3) Blue Bayou 02:29
-4) Tornero - Non succedera piu 04:52
-5) Save The Last Dance For Me 02:36
-6) You've Lost That Loving Feeling - Unchained Melody 04:01
-7) Bright Eyes 02:45
-8) Soleado (Tranen lugen nicht) 02:09
-9) Hey Jude 04:05
-10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598666   (999103) от 07.01.2013
-
-James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance For Violin And Orchestra No.2 In F Opus 50
-02. Stille Nacht
-03. Air On A G String
-04. Medley: White Christmas / Midnight In December / Jingle Bells
-05. Elvira Madigan
-06. Rosen Aus Dem Suden Opus 388
-07. Impromptu No.2 In A Flat Opus 142
-08. Le Quattro Stagioni Opus 8: Largo
-09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
-10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598573   (999092) от 07.01.2013
-
-Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
-02 Мегаполис музыка Евгений Соколовский
-03 Одинокое сердце музыка Евгений Соколовский
-04 Bolero музыка Maurice Ravel
-05 Вальс музыка Евгений Соколовский
-06 Танец рыцарей
-музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
-сузыка Сергей Рахманинов (Прелюдия Соль минор)
-07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
-08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
 ```
 
 https://mybot314.ru/tekegram_catalog/

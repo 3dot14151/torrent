@@ -1,3 +1,119 @@
+###  Публикация: 1207122   (780856) от 17.02.2018
+
+Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  This Languid Motion (6:05)
+2.  Consider the Moon & Stars (4:25)
+3.  Avalon Nights (3:04)
+4.  A Dream in Tangerine (5:04)(   Читать дальше...   )Жанр: Electronic, New ageПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E473264C99B5DBACB564DF250043A0891E555BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207596   (780391) от 19.02.2018
+
+Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chama De Saudade 4:36
+02. Nos Passos Da Emocao 2:55
+03. Saudade Louca 4:41
+04. Cara E Coragem 4:01(   Читать дальше...   )Жанр: Latin Music, SambaПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FACDD9148A271FB26FE86928AE6AF22A3CC49D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207859   (780245) от 20.02.2018
+
+VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Haiku Project feat. Sara Grabow - Earth (4:41)
+02. Leo Rojas feat. Chantelle Barry - Wolf's Heart (3:25)
+03. Terry Oldfield & Carlos Garo - Orbital (3:57)
+04. The Sound Of Love - My Sweet Dream (4:48)(   Читать дальше...   )Жанр: New ageПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F138DAD248D95D90D3D7C49426A838FD9AACA64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207669   (780242) от 20.02.2018
+
+Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Hear That Song 4:01
+02. The Joke 4:39
+03. Hold Out Your Hand 4:23
+04. The Mother 3:17(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208188   (780097) от 21.02.2018
 
 Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Music [MP3|320 Kbps] <New Age, Ambient>
@@ -629,122 +745,6 @@ Giovanni Marradi (17.04.1952). Он родился в Италии, учился
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E2C18245A9773E46D581F089E1632D2AC675019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210586   (778691) от 03.03.2018
-
-Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue] <New Age, World Music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он родился 4 февраля 1953 г. в семье крестьян. Его настоящее имя — Такахаси Масанори. Весь мир его называет — Kitaro. Не имея музыкального образования, Kitaro учился музыке самостоятельно, и его первым инструментом была гитара. В начале 70-х, после окончания школы, Kitaro постепенно перешёл на клавишные инструменты, а затем освоил флейту, барабаны Taiko и др. Он (   Читать дальше...   )1. The Mist (6:09)
-2. Caravansary (4:51)
-3. Mountain Streams (4:46)
-4. Pray (6:39)(   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6041488440886A888442B0516C5D40D5148F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210393   (778685) от 03.03.2018
-
-Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Songwriter>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Mandala (2017) (Re-Worked and Re-Mastered)	4:57
-02.	Break Through the Rock (Re-Worked and Re-Mastered)	3:37
-03.	No Heart (Re-Worked and Re-Mastered)	3:58
-04.	Digging for Gold (Re-Worked and Re-Mastered)	4:01(   Читать дальше...   )Жанр: Folk, Pop, Singer-SongwriterПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDBBDB59A52081D2575A7895BA79BDD7879C59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210506   (778652) от 03.03.2018
-
-Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always
-02. Our Journey
-03. Together
-04. Our Future(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71956ED16045B99C31B8701BA15C329071C204B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210730   (778559) от 04.03.2018
-
-Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. June Dance 5:01
-02. Summer Dawn 4:34
-03. Chasing Dreams 3:56
-04. Algonquin Trails 5:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A14E350DF82FC9083802EB5D5AEC69580AB8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

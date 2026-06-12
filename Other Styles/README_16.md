@@ -1,3 +1,116 @@
+###  Публикация: 747501   (962438) от 19.01.2014
+
+Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 April
+02 Balloons
+03 Unbridled
+04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978366   (962293) от 24.01.2016
+
+Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love (Jellybean Remix)
+02. The Power Of Love (Instrumental)
+03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978804   (962292) от 24.01.2016
+
+David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Vie en rose
+02. Fascination Waltz
+03. Comptine d'un autre ete (from the motion picture Amelie)
+04. I Will Wait for You(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978825   (962286) от 24.01.2016
+
+VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indian Classical, Samba, Bossa Nova>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gusttavo Lima - Balada (3:25)
+02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Indian Classical, Samba, Bossa Nova, Indie RockПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6225A27D092770652E305C5F921C731E036EB0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978806   (962283) от 24.01.2016
 
 Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
@@ -629,119 +742,6 @@ Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360548   (959446) от 16.02.2020
-
-Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subject Name Here
-02. Taste of Blood
-03. Android Hell
-04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360545   (959404) от 16.02.2020
-
-Portal - Soundtrack (2014) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subject Name Here
-02. Taste of Blood
-03. Android Hell
-04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19905548DF618136E61B5464F589C6B79B0D82CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360597   (959330) от 16.02.2020
-
-Portal 2 - Soundtrack (2011) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Science Is Fun
-02. Concentration Enhancing Menu Initialiser
-03. 9999999
-04. The Courtesy Call(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7540E27B8C7DAA5E5B090A3185BC520D901D601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360591   (959329) от 16.02.2020
-
-Portal 2 - Soundtrack (2011) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE41ECC70E71BB3BD2D62ED1EADAEBB4E22ADAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

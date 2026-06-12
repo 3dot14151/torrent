@@ -1,3 +1,90 @@
+###  Публикация: 1518394   (155913) от 19.12.2021
+
+VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twenty One Pilots - Saturday (2:52)
+02. James Blunt - Love Under Pressure (2:45)
+03. fun. - We Are Young (feat. Janelle Mon+бe) (4:10)
+04. Ali Gatie - It's You (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194132   (155904) от 25.12.2017
+
+Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is... (03:44)
+02. Back & Forth (04:25)
+03. Hot Gold (04:27)
+04. Deep Down Underground (04:33)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DFB35CBDAD89B3CEC6A5FB3922BCE033CDB1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270630   (155806) от 20.12.2018
+
+VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop, Nu-Disco,>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Livin' Joy - Dreamer
+02. Nightcrawlers - Push The Feeling On (Dub Of Doom/Short)
+03. Armand Van Helden - You Don't Know Me Featuring Duane Harden (Radio Edit)(   Читать дальше...   )Жанр: Pop, Experimental, Synthpop, Nu-Disco,Продолжительность: 03:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF84CEEB8481FDF7E42B51AF366344C968E70109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194247   (155805) от 25.12.2017
 
 Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
@@ -658,93 +745,6 @@ VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CDF835F455FB84FB0ED1D3A9404B2B239FD9170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677667   (150552) от 18.11.2023
-
-VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  2 Brothers On The 4th Floor feat. Des'Ray And D-Rock - Come Take My Hand
-02.  Rytmica - Up To The Sky
-03.  Interface - There Are No More Limits
-04.  Erica C. - Voice Of Fortune(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677579   (150551) от 18.11.2023
-
-VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bass Bumpers - Keep On Pushing
-02.  Uc Colours feat. Cool Reg - U Got The Rhythm
-03.  Holetzky - Lato
-04.  Plaza - Wild Is The Night(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1496DE8F155ABFC8F147C92926EB4F67014D5934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677594   (150549) от 18.11.2023
-
-VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Egma - Tell It To My Heart
-02.  Chak - Summer Party
-03.  Fun Factory - I Wanna B With U
-04.  Paradisio - Un Clima Ideal(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4169A66D92628507588FA9101FD99099A6346D
 ```
 
 https://mybot314.ru/tekegram_catalog/

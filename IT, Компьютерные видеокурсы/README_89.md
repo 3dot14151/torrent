@@ -1,89 +1,3 @@
-###  Публикация: 1586815   (193141) от 29.10.2022
-
-Финтех Хаб Банка России | Квантовые технологии для финансовой отрасли (2022) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись лекционной части по программе "Квантовые технологии для финансовой отрасли".
-
-Программа организована Финтех Хабом Банка России совместно с  партнёрами:
-- ключевым игроком на рынке отечественных квантовых технологий Российским квантовым центром;(   Читать дальше...   )Жанр: Научпоп лекцииЯзык озвучки: РусскийПродолжительность: 05:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF7707CA7EF1448B80D47EDAA680CBEE216C8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552979   (193092) от 29.10.2022
-
-Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Become an AWS Network Specialist and pass the AWS Advanced Network Specialty Exam
-(🚨🚨🚨🚨🚨 READ THIS - JULY 2022 Update 🚨🚨🚨🚨🚨 )
-The Network Specialty Exam has been updated to ANS-C01
-🚨You can NO LONGER sit ANS-C00 🚨(   Читать дальше...   )Жанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 38:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587227   (193089) от 29.10.2022
-
-Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete Guide (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193089.jpg" />
-</div>
-
-
-###  Подробнее
-
-GitHub Actions is an extremely popular and fast-growing CI / CD automation service offered by GitHub.
-This course teaches GitHub Actions from the ground up, without any prior GitHub Actions experience assumed or required.
-In order to handle growing development and code complexity and deploy application updates with high frequency, powerful automation platforms and (   Читать дальше...   )Производство: Academind Pro, UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFCD99CE0C43E77A5948D4870AF219B86CA2155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552916   (193064) от 29.10.2022
 
 Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
@@ -711,6 +625,86 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:037E0E72FB35A569567FD5F568BFC8EF33A1B628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660138   (189623) от 12.09.2023
+
+Udemy, Abbass Masri | Mastering Jetpack Compose: Building Dynamic User Interfaces (2023) WEBRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jetpack Compose is a modern and powerful UI toolkit for building Android applications. In this comprehensive course, you will learn how to leverage Jetpack Compose to create dynamic and visually stunning user interfaces (UI) for your Android apps.
+
+Whether you're a beginner or an experienced Android developer, this course will equip you with the skills and knowledge (   Читать дальше...   )Производство: UdemyЖанр: Android, Kotlin, Jetpack, Android Studio, UIЯзык озвучки: АнглийскийПродолжительность: 19:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9B75521F441753427A4E84FCB08CB0912E108A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660216   (189568) от 12.09.2023
+
+Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как эффективно импортировать данные из файлов Excel в ваши проекты. Этот курс познакомит вас с передовыми инструментами разработки, такими как Laravel для обработки серверной части, Inertia для построения гладкого взаимодействия между сервером и клиентом, Vue для создания динамичных пользовательских интерфейсов и Tailwind для создания стильных и отзывчивых (   Читать дальше...   )Производство: Laravelcreative.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11AF28889AF372BC4B49C65B6D2107D0F32012F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660393   (189545) от 12.09.2023
+
+Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет чат (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать мощное и интерактивное веб-приложение для обмена сообщениями в реальном времени. В этом курсе вы освоите использование Laravel 10 для серверной части, Vue 3 и Inertia для построения современного пользовательского интерфейса и создания одностраничных приложений, а также веб-сокетов для обеспечения мгновенной передачи сообщений между пользователями. (   Читать дальше...   )Производство: Laravelcreative.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32533B8F3D90E4CE724BEDF6DF2DC5FF748D8F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

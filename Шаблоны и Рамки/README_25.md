@@ -1,3 +1,29 @@
+###  Публикация: 1074391   (337962) от 19.11.2016
+
+Шаблоны - GraphicRiver - Coffee Shop - Trifold Brochure Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coffee Shop - Trifold Brochure - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3375x2625 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D23FF1D0545FF9D5369EE224FE47AE9D8DE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074374   (337961) от 19.11.2016
 
 Шаблоны - GraphicRiver - Organic food poster / flyer template [PSD]
@@ -649,32 +675,6 @@ Christmas Party - Flyer  - шаблон для Вашего творчества
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C772AF1A47C540822E4E4E119916DB1D19FDEC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075546   (320108) от 22.11.2016
-
-Шаблоны - GraphicRiver - Holiday Party Flyer Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Holiday Party Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2551x3579 и 3579x2551 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52822F9CAF71EE82278B5541DB15240375E01A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

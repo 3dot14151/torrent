@@ -1,3 +1,32 @@
+###  Публикация: 1406328   (466280) от 07.09.2020
+
+VA - Worldwide Rap Singles - Август 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые синглы из России, США, Франции, Германии, Кореи, Дании, Швеции и Китая выпущенные в августе 2020 года001. 03 Greedo - Drip Keep Going [03:01]
+002. 03 Greedo feat. Shordie Shordie & Wallie the Sensei - Baccstage [04:50]
+003. 2 Chainz feat. Lil Wayne - Money Maker [03:00]
+004. 40Bando - Gunsmoke Town [02:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 34:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6594645C39E63977177BBA9A22C1F2E3F59C8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162625   (456610) от 02.09.2017
 
 VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
@@ -716,35 +745,6 @@ VA - 100 Greatest 00s R&B Hits (2020) [MP3|320 Kbps] <R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C558199B5D605673C53D99B140429067B361130F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256719   (351894) от 23.10.2018
-
-VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alice Smith - House Of The Rising Sun
-002. A.Chal - To The Light
-003. Aftertheparty - Numb
-004. Crys Nammour - On Reprend Là(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 10:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582C0536D5F448DFD231F282FF341008407C9A57
 ```
 
 https://mybot314.ru/tekegram_catalog/

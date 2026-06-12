@@ -1,3 +1,32 @@
+###  Публикация: 1289435   (686739) от 16.03.2019
+
+Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Gone Wrong 03:56
+02. Hometown 03:12
+03. Nashville, Man 02:54
+04. Independence Day 04:05(   Читать дальше...   )Жанр: American FolkПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289030   (686641) от 16.03.2019
 
 The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
@@ -717,35 +746,6 @@ Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88820EF7A32FA65D9FB890001317E82F3CC3A77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036338   (621078) от 20.07.2016
-
-Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys Are Back In Town
-02. The Richest Fool Alive
-03. Daniel Prayed
-04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
 ```
 
 https://mybot314.ru/tekegram_catalog/

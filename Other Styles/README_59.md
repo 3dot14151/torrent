@@ -1,3 +1,119 @@
+###  Публикация: 1126928   (732083) от 21.04.2017
+
+VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Buddha - Desert Thar: World Mantra Flow (04:55)
+02. Donna De Lory - Sky is Open: Yoga Mantra Flow (Edit) (05:24)
+03. Prem Joshua & Chintan - The Subject Tonight Is Love: Hafiz Yoga Beats (Edit) (05:47)
+04. EarthRise SoundSystem - You Lovin' Me: Yoga World Dance (feat. Camille Armstrong, Srikala) (04:45)(   Читать дальше...   )Жанр: Chillout, Ethnic, Downtempo, New AgeПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127164   (732076) от 21.04.2017
+
+Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732076.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Om Rama – 9:39
+2. Om Shanti – 6:52
+3. Rama Rama – 7:35
+4. Rama Guru – 5:52(   Читать дальше...   )Жанр: New Age, Female Vocal, SpiritualПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021740   (732002) от 30.05.2016
+
+The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/с] <New Age, Miscellaneous>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Closed 00:01:39
+02. Drift Away 00:01:46
+03. Dreaming of Luna 00:01:40
+04. Weightlessness 00:01:39(   Читать дальше...   )Жанр: New Age, MiscellaneousПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC0A231C965A199D35252C58A035A495FBAF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529917   (731857) от 08.02.2022
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона, Vol. 2 (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сияние
+2. Кайф или больше
+3. Никто не хотел умирать
+4. После нас(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491F5CE7FB914D70E812C83B2CE7B99FFC829473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283785   (731836) от 18.02.2019
 
 СурМеж - Рингтон Сюита (2019) [MP3|320 Kbps] <Instrumental, New Age, NeoClassical>
@@ -626,122 +742,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022285   (729765) от 01.06.2016
-
-Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever [00:03:39]
-02. Midnight [00:04:29]
-03. Daydream [00:04:38]
-04. Brilliant [00:03:48](   Читать дальше...   )Жанр: New Age, Piano, ViolinПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127928   (729742) от 23.04.2017
-
-VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del pueblo (1996) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osvaldo Pugliese - El Monito | Osvaldo Pugliese
-02. Francisco Fiorentino - Maria
-03. Francisco Rotundo - Sobre El Pucho
-04. Raul Garello - Che, Buenos Aires(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85859FE943FAC20E810CE5352AA43ABE6302E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284400   (728905) от 21.02.2019
-
-Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airmid (04:31)
-02. The Sandshaper (03:59)
-03. Dust & Cloud (04:10)
-04. The Falcon in the Snow (04:32)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283989   (728895) от 21.02.2019
-
-Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (02:11)
-02. The Cop (02:21)
-03. Harry's Ostinato (01:01)
-04. Magnum Force (01:59)(   Читать дальше...   )Жанр: Jazz-Funk, ScoreПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBF24093C8ECC166267A2344BF5E727E12BA571
 ```
 
 https://mybot314.ru/tekegram_catalog/

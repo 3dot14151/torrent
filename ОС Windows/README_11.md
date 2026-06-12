@@ -1,3 +1,29 @@
+###  Публикация: 714045   (846687) от 27.03.2014
+
+Windows 8.1 - Оригинальные образы от Microsoft MSDN (Russian)
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 (ранее известная как "Windows Blue") является комплексным обновлением для Windows 8. В новой версии Microsoft не отступается от интерфейса Modern UI (правильное название интерфейса, ранее называемого Metro). Windows 8.1 добавляет в пользовательский интерфейс множество настроек, наряду с некоторыми новыми и обновлёнными приложениям – и всё для (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FA48DB6A1A4FFA0B48CCC66ABBFA50AC4D0F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500116   (842210) от 05.10.2021
 
 Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [En]
@@ -663,33 +689,6 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Ориг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD0BC350B5C77EA442CA0ABB22FF56DCB5531D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383173   (812830) от 14.05.2020
-
-Windows 10 (60in2) Sergei Strelec x86/x64 1909 (build 18363.836) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ Windows 10 с интегрированными обновлениями по 14.05.2020
-Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA049137B690BA77F40D15C0144D4D598E47279
 ```
 
 https://mybot314.ru/tekegram_catalog/

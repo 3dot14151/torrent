@@ -1,3 +1,154 @@
+###  Публикация: 806973   (592016) от 23.07.2014
+
+VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<EuroDisco-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (3:22)
+02. Modern Talking - You Can Win If You Want (3:46)
+03. Bonnie Tyler - Bitterblue (3:48)
+04. Blue System feat. Dionne Warwick - It's All Over (3:54)
+05. Blue System - Sorry Little Sarah (3:29)
+06. Touche - This Goodbye Is Not Forever (3:36)
+07. Millane Fernandez - Boom Boom (3:29)
+08. Isabel - Will My Heart Survive (3:01)
+09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
+10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: EuroDisco-PopПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915976   (591910) от 06.07.2015
+
+G Romano - Enjoy Freedom (2015) [MP3|320 кб/с]<Electropop, Dubstep, R&B, Trap, Drum'n'Bass, Funk, EDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Goes On (03:05)
+02. Eurofunk (02:52)
+03. Je M'eclate (feat. Chef Tek) (03:13)
+04. My Heart Is Beating (02:48)(   Читать дальше...   )Жанр: Electropop, Dubstep, R&B, Trap, Drum'n'Bass, Funk, EDMПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147B2BE3387F5D2DEFEB025EB26CBD325DE4E1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550759   (591637) от 12.05.2022
+
+Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолтер Энтони Мерфи-младший - американский композитор, аранжировщик, пианист, музыкант, автор песен и музыкальный продюсер. Он наиболее известен благодаря инструментальной диско-адаптации Пятой симфонии Бетховена, которая возглавила чарты в 1976 году и была включена в саундтрек Saturday Night Fever. Последовали дальнейшие слияния классики и диско, такие как "Полет (   Читать дальше...   )01. Introduction (0:34)
+02. The Phantom Of Your Dreams (3:43)
+03. Dance Your Face Off (3:38)
+04. I'm Your Man (3:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F206C9BE133BB3D735817A8131A9DE8C2FD2BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550737   (591600) от 12.05.2022
+
+VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
+02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:23)
+03. Fun Gang - Just for Fun (Radio Remix) (4:03)
+04. Geff Harrison - Bad New York City (Special Mix) (6:12)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916002   (591404) от 07.07.2015
+
+Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U Make Me Feel Loved (4:01)
+02. Blue (Blu – english version) (5:48)
+03. Thin Air (5:44)
+04. If Not Tonight (3:31)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00876D890FB48EB05B1D9BCA104D37CFDCF65DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916048   (591385) от 07.07.2015
 
 Tash Lorayne - Light That Lives (2015) [MP3|320 кб/с]<Pop, Jazz, Blues, Soul, Folk, Reggae, Female Vocal>
@@ -600,151 +751,6 @@ Radiorama - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks]<Italo Disco, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7083552EAC9F1ECB6230AF917AF1D18D9A37C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551769   (588992) от 18.05.2022
-
-VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Bowie Classix (Mixed By Lucien Vrolijk)
-02. Elton John & Alessandro Safina - Your Song (DMC Extended 2020) (Remixed By Lucien Vrolijk)
-03. Rick Astley - Never Gonna Give You Up (DMC Bass Remix) (Remixed By Lucien Vrolijk)
-04. Various - 3 Decades Of Popmusic (Part 3) (Mixed By Arjan Van Der Paauw)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:18:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB1863BCF0EDAC6397E9A2E9AF0DC02CCB17FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551780   (588915) от 18.05.2022
-
-VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro House, Soul, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Dmc Spice Girls Megamix
-02. Diana Ross - Diana Ross Mixdown
-03. Cilla Black - Cilla Black Minidance Mix “The Segue of Surprise”
-04. Whitney Houston - Whitney Houston Mega-Remix(   Читать дальше...   )Жанр: Electro House, Soul, Dance-popПродолжительность: 01:20:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4029076EBABF723F10BC9710BF339CFBA92B050C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551773   (588909) от 18.05.2022
-
-VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Electro, Funk, Dance-pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culture Club - Ultimate Culture Club Megamix (Part 1 & 2) (Mixed By Kevin Sweeney)
-02. ABC - The ABC Mix (Mixed By Marco Oude Wolbers)
-03. Art Of Noise - Art Of Noise Mix (Mixed By Marco Oude Wolbers)
-04. VA - Trapped In The 80s (Mixed By Jimmy 'Slimjay' Langtoft)(   Читать дальше...   )Жанр: Electro, Funk, Dance-pop, HouseПродолжительность: 01:18:09 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F15FF61CF507D628D495BCAE050B76B83A183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917897   (588672) от 13.07.2015
-
-R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night
-02. Wild Hearts
-03. Dark Side
-04. Let's Not Be Alone Tonight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D190D278A0407F0D75397BEDEC9812E0F88F84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552212   (588529) от 19.05.2022
-
-Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me Why (3:35)
-02. Forgive Me (4:14)
-03. Astronomers in China (4:41)
-04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579D4027DDA0CDAEE3F4845F2EE185932523D6F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

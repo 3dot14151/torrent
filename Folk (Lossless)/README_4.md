@@ -1,3 +1,32 @@
+###  Публикация: 1285106   (718926) от 27.02.2019
+
+Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fields Of Anfield Road
+02. Scouser Tommy
+03. The Banks Of The Merseyside
+04. Liverpool Lou(   Читать дальше...   )Жанр: FolkПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219318   (715508) от 13.04.2018
 
 Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
@@ -713,35 +742,6 @@ Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289435   (686739) от 16.03.2019
-
-Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Gone Wrong 03:56
-02. Hometown 03:12
-03. Nashville, Man 02:54
-04. Independence Day 04:05(   Читать дальше...   )Жанр: American FolkПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
 ```
 
 https://mybot314.ru/tekegram_catalog/

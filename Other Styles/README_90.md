@@ -1,3 +1,110 @@
+###  Публикация: 358087   (584933) от 03.07.2011
+
+OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<Electronic, Jazz, Stage & Screen>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Jazz, Stage & ScreenПродолжительность: 01:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09165685B6C6B9804974A3E3806686755B4C0C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918951   (584880) от 17.07.2015
+
+Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maple Love
+02. Mythos
+03. The Unforgettable Love Affair
+04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358281   (584798) от 03.07.2011
+
+Гарри Поттер и Дары смерти: Часть 2 / Harry Potter And The Deathly Hallows Part 2 (2011) [MP3|320 kbp/s]<Score,Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584798.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: SoundtrackПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1459E7E68C2DCDA5DB2C805B2925D62793BBF1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358304   (584742) от 03.07.2011
+
+OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040864   (584260) от 07.08.2016
 
 VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -626,119 +733,6 @@ The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег За
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576FEF36A3FF23015185EA3DC3C81434CA1A0A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302789   (577992) от 18.05.2019
-
-Gregorian - Masters Of Chant Chapter II (+bonus tracks) (2001) [FLAC|Lossless|image + .cue] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Moment Of Peace (4:22)
- 02 - The First Time I Ever Saw Your Face (6:00)
- 03 - In The Air Tonight (5:45)
- 04 - Bonny Portmore (5:02)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8C761DDC848ADC7C71C40DB819FB1675157458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150399   (577880) от 16.07.2017
-
-VA - Latino Fitness 2017 (The Ultimate Latin Keep Fit Workout) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Reggaetronics – Limbo
-02. Alegra – She Wolf
-03. CDM Project – We No Speak Americano
-04. Boricua Boys – Zumba(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED636F73E34A8E381A430355E1C1AFAF2B0FA01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361322   (577200) от 10.07.2011
-
-Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Meditative, MantrasПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED10BB6A1F21BDACDBA52DBFE66CC611FB7B4541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921143   (577161) от 24.07.2015
-
-VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern Chill>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже на AllMusic (что для портала совсем не характерно) не решились определить жанр этого сборника. Peaceful Relaxation, что означает в народе - полная расслабуха, думаю, очень даже подойдет. А в связи с приближающимися выходными так и просто очень актуально.01. Orient Expressions - Tranquility  (8:10)
-02. Memories of Goa - Dawn Meditation  (7:33)
-03. Beyond Bombay - Adagio  (8:36)
-04. Prem Gulshan - Relax  (6:28)(   Читать дальше...   )Жанр: New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern ChillПродолжительность: 04:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

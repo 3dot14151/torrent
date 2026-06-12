@@ -1,3 +1,116 @@
+###  Публикация: 177414   (720743) от 04.08.2020
+
+Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti (C. Santana) (04:36)
+02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
+03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
+04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199459   (720740) от 04.08.2020
+
+VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Close Your Eyes		(04:24)
+02 - Three Times A Lady			(03:10)
+03 - Stronger Every Minute		(03:24)
+04 - Believe In Miracles		(04:44)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456B8085FEBD9220A93D0D5CD2B5D64CF0FDC63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261497   (720732) от 04.08.2020
+
+VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128936   (720714) от 29.04.2017
+
+Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Celt (Introduction) (1:01)
+02. Oroshay (3:00)
+03. The Primal Gods (2:27)
+04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024032   (720546) от 07.06.2016
 
 Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
@@ -629,122 +742,6 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531465   (718719) от 17.02.2022
-
-The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Of Fire (04:59)
- 02. Counterclockwise Circle Of Dance (05:38)
- 03. Return From River Island (06:09)
- 04. Dance Of The Warrior (05:57)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531705   (718654) от 17.02.2022
-
-At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting For A Star To Fall (Boy Meets Girl cover from "Three Men And A Little Lady")
-02. King Of Wishful Thinking (Go West cover from "Pretty Woman")
-03. The One And Only (Chesney Hawkes cover from "Doc Hollywood")
-04. When You Say Nothing At All (Ronan Keating cover from "Notting Hill")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4AFB13F1A5B788BC2E16FDFC63D0F9096E47A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530463   (718648) от 17.02.2022
-
-Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beata Viscera
-02. A Bride of Christ
-03. Flames Will Not Burn Me
-04. A False Prophet(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAFDE707F5E172BD4EA27E287E02725B7440368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168945   (718545) от 05.08.2020
-
-VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paco De Lucia - Rнo Ancho (4:31)
-02. Manu - Mestizo (3:58)
-03. Al Di Meola - Mediterranean Sundance (5:09)
-04. Embrujo Flamenco - Huapango (8:21)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1583A8CF14DCF44C4604E520D876BDD86233CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

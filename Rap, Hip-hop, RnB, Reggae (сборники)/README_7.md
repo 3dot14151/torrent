@@ -1,3 +1,32 @@
+###  Публикация: 1256719   (351894) от 23.10.2018
+
+VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351894.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alice Smith - House Of The Rising Sun
+002. A.Chal - To The Light
+003. Aftertheparty - Numb
+004. Crys Nammour - On Reprend Là(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 10:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582C0536D5F448DFD231F282FF341008407C9A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256718   (351884) от 23.10.2018
 
 VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -717,35 +746,6 @@ VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F07DDF3CF3D03B77D53668B1103EEFD1CBE330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337932   (271578) от 13.11.2019
-
-VA - Street Workout (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mc Soul - А кто ты ? (3:09)
-2.2 Chainz - I'm Different (Spenca & AFK Trap Remix) (3:23)
-3.2 Chainz feat. Wiz Khalifa - We Own It (3:47)
-4.2pac - Ghost (4:17)(   Читать дальше...   )Жанр: Hip-Hop, Rap, OtherПродолжительность: 04:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B0F332F448B4C3F996D4F6E04F4AAC61106A1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 1221940   (689671) от 27.04.2018
+
+VA - Time Paradox: Psy Trance Compilation (2018) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы упускаем смысл жизни, упускаем возможность жить целостно, что означает жить в соответствии с реальностью, в согласии с тем, что существует или может существовать в действительности. Нам следует воспринимать опасное и мучительное точно так же, как обнадеживающее и вожделенное. Идти по жизни с открытыми глазами – признак зрелости01. Astro-D - Party Alien
+02. Mental Flow - Time Paradox
+03. Erotic Dream - Tico Tico
+04. Grails - New Prague(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 07:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F8F60A912D216BF3EBD9B9D1BAE617C7CCCCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505758   (689603) от 05.06.2012
+
+VA - Калина Красная - Лучшее (2012) [MP3|128 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689603.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:55] . - 001 Андрей Бандера - Шереметьево
+[03:13] . - 002 Елена Ваенга - Аэропорт
+[04:16] . - 003 Стас Михайлов - А может быть
+[03:23] . - 004 Рада Рай - Отпускала в небо
+[03:59] . - 005 Григорий Лепс - Самый лучший день
+[03:23] . - 006 Артур - Лето пролетело
+[03:59] . - 007 Леонид Агутин и Анжелика Варум - Две дороги, два пути
+[04:03] . - 008 Евгений Кемеровский - Ключи (новая версия)
+[03:43] . - 009 Афина - Душа кричит
+[04:34] . - 010 Александр Малинин - Под венец(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 12:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6621C6371BE4C960DB804330A9A4C53EA8008D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134370   (689455) от 15.05.2017
+
+VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn, Jasmine Thompson - Ain't Nobody (Loves Me Better) feat. Jasmine Thompson (The Rooftop Boys Remix)
+02. Duke Dumont - Ocean Drive (Shaun Frank Remix)
+03. Years & Years - Shine (Sanna & Pitron Remix)
+04. Frequency, Diia, SoulCircuit - Lost feat. Diia (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, DiscoПродолжительность: 04:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792C1C6821414E0CDBAAD536E01F5AB2BE57E86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221954   (689433) от 27.04.2018
+
+VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
+02. Patrick Bernard - Sita Ram Hanuman Mantra
+03. Wychazel - Akasha
+04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134388   (689377) от 15.05.2017
+
+Альберт Артемьев - В лабиринте (2017) [MP3|192 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В лабиринте
+02 - Знамение
+03 - Маленький ангел
+04 - В плену времени(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232FF4B10F3D9C372E304C2D8E64E15BB99A917C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134302   (689371) от 15.05.2017
+
+VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
+02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
+03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
+04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221893   (689310) от 27.04.2018
+
+VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Price Of Love (3:58)
+02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
+03. Afric Simone - Todo Pasara Maria (3:16)
+04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134528   (689225) от 15.05.2017
 
 VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Room>
@@ -554,226 +763,6 @@ VA - Club Dance Ambience Vol.74 (2016) [MP3|320 кб/с] <House, Electro House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9119F6022AEC2FD12E3256BB499ED5EF1EB910E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028649   (687959) от 23.06.2016
-
-VA - Club Dance Ambience Vol.71 (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687959.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bassjackers -  F*ck (Dimitri Vegas & Like Mike Edit) 4:38
-002. Klubbingman & Beatrix Delgado -  Love Message 2K16 (Roberto Rios & Dan Sparks Remix) 4:45
-003. 3LAU Ft. Yeah Boy -  Is It Love (Sultan & Shepard Remix) 5:44
-004. BRKLYN ft. Mariah McManus -  Can't get enough (AYLIII remix) 5:15(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C8B665A58ECFC198D9A5E4C8CC98576FE4C865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028587   (687950) от 23.06.2016
-
-VA - Дискотека 2016 Dance Club Vol. 153 (2016) [MP3|320 кб/с] <Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Heaven (Radio Edit)
-02. Alan Walker - Sing Me to Sleep (Original Mix)
-03. Fly DJ's feat. Jessica D - Te QuieroЖанр: ElectronicПродолжительность: 14:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71B440F1B3D2B831F657A079EDCE2FE60FC9FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289298   (687834) от 15.03.2019
-
-VA - Хиты под водочку: В кругу друзей (2017) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687834.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Я соберу друзей - Олег Гаврилюк
-002. Встреча друзей - Евгений Алтайский
-003. Удача - Лала Хопер
-004. Грустное веселье - Виктор Тюменский(   Читать дальше...   )Жанр: ШансонПродолжительность: 21:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BBBF69FD0D1B0D76CD5FA5258E220413191151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506297   (687797) от 06.06.2012
-
-VA - Звёзды Шансона - Избранное (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Женя Томилин - Водила, трогай
-02 - Афина - Сердце напополам
-03 - Андрей Бандера - Любимая
-04 - Михаил Шуфутинский - Третье сентября
-05 - В.Высоцкий - Милицейский протокол
-06 - В.Захаров - Любовь моя
-07 - А.Розенбаум - Зима
-08 - Алексей Брянцев - Я буду рядом
-09 - А.Полотно - Купола
-10 - Михаил Шелег - За тебя (За глаза твои карие...)(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 05:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87271457C4F6D1D9036CC75E8371A521C56BE11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505960   (687783) от 06.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 63 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М.Таривердиев - Воспоминание о Венеции
-02. E.Simoni - Ballerina
-03. Cusco - Alcatraz
-04. J.Last & R.Clauderman - Indigo Bay
-05. J.Emblow - Tonight
-06. Behzad - Touch My Soul
-07. Botticelli - Song Sung Blue
-08. Vangelis - Movement VI
-09. Зодиак - Зодиак (mix)
-10. The B.B.S.O. - Living Next Door To Alice(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FA9A8D341235E0E4548F68E35B606CC2B63D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506473   (687703) от 06.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 66 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Dado - Desert Of Sadness
-02. J.Emblow - Under The Roofs Of Paris
-03. Cusco - Sun Of Jamaica
-04. F.Goya - Unchained Melody
-05. Nostardamus - I Orevers Kiss
-06. DJ Skydreamer - X-Theme
-07. E.Simoni - When I Need You
-08. Е.Дога - Долгая дорога в дюнах
-09. Emile Prud Homme - Nuit De Java
-10. Armik - Puerto De Malaga(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA0A2DDF58C8922FBC8962ACF28391A081D4DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134649   (687575) от 16.05.2017
-
-VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Davu - Sociopath (Original Mix)
-002. Tommy Harmond - Stay Together Forever (Extended Mix)
-003. Archi Nova - At A Depth (Original Mix)
-004. Esra Kahraman - Ex Love (Regard Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
 ```
 
 https://mybot314.ru/tekegram_catalog/

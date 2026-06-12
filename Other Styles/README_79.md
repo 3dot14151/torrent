@@ -1,3 +1,119 @@
+###  Публикация: 1033222   (639996) от 10.07.2016
+
+Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Wave [00:06:14]
+02. Second Wave [00:03:45]
+03. Third Wave [00:08:24]
+04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033228   (639872) от 10.07.2016
+
+VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - The Woman In Red [04:39]
+02. Stevie Wonder & Dionne Warwick - It's You [04:55]
+03. Ben Bridges - It's More Than You  (Instrumental) [03:15]
+04. Stevie Wonder - I Just Called To Say I Love You [06:16](   Читать дальше...   )Жанр: Soundtrack, Funk & SoulПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032824   (639698) от 10.07.2016
+
+Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hovern'engan    05:08
+02.  Tchinares    05:47
+03.  Ar Intch Lav Er    06:15
+04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142847   (639464) от 16.06.2017
+
+Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travelling Song 4:16
+02. Jekyll And Hyde 2:56
+03. Take Me Down 3:06
+04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142974   (639346) от 16.06.2017
 
 The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
@@ -667,128 +783,6 @@ Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B525AF37065DEFF8ECB3AA8DAEFE2A2F97F801DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033553   (635816) от 12.07.2016
-
-Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Lullaby 03:53
-02.Pacifique 03:47
-03.Marta' s Song 04:12
-04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904680   (635730) от 13.06.2015
-
-Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallogallo 10:07
-02. Sonderangebot 4:50
-03. Weissensee 6:42
-04. Jahresbersicht (Part 1): Im Glck 6:52(   Читать дальше...   )Жанр: KrautrockПродолжительность: 10:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228556   (635697) от 01.06.2018
-
-Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dreams of sunbeams
-02 Cloud pictures passing by
-03 Spring break
-04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519651   (635631) от 07.07.2012
-
-VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635631.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vesna, Vesnyanochka (0:36)
- 2. Na Gryanoy Nedele (1:04)
- 3. Seraya Iy Zeziulechka (0:42)
- 4. Katis, katis, zharkoie solntse (2:00)
- 5. Oy, ty, lastochka (1:14)
- 6. Gdje zhiviot moya milaya (2:12)
- 7. Da khodila Tanechka po gorodu (1:33)
- 8. Sidel Vanya na divane (2:39)
- 9. Oy, ya v boru vodu beru (1:12)
- 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
 ```
 
 https://mybot314.ru/tekegram_catalog/

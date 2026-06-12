@@ -1,3 +1,32 @@
+###  Публикация: 1417626   (353527) от 22.10.2020
+
+VA - Suntrip Uplifting Trance Session (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arty & Mat Zo - Rebound
+002. Rafael Osmo - Overdrive (Original Mix)
+003. New Horizons - Take Flight
+004. Brent Rix - Jericho (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8067592E7CB321D1AC35BBB3DC677A7F497426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952719   (353526) от 02.11.2015
 
 VA - Love Christmas Relaxed Chill Lounge Winter Cuts (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -738,35 +767,6 @@ VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072766   (349992) от 14.11.2016
-
-VA - Urban Loudness Friends Styles (2016) [MP3|320 Kbps] <Dancehall, Dance, Electro, Halloween>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Little Mix - Shout Out To My Ex (Clean) 04:06
-002. Michael Jackson - Thriller (Discotech Remix) (Clean) (Short Edit) 02:19
-003. Nine Inch Nails - Reptile (Remix) (Clean) 05:53
-004. Nine Inch Nails - Reptile (Intro Dirty) 06:22(   Читать дальше...   )Жанр: Dancehall, Dance, Electro, HalloweenПродолжительность: 10:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF489914D887D4C8DC130E5F14CA6B758D63DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1524739   (130344) от 18.01.2022
-
-VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - cardigan (4:00)
-02. Justin Bieber, Chance the Rapper - Holy (3:32)
-03. Mina Okabe - Every Second (3:02)
-04. Shawn Mendes - Fallin' All In You (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524734   (130340) от 18.01.2022
-
-DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friendship (DoMi Sakurazawa Remix) (6:16)
-02. Searching For You (DoMi Sakurazawa Remix) (4:34)
-03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
-04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524910   (130333) от 18.01.2022
-
-VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Kieloval - Space Thoughts (5:53)
-03. The Crispy Galaxy - Cream Soda (6:09)
-04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524743   (130323) от 18.01.2022
-
-VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Yeah Uhhh Oui (3:00)
-02. Weber & Weber - Speaking Without Words (4:49)
-03. Svendaq - Blue Bossa (6:01)
-04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524745   (130319) от 18.01.2022
 
 VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
@@ -745,6 +629,122 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525117   (129975) от 19.01.2022
+
+VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Stone - Planet X (Dark Underground Mix) (4:39)
+02. Cabal, Maestro - Clifton Bay (Original Mix) (5:24)
+03. 4tunes, Debora Vilchez - Oir Es Aprender (Original Mix) (5:53)
+04. La Tienda - Papua-St.Tropez (Original Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F69CF96A9051BFF834D4261BE002A10ADBE8E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525051   (129946) от 19.01.2022
+
+Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. July (Original Mix) (4:21)
+02. August (Original Mix) (3:44)
+03. September (Original Mix) (3:32)
+04. October (Original Mix) (3:47)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525056   (129933) от 19.01.2022
+
+VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Dubstep>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferice, Solr - Tides (4:54)
+02. Echomatics - Shouldn't We (5:49)
+03. Ferice - What You've Done (4:51)
+04. Soul Connection - Body Love (5:31)(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Deep DubstepПродолжительность: 03:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525052   (129930) от 19.01.2022
+
+VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressive House, Melodic House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorkiz - Strutter (Kamilo Sanclemente Remix) (8:36)
+02. RIGOONI - Sopdet (8:07)
+03. Carlos Tk - Hope (Weird Sounding Dude Remix) (8:00)
+04. Fel C - Floripa in Chaos (Andre Moret Remix) (8:00)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

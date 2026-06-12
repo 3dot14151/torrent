@@ -1,3 +1,147 @@
+###  Публикация: 908652   (632486) от 15.06.2015
+
+Sarah Cracknell - Red Kite (2015) [MP3|320 кб/с]<Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. On the Swings (3:50)
+2. Nothing Left to Talk About (feat. Nicky Wire) (2:51)
+3. In the Dark (3:53)
+4. Ragdoll (3:01)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92E625B51EEF49C83B54F95DE3377374A58ED85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908518   (632402) от 15.06.2015
+
+Kacey Musgraves - Pageant Material (2015) [MP3|320 кб/с]<Country, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632402.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. High Time
+2. Dime Store Cowgirl
+3. Late To The Party
+4. Pageant Material(   Читать дальше...   )Жанр: Country, Pop, FolkПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64E832D8D81E51BF7BF641452DE9E98D029F005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034884   (632379) от 14.07.2016
+
+Sydne Rome - Sydne Rome (1980) LP [MP3|320 Kbps] <Disco, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sydne Rome - итальянская актриса и певица. Родилась в Огайо, США в семье президента промышленной корпорации по производству пластмассы. С 1970 года - в Италии. Дебют на большом экране - роль Флики в картине британского режиссёра Ральфа Томаса "Некоторые девушки" (1969). Предлагаемый альбом оказался популярным в мире и помимо синглов - единственным.01. Barbecue Ball (3:33)
+02. Milky Way (4:15)
+03. Barefoot Blues (3:28)
+04. When It Comes To You (3:38)(   Читать дальше...   )Жанр: Disco, Ballad, Pop RockПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58384886B9990921DB194DF819BDCC0FD48EA30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682294   (632276) от 22.07.2013
+
+Lenka - Дискография / Discography (3 Albums, 1 EP, 2 Singles) - 2008-2013, MP3 (tracks), 243-320 kbps
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Not Grow Old (The Woodstock Sessions) (03:28)
+02. Heart Skips A Beat (03:21)
+03. Heart To The Party (03:05)Жанр: Pop |Продолжительность: 00:09:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908520   (632244) от 15.06.2015
+
+Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rule the World (3:25)
+2. I'll Be Waiting (3:46)
+3. Home We'll Go (3:09)
+4. Hold On (The Break) (3:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A626BE2F5A3D839A981583BD831FBD2224BFDA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229021   (632203) от 03.06.2018
 
 Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Easy Listening>
@@ -613,151 +757,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCDB85D50D1FBC062590E8DC65ACFE6E0116F711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294116   (629887) от 07.04.2019
-
-VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629887.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01.George Michael - Freedom
-02.Take That - Back For Good
-03.Natalie Imbruglia - Torn(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 05:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228961   (629849) от 04.06.2018
-
-VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629849.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Tal - Mondial
-02. Aya Nakamura - Djadja
-03. Rudimental, Jess Glynne, Macklemore, Dan Caplen - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3107373CD3269321FB72CA6DB3326356D09902F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909151   (629746) от 16.06.2015
-
-Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + .cue]<New Wave, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kids In America [3:26]
-02. Chequered Love [3:22]
-03. Water On Glass [3:36]
-04. Cambodia [3:56](   Читать дальше...   )Жанр: New Wave, PopПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0D88065C92D95FBFCCACB952FA18C4A43A7E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294429   (629635) от 07.04.2019
-
-Красные Маки - 2 Albums (1980) LP [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кружатся диски (Д.Тухманов - И.Кохановский) (6:24)
-02. Ясно все (А.Хоралов - И.Кохановский) (6:00)
-03. Интерлюдия (Ю.Чернавский) (1:45)
-04. Помни (А.Хоралов - И.Кохановский) (6:24)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F364F01E1D2573246512A5541A7C518543E7A963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543481   (629526) от 11.04.2022
-
-VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shania Twain - You're Still The One (3:32)
-02. Extreme - More Than Words (5:37)
-03. The Righteous Brothers - Unchained Melody (3:36)
-04. The Police - Every Breath You Take (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE1E268727F5E49B0DC0FB7E061251020670EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

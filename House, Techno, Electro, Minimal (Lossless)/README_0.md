@@ -1,3 +1,61 @@
+###  Публикация: 1858043   (1060337) от 09.03.2026
+
+DJ Slon (Олег Азелицкий) - 5 Albums (2022-2026) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Experimental, downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DJ Slon и Жуткий Лазер (2022) Album №1
+DJ Slon (Олег Азелицкий) (2024) Современник из Питера
+DJ Slon (Олег Азелицкий) (2025) Acid Rain On Dessa(   Читать дальше...   )Жанр: Techno, IDM, Experimental, downtempoПродолжительность: 5 CD, 05:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFE26A5931B7D1A94EC762D67226C90904FC7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858288   (1060322) от 09.03.2026
+
+VA - Afro Beach Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Before The Light (2:40)
+02. N.E.O.N - Silent Night (3:42)
+03. Elegant Ape - Moving through the night (4:44)
+04. Elegant Ape - We Are One (5:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA65DC51BE4867142A61580A22A0645BBF77F528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857869   (1060057) от 07.03.2026
 
 VA - Pool Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -685,64 +743,6 @@ VA - Lounge Hits February 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC7779F188F2F79C814736A05E8822D67D03BDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852968   (1056295) от 10.02.2026
-
-VA - Winter Dance Hits 2026 (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umut Torun - Rose (3:08)
-02. Kanette - Gates (3:17)
-03. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
-04. Decibel Dreams - Heaven (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B40051A4166C04DBC30DA8E8A2F4711CDE2127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852829   (1056209) от 09.02.2026
-
-VA - Chill House Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Casablanca (5:55)
-02. Anton Ishutin - Summer Jam (6:52)
-03. Anton Ishutin - D.N.A (5:36)
-04. Sharapov - Keep On Rising (5:25)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246424FFD2EE4CBBB8CFCAB046CC8650DE52DC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

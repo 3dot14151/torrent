@@ -1,3 +1,90 @@
+###  Публикация: 1848620   (1052906) от 18.01.2026
+
+Gene Pitney - The Many Sides Of Gene Pitney (1962) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052906.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Town Without Pity
+A2 I Wanna Love My Life Away
+A3 I Laughed So Hard I Cried
+A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & RollПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848200   (1052813) от 16.01.2026
+
+VA - Red-Hot Victor : 20 American Country Chart Hits (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052813.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Willie Nelson - If You Can Touch Her At All
+A2 Dottsy - Here In Love
+A3 Tom T. Hall - May The Force Be With You Always
+A4 Jerry Reed & Seidina - You Know What(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6349FB45704E0290FB1A3A68B2143FFE5623752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848416   (1052661) от 17.01.2026
+
+Diana Ross - 20 Golden Greats (1979) FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052661.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Theme From Mahogany (Do You Know Where You're Going To?)
+A2 Touch Me In The Morning
+A3 Stop, Look, Listen (To Your Heart)
+A4 No One Gets The Prize(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721615A9274E06B1F61E1083D7F2C054BB7526E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848182   (1052539) от 16.01.2026
 
 Frank Sinatra - Swing Easy! (1959) Reissue. Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Swing>
@@ -649,93 +736,6 @@ Orange Goblin — британская хэви-метал/стоунер-рок
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9C4A014E18603E0FC395CB55632C999C6E724E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843047   (1048973) от 18.12.2025
-
-Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vhäldemar - испанская пауэр-метал группа, образованная в 1999 году.2002 - Fight To The End
-2003 - I Made My Own Hell
-2011 - Metal Of The World
-2013 - Shadows Of CombatЖанр: Power MetalПродолжительность: 05:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842323   (1048714) от 15.12.2025
-
-The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Rock, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048714.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Apache
-A2 Man Of Mystery
-A3 The Stranger
-A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842297   (1048636) от 15.12.2025
-
-At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048636.jpg" />
-</div>
-
-
-###  Подробнее
-
-At Vance — немецкая метал-группа, созданная в 1998 году вокалистом Оливером Хартманном и гитаристом Олафом Ленком.1999 - No Escape
-2000 - Heart of Steel
-2001 - Dragonchaser
-2002 - Only HumanЖанр: Neoclassical/Power MetalПродолжительность: 08:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

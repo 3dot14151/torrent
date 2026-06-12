@@ -1,3 +1,37 @@
+###  Публикация: 781412   (755848) от 28.04.2014
+
+Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Rock, J-Pop>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755848.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:33] 1. Syrufit - white clear
+[05:12] 2. 市松椿 - emo.
+[07:02] 3. 市松椿 - 我亲爱傀儡
+[05:43] 4. 綾倉盟 - Black
+[06:06] 5. Nhato - Delay Order
+[06:02] 6. 坂上なち - Back Door
+[04:23] 7. 綾倉盟 - on the way home
+[03:58] 8. Syrufit - GaT
+[05:46] 9. 綾倉盟 - comouflageЖанр: Touhou, Vocal, Doujin Ongaku, J-Rock, J-PopПродолжительность: 00:00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC3BC964E0B92A3781BD0156EF48C5332C12C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281371   (749824) от 09.02.2019
 
 Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
@@ -744,40 +778,6 @@ As/Hi Soundworks | Ash Blind | As/Hi - 20 альбомов (2006-2013) Touhou In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74526E2785302CE4176EDDE96ACE1718E630E09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510872   (668162) от 15.06.2012
-
-Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes In The Snow (12:55)
-02. Burial At Sea (10:23)
-03. Silent Flight, Sleeping Dawn (05:50)
-04. Are You There? (10:30)
-05. 2 Candles, 1 Wish (02:53)
-06. Where Am I (03:03)
-07. Pure As Snow (11:37)
-08. Halcyon (Beautiful Days) (09:18)
-09. Everlasting Light (12:35)2001-2010Жанр: Post-Rock, Instrumental, AmbientПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

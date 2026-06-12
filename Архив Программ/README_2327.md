@@ -1,3 +1,29 @@
+###  Публикация: 1795741   (19199) от 06.05.2025
+
+Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics SSD Optimizer - специальный инструмент, разработанный для повышения эффективности вашего SSD и достижения новых высот производительности.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1519FD2AEE999EEBA2957F124A735218AEEA1CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795695   (19190) от 06.05.2025
 
 Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 RePack by KpoJIuK [Multi/Ru]
@@ -645,32 +671,6 @@ Adobe Illustrator — это принятое в качестве отрасле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B53CBBEF43C12A0F46E571A5553022289C6F4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796050   (18984) от 08.05.2025
-
-Internet Download Manager 6.42 Build 36 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A4906372B3D98229F3D83C16070D2EFE3C03CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

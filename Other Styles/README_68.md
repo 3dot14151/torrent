@@ -1,3 +1,119 @@
+###  Публикация: 1133169   (696931) от 11.05.2017
+
+Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter in the Mountains
+02. The Book of Dragons
+03. When It Snows in the Forest
+04. The Quest(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133186   (696872) от 11.05.2017
+
+Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ambient, Electronic, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milab (Military Abduction) (4:11)
+02. Black Ops (Military Secret Space Programs) (5:26)
+03. Loc (Lunar Operations Command) (4:43)
+04. Secret Space Program (7:15)(   Читать дальше...   )Жанр: Ambient, Electronic, InstrumentalПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CF244B3E908C2DFD3E1966ABDDB08CCF2DDD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221180   (696795) от 23.04.2018
+
+Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'instant sacré (7:12)
+02. Au fil du temps (6:26)
+03. Voyage intérieur (7:04)
+04. La voie du coeur (4:38)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62521898AED1196A9ADA6D06C56C949C3D0B4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472893   (696585) от 11.05.2017
+
+Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Trance, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (5:54)
+02. One & One (3:54)
+03. Textures (3:16)
+04. Fable (6:26)(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BAB1CA6859BF6CEFE3CFCB56701A1769471E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027458   (696534) от 19.06.2016
 
 Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -632,122 +748,6 @@ Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB0741F796A07CE54BD08F589B7F7044BE998BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215845   (691919) от 19.08.2020
-
-VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991 -  Beautiful Moment
-01. Leif Strand - Taurus    		(04:37)
-02. Kit Watkins - Moon Watching Me    	(03:30)
-03. Quiet Force - Listen To The Music   (04:15)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063693CCBA35BCAB211422F4B5892F946ADB6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332190   (691821) от 08.05.2011
-
-OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davey Brothers - Heart Go Faster (3:31)
-02. Filter - The Only Way (Is The Wrong Way) (5:15)
-03. Alexandra Slate - Bad Girl (3:35)
-04. P.O.D. - Satellite (Oakenfold Mix) (4:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134034   (691549) от 14.05.2017
-
-Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Tomorrow Comes
-02. Once In A Life
-03. The Tears Of Machu Picchu
-04. I Watched Her From Afar(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133883   (691486) от 14.05.2017
-
-Andrew Lockington, VA - The Space Between Us / Космос между нами (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingrid Michaelson – Smallest Light (03:36)
-02. Crystal Fighters – At Home (05:06)
-03. BORNS – 10,000 Emerald Pools (02:55)
-04. BANNERS – Shine a Light (04:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B546D1534C8424AB2286B48A577E96036D950C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

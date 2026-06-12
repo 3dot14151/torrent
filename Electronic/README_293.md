@@ -1,3 +1,145 @@
+###  Публикация: 1316635   (505153) от 27.07.2019
+
+VA - Quality Control (2019) VALE [FLAC|Lossless|WEB-DL|24Bit|tracks] <Dubstep, Drum n Bass, Half-time, Experimental, UK Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avum - Voyager (03:48)
+02. Fourth Dimension - Nevi'Im Rishonim (02:59)
+03. Dazo L'oizeau - Otel (02:53)
+04. RAWT - Track Grouping Corrupt (05:11)(   Читать дальше...   )Жанр: Dubstep, Half-time, Drum n Bass, Experimental, UK GarageПродолжительность: 00:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6C902296134455C569C21645A00A0D0BCACB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933535   (505117) от 02.09.2015
+
+Нейромонах Феофан - Притоптать (2015) Single [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ПритоптатьЖанр: Drum & BassПродолжительность: 00:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B58CF1B43757BE283FAF1C03A5490F4187826B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563370   (504480) от 14.07.2022
+
+Morakh - Limes (2022) [MP3|320 Kbps] <Breaks, Techno, Tribal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kubrick [00:03:51]
+02 - Shaman [00:05:05]
+03 - Limes [00:04:44]
+04 - Way [00:04:03](   Читать дальше...   )Жанр: Breaks, Techno, Tribal, ExperimentalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397C55B89BE5B97FE92FFD1DAF62C9747B9C0BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563509   (504478) от 14.07.2022
+
+VA - Bittersweet Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Six String Jam (Original Mix) (5:14)
+02. Living Room - Like an Old Jazz Records (3:07)
+03. Funkdust - Jazz Dub (Original Mix) (2:55)
+04. Martin Liege - Bittersweet (Original Mix) (4:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B17C0173641750277D3AEE5DD370317746F69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563439   (504476) от 14.07.2022
+
+Баська - Гигос болотных солдат (2021) [MP3|320 Kbps] <Breaks, Techno, Tribal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бронепоездъ [00:02:49]
+02 - Лойс [00:03:00]
+03 - Утро понедельника [00:02:20]
+04 - Кай и Герда [00:03:01](   Читать дальше...   )Жанр: Breaks, Techno, Tribal, ExperimentalПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECF480464199D7C96DA8437D3F7164A2E03CA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539414   (504399) от 28.08.2012
 
 Laibach - Iron Sky OST (2012) [FLAC|Lossless]<Industrial, Score>
@@ -605,163 +747,6 @@ DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541103   (501606) от 31.08.2012
-
-VA - London Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Adam - True (Chill Night Instrumental)
-02. Mandalay - Infinity (Westwood Remix)
-03. Sundance - New Gold Dream (Instant Classic Remix)
-04. Benny Santiago - Give Me the Night (Soho Edit)
-05. Brett Sinclair - Sex On the Beach (UK Mix)
-06. Damon Everett - Soulful Night (Ritchie and Guy Dub)
-07. Neal Caffrey - Year of the Cat (Jody Negro Chill House Mix)
-08. Limelight - New Year's Day (Villalobos Deep Mix)
-09. Scott Simmons - Children (London Bar Grooves Remix)
-10. Clifton Jones - Could You Be Loved (TC Boulevard Dub)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D23931980BEC2E6C4F37FDB9B4C0D94D5BBE4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541096   (501599) от 31.08.2012
-
-VA - Messages Ibiza 2012 (compiled & mixed By Spiritchaser) (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osunlade - Same Thing (Spiritchaser Remix) (feat. Maiya James)
-02. Spiritchaser - Conch
-03. The Layabouts - Here With You (The Layabouts Vocal Mix) (feat. Terri Walker)
-04. Baunz - The Same Thing (Huxley Dub)
-05. Aki Bergen - Into My Soul (Spiritchaser Remix) (feat. Carmen Sherry)
-06. LD-10 - Earthworks (Main Mix)
-07. The Realm - When in Rome (Spiritchaser's Balearic Re-Touch)
-08. Imaani - Found My Light (Spiritchaser Re-Edit)
-09. Kyodai - Do You Wanna (Original Mix)
-10. Alison David - Dreams (Andre Lodemann Still Dreaming Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0280D48BCDF65630F285937483041527A23CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564069   (501589) от 17.07.2022
-
-VA - Beatport Trance Top 100: June [Extended] (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Key4050 - Cisza (A Dreamstate Anthem) (Original Mix) [6:26]
-002. Sneijder & Thomas Bronzwaer - Into The Light (Extended Mix) [7:26]
-003. Will Atkinson - Rush (John O'Callaghan Extended Remix) [5:59]
-004. Above & Beyond - Can't Sleep (Ruben De Ronde & Elevven Extended Mix) [6:28](   Читать дальше...   )Жанр: TranceПродолжительность: 11:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6310B36FB08E33C04920AB7D63F4BB5A42C2C16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563958   (501573) от 17.07.2022
-
-Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Charli XCX - Hot In It
-02. Imanbek & BYOR - Belly Dancer
-03. Sigala - Melody (Tiësto Remix)
-04. Obskür - In Da Club Quarantined X(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826EEE632556A5F14F897D4AB7EAD1D0F862974A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317356   (501484) от 31.07.2019
-
-A Hundred Birds - To The EdEN (2007) [MP3|320 Kbps] <Ambient, Jazzdance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Birds feat. TeN - Feeling Your Bright Light (Album Version) (5:54)
-02. A Hundred Birds feat. TeN - Jungle Kitten (6:24)
-03. A Hundred Birds feat. TeN - Because THe Way Love Is (Album Version) (5:20)
-04. A Hundred Birds - Love Is A Master of Disguise (5:40)(   Читать дальше...   )Жанр: Ambient, JazzdanceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18B7221388303A74CD6CE170F45F396CDF5C0B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1357346   (973157) от 04.02.2020
+
+Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973157.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:29| 01. Ballade in C# Minor: Coronation
+|01:16| 02. Estampie - Eastcheap
+|05:12| 03. Song of Hal: Strings in C# Minor
+|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357340   (973155) от 04.02.2020
+
+Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Ready or Not Overture (04:24)
+02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
+03. Brian Tyler - Family Members Only (03:42)
+04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30891C3B1899422CD06F4EB111F863C91B63DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929291   (973131) от 14.01.2016
+
+Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrack, Bonuses, Singles (2012-2015) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soundtrack, ScoreПродолжительность: 06:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F17F67E53E209356CA5972ED01F857B964FDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357339   (973091) от 04.02.2020
+
+Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Ready or Not Overture (04:24)
+02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
+03. Brian Tyler - Family Members Only (03:42)
+04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6459EC20B29C9D32EAE310F6FB7D8B90937B6FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744272   (972156) от 11.01.2014
 
 David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
@@ -635,122 +748,6 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358712   (967311) от 09.02.2020
-
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358713   (967229) от 09.02.2020
-
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745789   (967218) от 15.01.2014
-
-VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilary Stagg - Inspirations (6:32)
-02. Paul Machlis - Nightblossom (3:43)
-03. Gary Malkin - The First Night (2:37)
-04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358716   (966978) от 09.02.2020
-
-VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966978.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

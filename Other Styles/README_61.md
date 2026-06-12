@@ -1,3 +1,116 @@
+###  Публикация: 1023012   (726072) от 04.06.2016
+
+Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squirrel Formation (03:02)
+02. Shredder (03:38)
+03. Tartaruga Brothers (03:00)
+04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023023   (725727) от 04.06.2016
+
+Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Черепашки-ниндзя 2 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squirrel Formation (03:02)
+02. Shredder (03:38)
+03. Tartaruga Brothers (03:00)
+04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122837101E08B08A365D33AB4B527A92A306FE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667829   (725526) от 14.06.2013
+
+Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [APE|Lossless]<New Age, Progressive Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Progressive Rock, Ambient, Art RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218186   (725089) от 08.04.2018
+
+VA - Classical Is Sexy A Rousing Collection Of Homophonic Melodies Vol.1 (2018) [MP3|320 Kbps] <New Age, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir Alan Cosmono - Violin Concerto In A Minor 4:27
+02. Trina Marquez - Concerto For Violin in D major op. 61 9:43
+03. Gordon Matsumoto - Brandenburg Concerto 3:24
+04. Lima Musica - Suite In F 3:36(   Читать дальше...   )Жанр: New Age, ClassicalПродолжительность: 02:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB98814C82ADE7344FA842B7E423C97A3AA36CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399593   (724996) от 02.08.2020
 
 The Royal Philharmonic Orchestra - ABBA Classic (1991) [FLAC|Lossless|tracks + .cue]<Easy Listening, Instrumental Pop>
@@ -623,119 +736,6 @@ Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177414   (720743) от 04.08.2020
-
-Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Pa Ti (C. Santana) (04:36)
-02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
-03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
-04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199459   (720740) от 04.08.2020
-
-VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Close Your Eyes		(04:24)
-02 - Three Times A Lady			(03:10)
-03 - Stronger Every Minute		(03:24)
-04 - Believe In Miracles		(04:44)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456B8085FEBD9220A93D0D5CD2B5D64CF0FDC63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261497   (720732) от 04.08.2020
-
-VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128936   (720714) от 29.04.2017
-
-Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Celt (Introduction) (1:01)
-02. Oroshay (3:00)
-03. The Primal Gods (2:27)
-04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1182224   (317066) от 10.11.2017
+
+Collage - I Grandi Successi (1997) CD [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляция из альбомов 1977, 1978, 1980 годов.01. Concerto d' amore (3:38)
+02. L' istinto (3:03)
+03. Io (4:00)
+04. Proprio per te Maria (2:44)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, EuropopПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2DECE0823A796B0010CE2C71DA8B23375791CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959197   (316968) от 24.11.2015
+
+Monica Naranjo - La mas perfecta coleccion (2011) [MP3|320 кб/с]<Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	El Amor Coloca	4:01
+02.	Solo Se Vive Una Vez	4:11
+03.	Oyeme	4:58
+04.	Sola	4:08(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF677C4EFA96D91A08D565FD1DA89057D6E78931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959451   (316964) от 24.11.2015
+
+Monica Naranjo - Tarantula (2008) [MP3|320 кб/с]<Electronic, Rock, Pop, Electro, Dark Ambient, Symphonic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316964.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Europa	7:122
+2	Todo Mentira	3:47
+3	Usted	3:45
+4	Para Siempre	5:12(   Читать дальше...   )Жанр: Latin, Electronic, Rock, Pop, Electro, Dark Ambient, Symphonic RockПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA4246D45F3048C8668A109E85A1F1235BCEE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421822   (315295) от 06.11.2020
 
 Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dance>
@@ -690,93 +777,6 @@ Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A04B1EFEF486E89BDA95B89CA619566B412EE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261208   (305336) от 10.11.2018
-
-Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture
-02. Hymn
-03. Sogni
-04. Sky And Sand(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136E480FD70D955FA106E6703661BDC2FD53D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422841   (304171) от 11.11.2020
-
-Workout Music Tv - Best Of 128 Bpm Songs 2020 For Fitness & Workout [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intentions - Workout Remix 128 Bpm (4:52)
-02. Roses - Workout Remix 128 Bpm (4:35)
-03. No Time To Die - Workout Remix 128 Bpm (5:17)
-04. Gaslighter - Workout Remix 128 Bpm (4:36)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9817F337CD5964E81329557A0F428DFEB66510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183899   (303602) от 16.11.2017
-
-MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roots
-02. When I Was Young
-03. Turn My Heart to Stone
-04. Linking With You(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762E074617CE0A05BE1675E46A7DBA8A2E9D6A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

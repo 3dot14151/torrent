@@ -1,3 +1,32 @@
+###  Публикация: 1233786   (578273) от 01.07.2018
+
+Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uprisings (07:30)
+02. Osterbro (02:22)
+03. Time (08:34)
+04. Vegan (02:59)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D92E91F35FB5514AF7188F6B10ADE7DC477777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303368   (574457) от 20.05.2019
 
 Cholosus - Momentum EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
@@ -709,35 +738,6 @@ Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EC0914A6D0583287DBE3AEC6DED1035D8999CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238858   (544658) от 01.08.2018
-
-The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Post Rock, IDM, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 BC (03:58)
-02. Chill Kingdom (03:48)
-03. Wudao (04:26)
-04. Lost Symphony (03:45)(   Читать дальше...   )Жанр: Downtempo, Post Rock, IDM, AmbientПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
 ```
 
 https://mybot314.ru/tekegram_catalog/

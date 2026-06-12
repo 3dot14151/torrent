@@ -1,3 +1,151 @@
+###  Публикация: 516847   (647529) от 01.07.2012
+
+Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647529.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Keiner Singt Gern Allein (I Shall Sing)
+2. Dieser Sänger Braucht Nur Ein Chanson
+3. Sie War Ooh!
+4. Ich Hab' Mich Verliebt
+5. In Versailles In Dem Grossen Garten
+6. Meines Vaters Sohn (Un Cadeau De Papa)
+7. Schöne Grüsse An Mama
+8. Septemberwind (L'ete Indien) (Africa)
+9. Immer Weiter
+10. Es Gibt Mädchen So Zum Träumen(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032171   (647526) от 06.07.2016
+
+Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb
+02. Over You
+03. As Much As You Say
+04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032111   (647524) от 06.07.2016
+
+Фристайл - И новое и лучшее (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Измученное сердце 4:20
+02. Соседка 4:01
+03. Обидно мне до слёз 3:49
+04. Последняя ночь 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74724DA49B66E5DF42C8BDFC4D08A142B9CA207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516957   (647397) от 01.07.2012
+
+Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647397.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: DiscoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032142   (647374) от 06.07.2016
+
+VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Технология / Полчаса [3:22]
+02 - Комбинация / American Boy [4:43]
+03 - Рома Жуков / Млечный путь [4:28]
+04 - Мираж / Скорость [4:20](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517524   (647147) от 01.07.2012
 
 Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
@@ -614,151 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CF33DD8629987D4A7EEBC8F3EFF977D8C44BFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141986   (646510) от 12.06.2017
-
-Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Never Be Myself When You're Around
-02. Just Like You
-03. Hands In The Dark
-04. Lady Night Drive(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE578E0A4924F25757519A0A02AE607621B47B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142014   (646326) от 12.06.2017
-
-Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry
-02. Candy
-03. Headlight's Glare
-04. Ceremony(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032321   (645853) от 07.07.2016
-
-Алиса Мон - «Потанцуй со мной» (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Орхидея (4:30)
-02. Мало ли, что (3:55)
-03. Стань моим (4:11)
-04. Тет-а-тет (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A2756ECB53D9F82F35413630D348E35FAC06C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032426   (645845) от 07.07.2016
-
-Londonbeat - 2 Albums (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.99 (3:28)
-02.Back In The Hi-Life (4:42)
-03.Where Are U (3:48)
-04.J-Lo (3:34)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19AE3066D20B2991C479AB425952651FC4C4706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032398   (645840) от 07.07.2016
-
-VA - Fancy & Friends (2010) [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Micheal Jackson For Siegfried & Roy - Mind Is The Magic (Anthem For The Las Vegas Show) (3:32)
-02.Siegfried & Roy - White Lions (2:57)
-03.Pet Shop Boys - Westend Girls (5:03)
-04.Pet Shop Boys - One More Chance (5:09)(   Читать дальше...   )Жанр: Pop, EuroDiscoПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284FE91BAC070D0F2977A716C94B460FB8AA22FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

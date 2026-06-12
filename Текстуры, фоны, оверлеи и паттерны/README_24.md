@@ -1,3 +1,29 @@
+###  Публикация: 590687   (141370) от 17.12.2012
+
+Фоны - Фоны для коллажей [JPEG,PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны для коллажей,  Предметы старины - письмо, свеча, бумага, перо, ключи.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC596299512A5B855E4C272B2B3D1C4262A9A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195892   (137382) от 31.12.2017
 
 Текстуры - Mastering CGI - Surface Collection 2.0 [TIFF, PNG]
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB0B94FA8F475A7F4007B1F32BB271BD0B5957A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790760   (68030) от 10.04.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Free Grunge Marble Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F36D9A390A7E62F7F31FC2112A9EC4BB5BDE90
 ```
 
 https://mybot314.ru/tekegram_catalog/

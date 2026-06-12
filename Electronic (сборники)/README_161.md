@@ -1,3 +1,32 @@
+###  Публикация: 1071246   (361947) от 09.11.2016
+
+VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Emotional, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Rush - Temptation (Original Mix) 7:59
+02. O.B.M Notion & Cosmic Heaven - Melancholy (Original Mix) 7:42
+03. Fabio XB & Mike Saint-Jules - Throne (Original Mix) 6:22
+04. Aurosonic & Neev Kennedy - Now I See (Club Mix) 7:31(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting Trance, Emotional, HarmonicПродолжительность: 08:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070905   (361881) от 09.11.2016
 
 VA - in FABRIC style: House - Compiled by Mistik (2016) [MP3|320 Kbps] <Electronic, House>
@@ -736,35 +765,6 @@ VA - Chill Acoustic (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC093B10F80A195851E5ED351DD8A7F515AE827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952278   (356194) от 01.11.2015
-
-Lotus Space - Music for Chillout & Dreaming (2015) [MP3|320 кб/с]<Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddha's Smile
-02. High Emotion Sunset
-03. Ganesha's Surprise
-04. Ganja Dreams(   Читать дальше...   )Жанр: Downtempo, ElectronicПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9240D7BD1B15088870324EFBDD05C98E7616BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1580260   (331844) от 30.09.2022
+
+VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt Markus Schulz - Into My Arms (Markus Schulz Remix) (3:54)
+02. Costa Neev Kennedy - My Own Way (4:01)
+03. Cosmic Gate Diana Miro - Hear Me Out (4:39)
+04. Tom Boldt Rozemary - Till We Turn The Tide (3:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664BC01346D992A572D222FC5795DF7664083B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580421   (330814) от 01.10.2022
+
+VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordy Eley - Nova (Original Mix) (4:13)
+02. NoMosk - Better For You (Extended Mix) (3:19)
+03. Milad E & David Deere - Got You (Extended Mix) (5:05)
+04. Jon The Dentist - Global Phases (Aimoon Extended Remix) (6:31)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957357   (327667) от 17.11.2015
+
+VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icone - Outer Limits (Original Mix) (8:35)
+02. The Cracken - Pegaz (Original Mix) (6:20)
+03. Lostly - Take This Acid (Original Mix) (7:34)
+04. Rich Smith - Nightfall (Original Mix) (7:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581347   (327287) от 05.10.2022
 
 VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0055F61CE21BE597D8ED85BAFE7741FBD3DB38E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182313   (317058) от 10.11.2017
-
-Basil O'Glue - Depth Of Field (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoic Memories (Original Mix)
-02. Everyone Has A Story (Original Mix)
-03. Astarte (Original Mix)
-04. Hoax (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064B4DACAE528F0088E5AF5F279142281F923997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332196   (316662) от 19.10.2019
-
-VA - Black Hole Trance Music 10-19 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciaran McAuley feat. Clare Stagg - All I Want (Extended Mix)
-02. Cosmic Gate - Light Years (Extended Mix)
-03. Late Night Alumni - Empty Streets (ALPHA 9 Extended Remix)
-04. Ferry Corsten & Johnny B - Hear It Now (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D549D6DE46869BADB66BBD670350B0A0976B8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182534   (315106) от 11.11.2017
-
-VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)  6:39
-02.  Nifra - Never Forget (Extended Mix)  6:15
-03.  Cosmic Gate & JES - Materia (Extended Mix)  7:11
-04.  Gai Barone - Bus-Hill (Extended Mix)  8:56(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B2E3B60BBD507EE795605AAF32611BEA32A927
 ```
 
 https://mybot314.ru/tekegram_catalog/

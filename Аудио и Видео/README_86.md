@@ -1,119 +1,3 @@
-###  Публикация: 1522368   (758668) от 07.01.2022
-
-VA - Christmas Chill Out: Best for the Year 2022 (2022) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelo-K - Whatever You Need (Original Vocal Mix) (7:01)
-02. S.A.T - Awakening (Original Mix) (4:00)
-03. DJ Artak, Natune - I Am Saved (Original Mix) (4:35)
-04. Angelo-K - Along the Coast (Extended Mix) (8:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FF4DA4552FC3D67A63C02CB4767A76E64AC504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522405   (758663) от 07.01.2022
-
-VA - Yoga Music Session 2: Music for Relaxation & Meditation (2019) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tigerforest - Bellefontaine (Original Mix) (5:34)
-02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
-03. Elmara - Northern Lights (Original Mix) (3:38)
-04. Eskadet - Te Revoir (Original Mix) (6:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F102D1BF77FFCB9C6129FE01E400B5F42FB1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522406   (758657) от 07.01.2022
-
-VA - Yoga Music Session 3: Music for Relaxation & Meditation (2022) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-02. Dyan Garris, Sherry Finzer - Forest Whispers (5:20)
-03. Dellasollounge - Fantasy (Original Mix) (5:23)
-04. Ann Grace - Intromotion (1:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2884C8FD91A67D2BDC5B70C153F8C215FA02F097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522404   (758655) от 07.01.2022
-
-VA - Yoga Music Session 1: Music for Relaxation & Meditation (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Matterhorn (Original Mix) (4:05)
-02. Prana Tones - Eastern Zen (Original Mix) (3:12)
-03. La Estación Del Mar - Punta Begona (Original Mix) (3:35)
-04. Velvet Dreamer - Mystic Traveller (Eskadet Remix) (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9270C4D30489C236D28BF1C2DD1FE9D114A1B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280596   (758511) от 04.02.2019
 
 Вдовы / Widows (2018) BDRip [720p] ATV
@@ -691,6 +575,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE665A7EE50519C7D450790DEDF1AFA2C2D1C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887999   (757036) от 13.04.2015
+
+Искатель воды / The Water Diviner (2014) BDRip [1080p] ATV [Line]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в 1919 году. Это история об австралийце, который отправляется на полуостров Галлиполи, где во время Первой мировой войны проходила ожесточенная битва, чтобы разыскать тела своих погибших сыновей. И неожиданно для себя он обретает надежду там, где и не мыслил ее найти.Производство: Австралия, Турция, США / © 2014 Diviner Holdings Pty Ltd, RatPac Entertainment LLCЖанр: драма, военныйРежиссер: Рассел КроуАктеры: Расселл Кроу, Джай Кортни, Ольга Куриленко, Изабель Лукас, Дэймон Херриман, Жаклин МакКензи, Джем Йылмаз, Йылмаз Эрдоган, Меган Гэйл, Райан Корр и др.Перевод: ДублированныйОзвучка / Автор перевода: (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7183D1E1FB9E1FF890C8E18952CE61D9C44E83B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522482   (757032) от 08.01.2022
+
+VA - Winter Grooves: Urban Chillout Music (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dacosta - Sunset Boulevard (4:16)
+02. Pier-O - Night Sky (5:43)
+03. sarosa - Interstellar (Original Mix) (4:30)
+04. Digby Jones - Kaleidoscope (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F10E43AC4A02721ED2614F7CC00F6DEE0D3807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522598   (757028) от 08.01.2022
+
+VA - Ethno 3 (2019) [AAC|~323 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ala Chokri - Spirtual Touch (6:48)
+02. Wassim Younes, De La Troupe, Andy Khouloussy - Mitt Tempel (8:16)
+03. Nikos Kaponis - Angelitos Negros (5:27)
+04. Professor - Imany (7:09)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463D69662CB69793856574E58540391C8DC41307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522657   (757026) от 08.01.2022
+
+VA - Guatemala Orange: Latin Chill Music (2021) [AAC|~322 Kbps] <Chill Out, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincenzo Ricca - 50 Years of Bossa (3:39)
+02. Brazil Beat - Aguas De Marco (3:02)
+03. Francesca Gramegna - All to Lose (3:54)
+04. Giacomo Bondi - Aquarelo (4:28)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A4A9EFAF205EAEF6CB2E362B47322173F79A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

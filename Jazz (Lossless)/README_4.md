@@ -1,3 +1,61 @@
+###  Публикация: 1609480   (1043243) от 03.02.2023
+
+Michael Broening - Never Too Late (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light (6:47)
+02. Summer In Blue (4:29)
+03. Let It Breathe (4:03)
+04. Marion Meadows -- Talk To Me (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59898A56D851901FC274FFC3EC264AF17D90034B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609645   (1043186) от 04.02.2023
+
+Adam Rogers - Time And The Infinite (2007) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night and Day [5:39]
+02. Elegy [5:44]
+03. Time and the Infinite [3:23]
+04. Young and Foolish [7:10](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE2F8137557FE39A26DBF4D1B8E80D72DB35F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609719   (1043167) от 04.02.2023
 
 Carlos Camilo - Groove from beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
@@ -687,64 +745,6 @@ Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C8FC2C05283354BEB44770D4296F2F02B0C98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611788   (1040842) от 13.02.2023
-
-VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah Washington - Big Long Slidin' Thing (2:59)
-02. Julia Lee - King Size Papa (2:43)
-03. Hadda Brooks - Romance in the Dark (3:16)
-04. Little Esther - Aged and Mellow (2:46)(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E056C8748F63C1E6FFB6DEC3F87240EFC8225848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438846   (1040654) от 10.01.2021
-
-Max Roach - The Complete Mercury Max Roach Plus Four Sessions (1956 - 1960) 7CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040654.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mr. X [5:18]
-02. Body and Soul [6:54]
-03. Just One of Those Things [7:21](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 08:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B39C77BDA2BFAF1E18A6DAADD9E93AE17E5BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

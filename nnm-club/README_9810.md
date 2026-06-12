@@ -1,22 +1,440 @@
-###  Публикация: 899318   (673280) от 19.05.2015
+###  Публикация: 1223506   (673462) от 05.05.2018
 
-Журнал | Приготовь. Спецвыпуск №6. Из зелени (июнь 2015) [PDF]
+И. А. Гладков (ред.) | К истории плана электрификации Советской страны (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник документов и материалов «К истории плана электрификации Советской страны» имеет целью показать, как партия Ленина — Сталина и советское правительство создавали первый план великих работ — план электрификации страны, как рабочий класс, трудящееся крестьянство и советская интеллигенция под руководством большевиков начали с первого года социалистической (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3728444ADF5A49641A3C033FFBB801F6101271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223497   (673461) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа B. США — Канада (04.05.2018) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673461.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа B
+США — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00793D83F5307D744CB6AE777087527CA542B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223609   (673460) от 05.05.2018
+
+Газета | Дача и жизнь №5 (48) (май 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание является отличным помощником для тех у кого есть дача! Ведь так хорошо вырваться из загазованного и душного города на ухоженный дачный участок, чтобы можно было попариться в баньке, пожарить шашлык и подать к нему выращенные своими руками овощи. А после этого заварить чай на ягодах и целебных травах, собранных своими руками. Проще говоря все это — дача (   Читать дальше...   )Жанр: Дача, огород, садФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241690B629F79B9B6BDE2C654F03046CEE5D3BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223409   (673459) от 05.05.2018
+
+VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbps] <Pop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandi See - Crow Maiden
+02. Angela Predhomme - Just Like Magic
+03. Patrick Joseph - Foot In The Door
+04. Larry Warren - You Can Change The World(   Читать дальше...   )Жанр: Pop, DowntempoПродолжительность: 02:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223318   (673458) от 05.05.2018
+
+Игумен Нектарий (Морозов), Инна Стромилова | Ходящие во тьме. Чем опасно обращение к экстрасенсам и магам? (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой несколько бесед саратовской журналистки Инны Стромиловой со священником — настоятелем храма святых первоверховных апостолов Петра и Павла г. Саратова, руководителем информационно-издательского отдела Саратовской епархии, главным редактором газеты «Православная вера», известным журналистом и блогером игуменом Нектарием (Морозовым) о таком (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0CCEB5B213A82D52FF44BAAD2E52922D2963F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223614   (673457) от 05.05.2018
+
+The Simon Orchestra - Mr. Big Shot (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Big Shot (7:59)
+02. Love Is Comin' On (9:15)
+03. Don't Give Up (8:37)
+04. I Close My Eyes And Count To Ten, Dancing Suite (8:20)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985439CDACF8A552E05DB7F60F935E810632DE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797807   (673436) от 20.06.2014
+
+Wallpapers - New Mixed HD Wallpapers Pack (19.06.14) [JPEG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые, яркие и сочные обои для вашего настроения только в HD)Разрешение файлов: 1680x1050 - 2560x1600Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6115F034D81B221645C1399800BAC2DD5386EDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223243   (673423) от 05.05.2018
+
+C. И. Мицкевич | Революционная Москва [1888-1905] (1940) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя политически сознательная жизнь началась в середине 80-х годов.
+
+Это было интересное время — время крушения и разложения народничества и появления на русской почве первых ростков марксизма.
+(   Читать дальше...   )Жанр: История, политология, публицистика, автобиографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891C9671DAA8E92762A1D62AC72A045BC036F9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223401   (673422) от 05.05.2018
+
+Александр Тафинцев - Спасибо судьба (2018) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя сторонка
+02. Чакино
+03. Наташа
+04. Роза белая(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40988E8ADCB6650BDDD307BB4EC03E8F5BC2BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223495   (673421) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673421.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа A.
+Россия — Франция(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152E34A8FBB22B8EB1E7AA9DBEDBE17DEF988AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223416   (673420) от 05.05.2018
+
+Текстуры - Creative Market - 50% discount - 180 colorful Marbles! - 778176 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.
+Автор: Art of Sun.Формат: JPGРазрешение файлов: 3750x2734 - 4000x2916
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1710930624BED09D23FA504569A3FF1D82507154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223629   (673419) от 05.05.2018
+
+The Future Sound Of London - My Kingdom (Re-Imagined) (2018) FSOLDigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Kingdom - Path 7 (11:40)
+ 02. Transient Empires (01:53)
+ 03. Collapsed Structures (05:38)
+ 04. Sound Shadow (01:00)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, LeftfieldПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5675FCE2703AF7C248C216D0949427607FC4A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223346   (673418) от 05.05.2018
+
+Анна Матвеева | Завидное чувство Веры Стениной (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673418.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Завидное чувство Веры Стениной" - история женской дружбы-вражды. Вера, искусствовед, мать-одиночка, постоянно завидует своей подруге Юльке. Юльке же всегда везет, и она никому не завидует, а могла бы, ведь Вера обладает уникальным даром - по-особому чувствовать живопись: она разговаривает с портретами, ощущает аромат нарисованных цветов и слышит музыку, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4830D3B849FEB9CBC968B7D4AB75A5E09C26A6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223503   (673417) от 05.05.2018
+
+Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. I Wanna Get A Gun 5:00
+02. Crazy Woman 2:44
+03. pussy 2:12
+04. Mighty fine time 3:39(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223628   (673416) от 05.05.2018
+
+Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bésame Mucho 3:14
+02. It's Impossible (feat. Nathan East) 3:05
+03. C'est Magnifique 2:52
+04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223596   (673415) от 05.05.2018
+
+Газета | Готовим вкусно! №5 (176) (май 2018) [PDF]
 
 >>Журналы
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Летом появляется много свежей зелени - пряной, насыщенной полезными витаминами и микроэлементами, и обладающей освежающим эффектом. Но травы можно класть не только в салаты и окрошку, они могут стать основным ингредиентом супов, горячих блюд, выпечки и напитков. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+"Готовим вкусно" - издание для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере - кулинарные рецепты изысканных и "модных", повседневных блюд, и блюд национальной кухни, здорового питания и экономной кулинарии: (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D252769FB457EE3365A01B363CAC6BA169BD64
+magnet:?xt=urn:btih:1B7316CDEF85010C37BC995A1F7883873B1D570A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +442,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 899440   (673275) от 19.05.2015
+###  Публикация: 1223580   (673414) от 05.05.2018
 
-Notepad++ 6.7.8.1 Final + Portable [Multi/Ru]
+Журнал | Садовод и огородник №9 (май 2018) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C407D526CAC9D1661E6F462F227883E989EF217B
+magnet:?xt=urn:btih:6A58564372A70BD67378B0F96602A34D6610A999
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 215078   (673269) от 01.07.2010
+###  Публикация: 1223650   (673413) от 05.05.2018
 
-Фёдор Тютчев | Нам не дано предугадать... [Сборник поэзии] (2008) [MP3]
+Журнал | Огородник №5 (май 2018) [PDF] [Ru, Ua]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В поэзииЖанр: Поэзия, БиографияИздательство: АРДИС
+«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A950E85F9B3AA028BC2C8C7A125491A41FF63D9E
+magnet:?xt=urn:btih:31162BB6F98A3569B11B49683D6C94C7204653B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,28 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136676   (673249) от 23.05.2017
+###  Публикация: 1223577   (673412) от 05.05.2018
 
-Duke Ellington - Mood Indigo (1927 - 1936) 1989, Pro-Arte Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Газета | Наша кухня №5 (267) (май 2018) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cotton Club Stomp [02:56]
-02. Black and Tan Fantasy [03:10]
-03. Creole Love Call [03:15]
-04. Black Beauty [02:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:31
+«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1027D5D73E37587B07862574934EACDE2E5920DE
+magnet:?xt=urn:btih:52ADBF89785B7609FC38D06A4311FE5E5E5D9276
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136600   (673248) от 23.05.2017
+###  Публикация: 1223648   (673411) от 05.05.2018
 
-Duke Ellington - The Conny Plank Session (1970) 2015, Gronland Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Журнал | Золотые рецепты наших читателей №9 (май 2018) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alerado (take 1) [03:58]
-02. Alerado (take 2) [04:00]
-03. Alerado (take 3) [03:26]
-04. Afrique (take 1) [07:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:29:25
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4EE5D5FE4D5F6D8CBBD2B506D8DE231135AD111
+magnet:?xt=urn:btih:557AE0E49A9F740496D5886D3C5D57DD6D8AC98D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,286 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136612   (673247) от 23.05.2017
+###  Публикация: 1223347   (673410) от 05.05.2018
 
-Duke Ellington - Sophisticated Lady: Duke's Greatest Hits (1992) Classic Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sophisticated Lady [03:45]
-02. Harlem Speaks [03:11]
-03. In a Sentimental Mood [03:20]
-04. Merry-Go-Round [03:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B7DCB23B2EDAEA3A3429D94001885DB94D3F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136468   (673246) от 23.05.2017
-
-VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor V feat. Nina R - With My Soul 04:58
-02. Petros Odin - Sanity (feat Antony Lazos - Sax & Lovers mix) 06:23
-03. V-Sag - Apnoea 06:16
-04. DSF, Dino MFU - The Way I Loved You 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883DD7780D8B691D9EDC027FD7DDA5054D1B6D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136594   (673245) от 23.05.2017
-
-Dizzy Gillespie - The Greatest Of Dizzy Gillespie (1946 - 1949) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [03:08]
-02. Dizzier and Dizzier [03:07]
-03. Night in Tunisia [03:09]
-04. Anthropology (take 1) [02:40](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26499F382D54B0B2C2E5CC4C379052446CAF5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136597   (673244) от 23.05.2017
-
-Duke Ellington - The Essential Recordings (1930-e - 1940-e) 1993, Charly Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ko-Ko [02:45]
-02. Jack the Bear [03:17]
-03. Conga Brava [02:57]
-04. Concerto for Cootie [03:17](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9D5A6F1BC1A9D25A847AD4876999CAD46840A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136745   (673243) от 23.05.2017
-
-BBEdit 11.6.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673243.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 мая 2017Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827FEFE74AE300026A7081B188E5A7FF75DD2C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136603   (673242) от 23.05.2017
-
-Duke Ellington - The Complete Newport 1958 Performances (2014) 2CD, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673242.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction by Willis Connover [01:13]
-02. Take the 'A' Train (Theme) [00:46]
-03. Princess Blue [11:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D6F094E7E72F48FE742A126CFAB63EFF4860F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136606   (673241) от 23.05.2017
-
-Tomasz Stanko New York Quartet - December Avenue (2017) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud [04:14]
-02. Conclusion [02:02]
-03. Blue Cloud [08:53]
-04. Bright Moon [07:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058FAD6ED761654A955518818C3CDFCB07458538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136652   (673240) от 23.05.2017
-
-Dave Weckl - Heads Up (1992) [FLAC|Lossless|image + .cue] <Fusion, Latin Jazz, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7th Ave. South (5:13)
-02. Heads Up (6:40)
-03. Taboo (5:21)
-04. Tomatillo (5:34)(   Читать дальше...   )Жанр: Fusion, Latin Jazz, Jazz-RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786A5853371C182928319940608ABE3FF4FA662B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136681   (673239) от 23.05.2017
-
-Duke Ellington - Falling in Love with Duke Ellington (2000) RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Sentimental Mood [03:04]
-02. I Didn't Know About You [02:48]
-03. Every Hour on the Hour [03:04]
-04. Lotus Blossom [05:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81D921E40D042655D95CB8443EE5D5D167F2108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136680   (673238) от 23.05.2017
-
-VA - Dangerous Dance Vol 2 (2017) [MP3|320 Kbps] <Funky, Tech House, Minimal>
+VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Lorenz - Acropolis (Strich Acht Remix) 05:48
-02. Sinan Kaya - White Burst (Aleja Sanchez Remix) 07:22
-03. The Greengo - Deep Flight 07:20
-04. Sean M - His Weakness In Chicago 06:58(   Читать дальше...   )Жанр: Funky, Tech House, MinimalПродолжительность: 02:35:12
+001. Akcent feat. Reea - Stole My_Heart
+002. Burak Yeter - French Kiss
+003. Camila Cabello feat. Kane Brown - Never Be The Same
+004. Dan Balan feat. Matteo - Allegro Ventigo(   Читать дальше...   )Жанр: Dance, Club, R&BПродолжительность: 06:45:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7AB241B449FB7C8874A9A813830D6628EBCF810
+magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,28 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136441   (673237) от 23.05.2017
+###  Публикация: 1223642   (673409) от 05.05.2018
 
-Rabbitt - A Croak and a Grunt in the Night (1977) 2006, Remastered [APE|Lossless|image + .cue] <Rock, Pop Rock>
+Журнал | Дом и Интерьер №5 (май 2018) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. T.C. Rabin In D-Minor [0:00:25.40]
-02. I Sleep Alone [0:02:52.50]
-03. A Croak & A Grunt In The Night [0:02:36.50]
-04. Everybody's Cheating [0:04:09.09](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:48:16
+Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: Архитектура, строительство, дизайнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41C56B347E20F5CA8F8991961A9E60604747F0AE
+magnet:?xt=urn:btih:C661E2D9122A830029E6B52BAE1B4B7D7B6178F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136485   (673236) от 23.05.2017
+###  Публикация: 1223597   (673408) от 05.05.2018
 
-VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
+Журнал | Секреты кухни №5 (129) (май 2018) [PDF]
 
->>Electronic
->>House
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daniel Butler – Avit (Kamil Crush Remix) 06:26
-02. Aaren San – Garuda (Original Mix) 06:50
-03. Elan Myles – Wonderland (Original Mix) 07:11
-04. Javi Garcia – Hot Night In The Beach (Tony Flex Remix) 07:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:57:07
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7FE8F8D56CAC79FC4A66B205AAD4890280A9EE4
+magnet:?xt=urn:btih:AC3E4A8359BDEA6DA46E061B201165993D47F09E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,82 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136664   (673235) от 23.05.2017
+###  Публикация: 1223436   (673407) от 05.05.2018
 
-Markus Schulz - Global DJ Broadcast - (guest Paul Oakenfold) (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz played:
-01. Above & Beyond feat. Justine Suissa – Alright Now (Above & Beyond Club Mix)
-02. Claus Backslash – Mysterious WaysЖанр: Trance, Progressive TranceПродолжительность: 02:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3670FFEDA7597175EBBA7C6494F1A3F3924C0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136569   (673234) от 23.05.2017
-
-Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1:09 (5:12)
-02. 1:13 (3:48)
-03. 1:30 (3:40)
-04. 1:42 (4:53)Жанр: Electronic, HouseПродолжительность: 00:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F8F34C3E16174E6E6D023FB90710C4E9B91F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136540   (673233) от 23.05.2017
-
-Вечерний Ургант (2017.05.22) SATRip
+Преступления страсти (2017) DVB
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:26:31Реклама: Присутствуют вставки текстовой рекламы
+От ран, наносимых любовью, не защищён никто: ни богатые, ни бедные, ни обычные люди, ни знаменитости… В жизни звёзд случались трагедии пострашнее, чем самые буйные фантазии сценаристов. "Оленька, милая моя, любил ли кто тебя, как я", – такие строки адресовал своей бывшей жене цирковой артист Игорь Запашный уже после того, как убил и упаковал в чемодан тело (   Читать дальше...   )Телекомпания: Россия / ООО "ЦЛ КириллицаЖанр: Документальный, Искусство, БиографияСубтитры: Русские, телетекстПродолжительность: 00:38:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07CE0612FBEEB1D89A7D4C49902625FDB228E4AF
+magnet:?xt=urn:btih:192DF35CD88A8049AC04447854E0DC687DD9E3B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,28 +653,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136738   (673232) от 23.05.2017
+###  Публикация: 1223458   (673406) от 05.05.2018
 
-The Dave Brubeck Quartet - Someday My Prince Will Come (1965) 1993, Jazz Hour [FLAC|Lossless|tracks + .cue] <Cool>
+Текстуры - Creative Market - 15 Authentic Marbled Paper Textures - 1054025 [JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Someday My Prince Will Come [06:22]
-02. One Moment [09:04]
-03. Joe's Blues [07:42]
-04. Take the 'A' Train [06:32](   Читать дальше...   )Жанр: CoolПродолжительность: 01:02:44
+Мраморные текстуры.
+Автор: Black Label Supply Co.Формат: JPGРазрешение файлов: 5500 x 3800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE9794737C2F475B7904F9B3A1B9AB1CB205D587
+magnet:?xt=urn:btih:A069557F4666D93023D5E409D421BA5CC715B92B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,139 +680,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136500   (673231) от 23.05.2017
+###  Публикация: 1223499   (673405) от 05.05.2018
 
-VA - Club Dance Ambience Vol.109 (2017) [MP3|320 Kbps] <Club House , Vocal House , House>
+Ю.П. Супруненко | Земля Донская. От Ростова-на-Дону до Азова [Исторический путеводитель] (2016) [PDF, DJVU]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex Heimann - Freed From Desire 2017 (Extended Mix) 5:30
-002. Ami - Ma omoara (Vadim Adamov & DMC Remix) (Radio Edit) 3:44
-003. Andrey Exx, Sharapov, Dave Baron, Chris Montana - I Feel Your Voice (Chris Montana Remix) 5:05
-004. Artik & Asti - Неделимы (DJ Konstantin Vertigo Radio Edit) 2:43(   Читать дальше...   )Жанр: Club House , Vocal House , HouseПродолжительность: 07:19:53
+Донская земля ведёт своё географическое начало от истоков до подковообразного изгиба уже у морского устья великой русской реки. Звучное имя этой реки в европейской части России удивительно сохранилось с древних времён, и слышалось оно как празднично призывный колокольный звон: Дон... Дон когда-то считался главной рекой на Руси, был кровно связан с её историей и народом. (   Читать дальше...   )Жанр: История. Научно-популярное изданиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2470B36DC125BA9352398DC1084DEA8700572706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136523   (673230) от 23.05.2017
-
-VA - Весенний хитовичок молодежный выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. U3u - Ток  Бьет 3:00
-002. Александр Кэтлин - Монстр 4:40
-003. Дидо Каримов - Раз И Навсегда 4:39
-004. Надежда Грановская - Беги От Меня 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797639   (673228) от 20.06.2014
-
-Двухсотлетний человек / Bicentennial Man (1999) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Айзека Азимова и Роберта Силверберга «Позитронный человек», базирующегося на оригинальной короткой повести Азимова «Двухсотлетний человек».
-
-Начало нового тысячелетия; происходит прорыв в глобальных технологиях. Люди уже не заводят дома собак и кошек: они покупают себе роботов. Вот и семья Мартинов приобретает себе необычный подарок: робота нового (   Читать дальше...   )Производство: Германия, США / 1492 Pictures, Columbia Pictures Corporation, Laurence Mark Productions, Radiant Productions, Touchstone PicturesЖанр: фантастика, драма, мелодрамаРежиссер: Крис КоламбусАктеры: Робин Уильямс, Эмбет Дэвидц, Сэм Нил, Оливер Платт, Кирстен Уоррен, Венди Крюсон, Халли Кейт Айзенберг, Линдзи Летерман, Анджела Лэндис, Джон Майкл ХиггинсПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520CEA3CE1FC794E2C9571BF2FFD1D21D34B7A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797285   (673219) от 20.06.2014
-
-Кремов, Хрусталев | Радиошоу  (2006 - 2013) [MP3, Александр Кремов, Дмитрий Хрусталев]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиозаписи радиошоу Кремова и Хрусталева с 2006 по 2013 годы в формате mp3.
-
-Кремов и Хрусталев – постоянные ведущие вечерней «Хочу и Басты» на Радио Рекорд. Оба – актеры. Имеют один диплом на двоих. Учились тоже вместе. Оба не любят манную кашу, пенку на молоке и программного директора Радио Рекорд. Но приходится терпеть.Жанр: юмористическое аудиошоу
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A9CB58CD48B4C4CE713D2AA110E604C9537BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797814   (673215) от 20.06.2014
-
-Воздушный маршал / Non-Stop (2014) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Межконтинентальный авиарейс. Билл Маркс, воздушный маршал, который обеспечивает безопасность пассажиров, получает сообщения с угрозами от маньяка-террориста. Преступник просчитал все ходы и подставил под обвинение самого спецагента. Теперь Маркс — цель спецслужб США. Ему остается одно: вычислить и обезвредить преступника, спасти пассажиров и свою любовь, которую (   Читать дальше...   )Производство: Великобритания, Франция, США, Studio CanalЖанр: Детектив, триллер, боевикРежиссер: Хауме Кольет-СерраАктеры: Лиам Нисон, Джулианна Мур, Скут МакНэйри, Мишель Докери, Нэйт Паркер, Кори Столл, Лупита Нионго, Омар Метуолли, Джейсон Батлер Харнер, Лайнас РоучПеревод: Дублированный (Лицензия)Продолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFD1AF6739B1E1E1B13532259C90A8EE59488DF
+magnet:?xt=urn:btih:05157D865733BCA777DA496D393E2340B216556D
 ```
 
 https://mybot314.ru/tekegram_catalog/

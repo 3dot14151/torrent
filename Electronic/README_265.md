@@ -1,3 +1,90 @@
+###  Публикация: 1234579   (569374) от 06.07.2018
+
+VA - Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roger Shah & JES - Star-Crossed
+02.Anske & Victoriya - Love Won't End
+03.Moonsouls & Marjan - Come Home
+04.Fabio XB & Betsie Larkin - Under Your Stars(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F273D38AA2285418F61A8848060D6815999C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234691   (569369) от 06.07.2018
+
+VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip J feat. Kim Casandra - Silent Emotion (Original Extended)
+02. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
+03. Saad Ayub & Christina Novelli - The Only One (Uplifting Mix)
+04. Sergey Lagutin - Waiting For (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8090B4B698EFE664816584B2155EDB96BBD6C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234638   (569361) от 06.07.2018
+
+Robert Rich & Markus Reuter - Flood Expeditions: The Gatherings, 19 May 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flood Expeditions: The Gatherings Part 1 (14:04)
+ 02. Flood Expeditions: The Gatherings Part 2 (12:21)
+ 03. Flood Expeditions: The Gatherings Part 3 (07:37)
+ 04. Flood Expeditions: The Gatherings Part 4 (16:15)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE7A5065EA30FF988F6F8118E0F2D5D0DC53FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234540   (569288) от 06.07.2018
 
 VA - Sports Music City Edition (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -655,104 +742,6 @@ Manu Shrine - Discography 12 Releases (2013-2015) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7806C7CE6383EA7736C96AA849AAF7CAF4850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363533   (566811) от 15.07.2011
-
-Depeche Mode - Best Of The Best (Remix Version) (2011) [MP3|320 kbps]<Pop, Dance>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_566811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Puppets (Rryksopp Remix) (4:41)
-2. World In My Eyes (Kaiser Uranium Cicada Remix) (7:03)
-3. Strange Love (David Dieu Remix) (6:08)
-4. Enjoy The Silence (Ken C Remix) (6:58)
-5. Personal Jesus (Covenant Remix) (8:24)
-6. A Question Of Lust (Remix) (5:10)
-7. Black Celebration (Kaiser Metro FX Dub Remix) (10:38)
-8. Freelove (MC Remix) (5:45)
-9. I Want You Now (Kaiser Extended Piano In Motion) (5:47)
-10. Halo (X-Tended's Reinterpreted Dance Mix) (5:52)(   Читать дальше...)Жанр: Electronic, Synthpop, Techno, Dance, Club, HouseПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F9F8665AD6B29A1C000ACC15B78DF7B7FAC531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923011   (566624) от 30.07.2015
-
-VA - Lounge Loungy (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vivian Holmes - Gentleman [03:25]
-02. Jess & Jess - Ventura [05:58]
-03. Double Go - Well & Ness [03:48]
-04. So Phistry - Lounge Me [05:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4D5686CA548ACFCE3028E4AE0CEA491800331F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529448   (566467) от 31.07.2012
-
-Triangle Sun - Diamond (2008) 2CD Deluxe Edition [FLAC|Lossless]<Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triangle Sun (Треугольное Солнце) - это группа-призрак, участники которой не дают интервью, не мелькают на экранах телевизоров, посвящая себя исключительно музыке, которая, так уж получилось, стала намного известнее своих создателей. Дебютировав в 2004-м году на Ибице, они стали первой российской группой, вышедшей в компиляции vol.13 знаменитого Cafe del Mar, и с тех пор являются завсегдатаями всемирноизвестных сборников lounge-музыки.01. Long Way :: 03:12
-02. Karelia :: 06:41
-03. Secret Desire :: 05:08
-04. Back To Infinity :: 02:10
-05. I Gonna Tell You :: 04:03
-06. Mistery Of Universe :: 05:05
-07. Buddha :: 06:51
-08. It's Heavy To Breathe :: 06:27
-09. Forever :: 02:25Жанр: Downtempo, LoungeФормат: 2xCD, Album, Deluxe Edition, DigipackПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

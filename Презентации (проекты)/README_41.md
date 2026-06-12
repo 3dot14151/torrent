@@ -1,3 +1,55 @@
+###  Публикация: 1320487   (470669) от 18.08.2019
+
+Проекты - VideoHive - Magazine Promo - 24065809 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magazine Promo - проект, содержащий все необходимое для создания реалистичной рекламы журнала непосредственно из After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF207E9C9A458683E8E348F60D5554C27D2E4F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939990   (470566) от 23.09.2015
+
+Проекты - VideoHive - Clean Corporate [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет для создания презентаций. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5D5EFC9F7F01E135160EEDD3875293BC86EA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160976   (469126) от 27.08.2017
 
 Проекты - VideoHive - Ultimate Awards Package - 20241366 [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E7BAD48302BB18635F3A5FD72839E7F88AD63C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321269   (460800) от 23.08.2019
-
-Проекты - VideoHive - Cooking Show - 19498604 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, который обязательно продвинет ваш кулинарный канал на You Tube и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88EADC0ADA7CF1B5D529B4712CC5965F0661086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321264   (460791) от 23.08.2019
-
-Проекты - VideoHive - 24 Broadcast News Opener Pack - 19344528 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460791.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 Broadcast News Opener Pack - телевизионная заставка, которую можно использовать для выпуска мировых новостей, спорта, прогноза погоды, экономических новостей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE6CE11E8FD0BDCF0C1E04723A8A71F73A66FF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1427444   (183606) от 28.11.2020
-
-Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Todestrieb (3:22)
-02. Relentless Horror (2:17)
-03. Erasing Reality (5:11)
-04. The Promethean Fire (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327D5E6FD93780FE1C9941A99C69F3000DD3F708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427556   (183564) от 28.11.2020
-
-DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/House, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: Electro, Techno/House, DiscoПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80585AEE1E510F3A0CA1826B2C376FF82FB360D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427447   (183535) от 28.11.2020
-
-The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Colour of Love (4:24)
-02. Confessions of a Dopamine Addict (3:14)
-03. Cyr (4:03)
-04. Dulcet in E (3:22)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344ABC7F79CD0251CFCE45CA88931891A9D2CB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427507   (183530) от 28.11.2020
-
-VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vald - Gotaga (2:18)
-02. Suikon Blaz AD - Echelon Music (3:02)
-03. Rafal - Magneto (2:39)
-04. SIRIUS - Après minuit (3:01)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427537   (183524) от 28.11.2020
 
 VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Lounge>
@@ -745,6 +629,122 @@ VA - Home Alone (On the Night Before Christmas) (2020) [AAC|~323 Kbps] <Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CDF7673E00D03DDAC23780C3389DE01A8775AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428259   (180933) от 01.12.2020
+
+VA - Good Morning Lounge: Chillout Your Mind (2019) [AAC|~309 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Silver Drops (Original Mix) (5:53)
+02. Michael e - It's Your Time (Original Mix) (6:05)
+03. Charlie North - Early Morning Call (Original Mix) (5:43)
+04. Finland & Aaskoven - Melzi (Original Mix) (4:19)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7160EC85EEA83594B150737E910BF4EE5262098E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428252   (180920) от 01.12.2020
+
+VA - Lovely Evening Lounge: Chillout Your Mind (2019) [AAC|~316 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Watching the Sky Go By (Original Mix) (5:28)
+02. Michael e - Conversations (Chill Mix) (5:50)
+03. Weathertunes - People Love (Original Mix) (4:47)
+04. Chillson, Marc Hartman - The Streets of Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAEB0F09B44632932F7BBEF2661E8011469377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428167   (180908) от 01.12.2020
+
+VA - Joyful Lounge: Chillout Your Mind (2020) [AAC|~302 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) (4:21)
+02. Mission Brown - Same Old Temptations (Original Mix) (4:34)
+03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (3:37)
+04. Luis Hermandez - A Tu Lado (Original Mix) (4:06)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3296963CF7974DB07894014C1EFEDE51CF29F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428270   (180903) от 01.12.2020
+
+VA - Jazz Leaves Lounge: Chillout Your Mind (2019) [AAC|~326 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Away in a Dream (Original Mix) (5:33)
+02. Michael e - Conversations (Original Mix) (5:26)
+03. Mission Brown - Starting Over (Original Mix) (4:53)
+04. Beamy - Azure Waters (Chillout Mix) (5:24)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D831C24F1EAF5146818F991E827313C54AFF452
 ```
 
 https://mybot314.ru/tekegram_catalog/

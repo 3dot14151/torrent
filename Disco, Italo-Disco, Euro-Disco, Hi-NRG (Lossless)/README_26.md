@@ -1,3 +1,32 @@
+###  Публикация: 1786478   (69042) от 20.03.2025
+
+VA - Disco Cuts (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chic - I Want Your Love (6:56)
+02. Candi Staton - Young Hearts Run Free (4:10)
+03. The Trammps - The Night the Lights Went Out (7:08)
+04. Peter Brown - Dance with Me (5:19)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC21AC153A0E26959DDE8F59D9EBE6D564AC2AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785990   (69032) от 20.03.2025
 
 Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -713,35 +742,6 @@ Marc Korn x Semitoo x Abrissgebeat - Crying At The Discoteque (Extended Mix) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2FFD7F3932D571025F5A95E2872895B10257F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729452   (53645) от 11.06.2024
-
-Discotron - Last Night A DJ Saved My Life (2017) [FLAC|Lossless|tracks] <Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron – Last Night A DJ Saved My Life (06:35)
-02. Discotron – Last Night A DJ Saved My Life (Audio Jacker remix) (06:05)
-03. Discotron – Last Night A DJ Saved My Life (radio edit) (04:20)
-04. Discotron – Last Night A DJ Saved My Life (Audio Jacker radio edit) (04:02)(   Читать дальше...   )Жанр: Nu-Disco, HouseПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8832AB2742D27B5457D9D5139A7606D3E65E4C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

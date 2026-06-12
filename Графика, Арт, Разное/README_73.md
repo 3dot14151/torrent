@@ -1,29 +1,3 @@
-###  Публикация: 530206   (562949) от 02.08.2012
-
-[Графика] Иллюстратор Ilya Astrakhan
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстратор Ilya Astrakhan
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE9BE1396FE54B960450D790B144EC3D74B8820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 814341   (561010) от 19.08.2014
 
 Wallpapers - Sexy Girl Full HD 2 [JPEG]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09504E3CAEEF588242267D479CCD5A492B0D186C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307563   (554867) от 10.06.2019
+
+Обои - Desktop Wallpapers Full HD. Part (449) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5553690C205C348B42C5E0E98C002647F10895D
 ```
 
 https://mybot314.ru/tekegram_catalog/

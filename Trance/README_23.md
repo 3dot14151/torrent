@@ -1,3 +1,90 @@
+###  Публикация: 1231401   (607053) от 17.06.2018
+
+VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Jorn Van Deynhoven Remix)
+02. UDM - Highlight (Extended Mix)
+03. Feel & Alexandra Badoi - Did We Feel (ReOrder Remix)
+04. Ahmed Helmy & Mhammed El Alami - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41072651A3D022EA53C9417FDE7AF9CB5A403A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913639   (605125) от 29.06.2015
+
+VA - Paul Van Dyk Presents: We Are One (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy J - Stolen Memory (07:55)
+02. Paul van Dyk, Aly & Fila - Guardian (Sunset Mix) (feat. Sue McLaren) (04:57)
+03. Sunlounger - Sunkissed (Roger Shah Rework) (05:03)
+04. Paul van Dyk, Michael Tsukerman - What We're Livin For (feat. Patrick Droney) (05:12)(   Читать дальше...   )Производство: Vandit RecordsЖанр: TranceПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9BC34C3B799FCA692119EB5AC5420F28DAD570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038798   (605062) от 29.07.2016
+
+VA - Trance Dreams (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kayat & Clare Stagg -  The Calling (Mark W Remix) 6:43
+02. Luke Terry -  Odysseus (Original Mix) 6:21
+03. Roman Messer Ft. Robin Vane -  Someday (Temple One Remix) 5:51
+04. Nomosk & Ansia Orchestra -  Adventure (Udm Remix) 7:54(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C43E0511E27A044500BBBBE51F771311865AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148165   (604408) от 05.07.2017
 
 VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ VA - Black Hole Trance Music 05-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4DEDC88C5D27BDB39245FE72C937ACDA79730A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551947   (589000) от 18.05.2022
-
-Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
-02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
-03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
-04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552342   (587660) от 20.05.2022
-
-Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani & Monika Santucci - With You (4:17)
-02. Giuseppe Ottaviani & Dan Soleil - Hero (4:21)
-03. Giuseppe Ottaviani & April Bender - Something I Can Dream About (4:10)
-04. Giuseppe Ottaviani & Mila Josef - Fade Away (4:21)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301415   (585366) от 11.05.2019
-
-VA - Global DJ Broadcast-Top May (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brandenburg Techno Orchestra - Mindset (Extended Mix) 8:19
-02. Arkham Knights - Fall From Innocence (Extended Mix) 7:50
-03. Joyhauser - Killer Queen (Original Mix) 7:38
-04. Aly & Fila - It's All About The Melody (Original Mix) 4:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 02:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8F19FA2E2D57CCD720E47B66EAC35E1724267E
 ```
 
 https://mybot314.ru/tekegram_catalog/

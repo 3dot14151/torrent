@@ -1,3 +1,32 @@
+###  Публикация: 609255   (991733) от 27.01.2013
+
+Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
+2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
+3. AMOUAGE - Солнце 1080p (3:49)
+4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609890   (991231) от 28.01.2013
 
 David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
@@ -661,32 +690,6 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7004CA39EA0C21AF61E3F0BCFD23D70F3DBD74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355568   (982201) от 27.01.2020
-
-Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982201.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lovely» — песня в исполнении Billie Eilish и Khalid вышла 19 апреля 2018 года для официального саундтрека второго сезона драматического телесериала от Netflix «13 причин почему». Песня была включена в расширенное издание мини-альбома Billie Eilish: Don't Smile at Me (2017).Производство: Sony, ATV Music Publishing LLC, Kobalt Music Publishing Ltd., Universal Music Publishing GroupЖанр: Indie, Pop, Alternative RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FB1CCE3992F04820547F78282B3FE1E9DCAFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1295559   (616598) от 14.04.2019
+###  Публикация: 1544932   (616713) от 18.04.2022
 
-VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
+Tomorrowz End - Tetralogy - Pt. 1, Vol. 1-2 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Классика
->>Фортепиано
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stephanie McCallum - Debussy-Suite bergamasque, L.75 - 3. Clair de lune 5:15
-02. Gerard Willems - Grieg-Peer Gynt Suite No.1, Op.46 - 1. Morning Mood 3:35
-03. Roger Woodward - Jessica's Theme (From 'The Man from Snowy River') 3:21
-04. Catherine Strutt - Traditional American-Amazing Grace (New Britain) 4:33(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:21:20
+01 - Skeleton Key (00:02:58)
+02 - A Jesus Frankenstein (00:04:26)
+03 - Red 2 White (00:02:49)
+04 - Rubix Cube (00:04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 2CD, 01:18:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
+magnet:?xt=urn:btih:9EA99F6B062601E262A1C51E0A292DF3D11BBD50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,82 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523844   (616596) от 16.07.2012
+###  Публикация: 523735   (616712) от 16.07.2012
 
-Притворись моим мужем / You May Not Kiss the Bride (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромному фотографу Брайану Лайтхаусу не повезло. Совершенно неожиданно он оказался в долгу перед обосновавшимся в США хорватским криминальным авторитетом Вадиком Никитиным. Теперь Брайану нужно жениться на дочери бандита Маше, чтобы та смогла беспрепятственно получить американское гражданство, а потом спокойно развестись.
-
-Есть и другое условие: брак — браком, но к невесте горе-жених и пальцем не должен прикасаться. И это самая непростая часть договора, потому что девушка — ослепительная красавица. Дело осложняется и тем, что во время медового месяца на далеком экзотическом острове новоиспеченную жену похищают неизвестные. Ее возвращение становится для Брайана вопросом жизни и смерти…Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Роб ХедденПродюсер: Дэвид А. Джексон, Шона Шапиро ДжексонАктеры: Дэйв Эннэйбл, Кэтрин МакФи, Роб Шнайдер, Мена Сувари, Кэти Бейтс, Кен Давитян, Тиа Каррере, Кевин Данн, Винни Джонс, Стивен ТоболовскиПеревод: Профессиональный многоголосый, закадровыйПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BECEBA3521D38A14E8973CA3646457B9867180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295717   (616595) от 14.04.2019
-
-VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Withers - Myers-Cavatina (Arr. John Williams) (From 'The Deer Hunter') 3:12
-02. Grigoryan Brothers - Lovelady-Incantation No.2 5:02
-03. Slava Grigoryan & Leonard Grigoryan - J.S. Bach-Cantata BWV 156 - 1. Sinfonia (arr. Edward Grigoryan) 5:19
-04. Guitar Trek - Charlton-Dances for the Rainbow Serpent - 3. The Beauties of the World Are Revealed for the (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523869   (616594) от 16.07.2012
-
-Рестлинг / WWE Money In The Bank - Preshow (2012) WEBRip [H.264]
+Три балбеса / The Three Stooges (2012) HDRip
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русская версия от 545TV WWE Money In The Ban прешоуЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:27:50
+Подкидыши Ларри, Кёрли и Мо выросли если и не полными кретинами, то уж звезд с неба точно не хватали. Видимо, от большого ума они, задавшись высокой целью спасти дом своего детства, вляпались в неприятную историю с убийством и в то же время стали героями фантастически успешного реалити-шоу на ТВ.Жанр: КомедияРежиссер: Бобби Фаррелли, Питер ФарреллиПродюсер: Брэдли Томас, Чарльз Б. Весслер, Бобби ФарреллиАктеры: Шон Хейс, Уилл Сассо, Крис Диамантополос, Джейн Линч, София Вергара, Дженнифер Хадсон, Крэйг Бирко, Стивен Коллинз, Ларри Дэвид, Кирби ХэйборнПеревод: Любительский (двухголосый)Продолжительность: 01:32:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:987A9FA8F0C5D5FDBBAF61B83E0BFB42D8AF7B01
+magnet:?xt=urn:btih:F9787843AF38C5AD33726EFE389DE4E36FB69515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,111 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146005   (616593) от 28.06.2017
+###  Публикация: 1545089   (616711) от 18.04.2022
 
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616593.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146032   (616592) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616592.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D088776EC501621A8998D0B4CFC8E340EB7C3E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146210   (616591) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Германия — Камерун (25.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616591.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Германия — Камерун(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E79F2C544B558C03D12C2925DDCE9BE87F99DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145998   (616590) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 3-й тур. Новая Зеландия — Португалия (24.06.2017) HDTVRip
+Stats 2.7.13 [Multi/Ru]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 июня 2017 года, суббота. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 3-й тур
-Новая Зеландия — Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:25
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2022Разработчик: © 2022 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
@@ -226,24 +79,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146173   (616589) от 28.06.2017
+###  Публикация: 1545111   (616709) от 18.04.2022
 
-VA - Balearic Underground Part 1 (2017) [MP3|320 Kbps] <Trance>
+Cancer Bats - Psychic Jailbreak (2022) [MP3|320 Kbps] <Post-Hardcore, Southern Rock>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bekar-b - Gone To The Sky (Original Mix)  6:14
-02.  Vyacheslav Sketch - 5pm (Original Mix)  5:06
-03.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22
-04.  Sunmote - Morseton (Original Mix)  3:04(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+01. Radiate
+02. The Hoof
+03. Lonely Bong
+04. Friday Night(   Читать дальше...   )Жанр: Post-Hardcore, Southern RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B7C945D9D8A4768BC44C647A1544435E3C2190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544943   (616707) от 18.04.2022
+
+Свечение Чёрного - Культ Солнца (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Инстинкт (00:05:34)
+02 - Сияние (00:00:47)
+03 - Культ Солнца (00:07:40)
+04 - Стихия (00:05:29)(   Читать дальше...   )Жанр: Psychedelic, Experimental RockПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD950AB384BA5664C8ECCFE81BE9164086E058FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523681   (616706) от 16.07.2012
+
+Кто подставил кролика Роджера / Who Framed Roger Rabbit (1988) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив расследует загадочное преступление, в котором подозревается… мультипликационный персонаж кролик Роджер! Сыщик попадает в непредсказуемый мир, где его ожидают нарисованные злодеи с настоящими револьверами, говорящий автомобиль и соблазнительная мультяшная красотка. Наконец, на горизонте появляется мрачная фигура того, кто подставил кролика Роджера.Жанр: Анимация, Семейный, КомедияРежиссер: Роберт ЗемекисАктеры: Боб Хоскинс, Кристофер Ллойд, Джоанна Кэссиди, Чарльз Флайшер, Стабби Кэй, Элан Тилверн, Ричард ЛеПарментье, Лу Хирш, Бетси Брэнтли, Джоэл СилверПеревод: ДублированныйПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFA721D15284037B006E5D0AD64C834619072CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544972   (616705) от 18.04.2022
+
+Houston - III (2017) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold As Ice
+02. Everlasting
+03. Dangerous Love
+04. Lights Out(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72C904EEAE0B4A393AA7791591A65F30218CD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523489   (616704) от 16.07.2012
+
+Картинки - РОССИЙСКИЕ ДЕНЬГИ [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не справочник и не каталог, это то что носили в карманах и кошельках наши папы и дедушкиРазрешение файлов: 7520x3760 - 255x383Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2E038914C168FD724F65A02B76642E81236F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544942   (616703) от 18.04.2022
+
+Свечение Чёрного - Шаманизм (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дыхание Африки (00:05:07)
+02 - Страх (00:05:40)
+03 - Бессознательное (00:07:48)
+04 - Прогулка по закоулкам разума (00:20:30)Жанр: Psychedelic, Experimental RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D23E3D62B101FCC36DD4142EF0FDEFEA389ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545180   (616702) от 18.04.2022
+
+Русская народная сказка | Петух и собака (1983) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616702.jpg" />
+</div>
+
+
+###  Подробнее
+
+В голодные годы петух и собака вынуждены были покинуть своих хозяев, и рассчитывать только на свои силы в лесу.
+В пересказе К.Ушинского. Для детей дошкольного возраста. Иллюстрации И.Хохлова.Жанр: СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -255,24 +274,169 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146245   (616588) от 28.06.2017
+###  Публикация: 1544923   (616699) от 18.04.2022
 
-Terry Gibbs - Bopstacle Course (1974) Xanadu Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+The Light In The Ocean - Deep Reef Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bopstacle Course [04:41]
-02. Body And Soul [07:07]
-03. Waltz For My Children [04:45]
-04. Softly As In A Morning Sunrise [06:09](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:43:27
+01 - Things Inside (00:05:32)
+02 - Parthenon (00:03:26)
+03 - Tijuana Sunset (00:03:56)
+04 - Smee (00:02:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D706F9AD5D3E2F89E4E1DD6D5E650F9FD456B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545083   (616698) от 18.04.2022
+
+Budapest Ragtime Band - Caravan (1994) BRB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Ragtime>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elite Syncopation [2:33]
+02. Scott Joplin's New Rag [3:50]
+03. Hello, Dolly [4:46]
+04. Nola [2:26](   Читать дальше...   )Жанр: Dixieland, RagtimeПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AACDAE1B88E146C302489C7B441D2C66BB335D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545007   (616673) от 18.04.2022
+
+Darkher - The Buried Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Occult Rock, Dark Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sirens Nocturne (00:04:29)
+02 - Lowly Weep (00:07:59)
+03 - Unbound (00:02:16)
+04 - Where The Devil Waits (00:03:29)(   Читать дальше...   )Жанр: Gothic Rock, Occult Rock, Dark FolkПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B51AB34AA6F168D7BA2AC88F9C4C9C197D89D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545222   (616672) от 18.04.2022
+
+Стрела Морфея - 3 Albums (2018-2021) [MP3|320 Kbps] <Russian Punk Rock, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юбилей [00:02:04]
+02. Лепрекон [00:02:59]
+03. Неформат [00:02:18]
+04. Обида повара [00:02:31](   Читать дальше...   )Жанр: Russian Punk Rock, Horror PunkПродолжительность: 3 CD, 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24672B33C777712930E38A9E034C7F9DD77E3A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545039   (616671) от 18.04.2022
+
+Змей И Радуга - Молекулярное воскрешение (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нейрохирургический солипсизм (00:03:13)
+02 - Аутопсихическая деперсонализация (00:05:09)
+03 - Согра (00:03:58)
+04 - Шизофрения (00:03:22)(   Читать дальше...   )Жанр: Symphonic Death, Black MetalПродолжительность: 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261E920CCBD45EDC29065F560D06D2E5762914F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545208   (616670) от 18.04.2022
+
+Dотла - Не так, как в сказках (2022) [MP3|320 Kbps] <Pop Punk>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Память [00:03:02]
+02 - Один способ [00:03:24]
+03 - Давай забудем [00:02:52]
+04 - Ощущаем вновь [00:03:03](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:29:34
 
 ## Скачать торент
 ```bash
@@ -284,28 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146251   (616587) от 28.06.2017
+###  Публикация: 1545164   (616669) от 18.04.2022
 
-VA - Whos Afraid Of 138! Top 15 (2017) [MP3|320 Kbps] <Trance>
+RegCool 1.316 + Portable [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Signum - Euphoric Hope
-02. Ben Nicky - Cobra
-03. Chris Schweizer - Loaded
-04. The Noble Six - Chemicals(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:15
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD38E99E70DF6E8F55695969C7379890849BC855
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,28 +474,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146186   (616586) от 28.06.2017
+###  Публикация: 1545002   (616668) от 18.04.2022
 
-VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
+Golgotha Opera Metal - El Enviado (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Pop
->>Зарубежная поп-музыка
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ‘Die immer lacht’ – Die immer lacht 03:30
-02. Andy Luxx – Wir sind die Mallorca Familie 03:36
-03. Mallorca Cowboys – Eskalation 03:53
-04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
+01 - Setenta y Tres Años Después (00:01:46)
+02 - Luz Sideral (00:03:40)
+03 - Jordán (00:05:18)
+04 - Transfiguración (00:04:32)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,28 +503,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145444   (616585) от 28.06.2017
+###  Публикация: 1545054   (616667) от 18.04.2022
 
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 2-й тур. Германия — Чили (22.06.2017) HDTVRip
+Idris Muhammad - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 июня 2017 года, четверг. 21:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 2-й тур
-Германия — Чили(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:40
+Идрис Мухаммад (13 ноября 1939 - 29 июля 2014) - американский джазовый барабанщик, записывавшийся с Ахмадом Джамалом, Лу Дональдсоном, Фараа Сандерсом, Бобом Джеймсоми Тете Монтолиу. Жанры - фанк, R'n'B и соул. В раздаче представлены альбомы диско направленности.01. Boogie Boots (5:34)
+02. Foxhuntin' (7:12)
+03. (Dance Dance) Work Your Body (7:54)
+04. Love New Orleans (9:03)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:11:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F28AC6CA3EA9BA12BE488224468B629578BE078
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +532,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 911349   (616584) от 23.06.2015
+###  Публикация: 1545218   (616666) от 18.04.2022
 
-Elderoth - Mystic (2014) [MP3|320 кб/с]<Progressive Power Metal>
+Чудесное спасение Бронко Билли / Broncho Billy's Narrow Escape (1912) TVRip
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Within
-02. Black and Blue
-03. This Shadow by My Side
-04. My Future(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:34:15
+Старатель Бен Мартин живёт в горах вместе с дочерью Лоис и напарником Бэкстером. Бэкстер влюблён в дочь своего партнёра и имеет намерение на ней женится. Но неожиданно у него появляется соперник в лице Бронко Билли, нанявшегося к старику Мартину в работники. Когда между Бронко и Лоис завязыаются тёплые отношения, отвергнутый Бэкстер ищет любую возможность отомстить (   Читать дальше...   )Производство: США, The Essanay Film Manufacturing CompanyЖанр: Вестерн, короткометражный, немое киноРежиссер: Гилберт М. "Бронко Билли" АндерсонАктеры: Гилберт М. "Бронко Билли" Андерсон, Веда Бертрам, Артур Мэкли, Бринсли Шоу, Фред Черч, Виктор Потел, Гарри Тодд, Джек Робертс, Патрик Руни, Уиллис ЭлдерПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские отдельным файломПродолжительность: 00:13:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA4200D2E0444D2E45F81A68CAFD6614DB4B3EAE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +558,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 911378   (616583) от 23.06.2015
+###  Публикация: 1545237   (616665) от 18.04.2022
 
-Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
+Tears of Heaven - 2 Albums (2015, 2022) [MP3|320 Kbps] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Depths of Blighttown (Live)
-02. Afterfall (Live)
-03. Separation (Live)
-04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
+01. Black Wedding [00:08:20]
+02. The Crow [00:07:27]
+03. Hunter and Prey [00:04:28]
+04. Lullaby for Wolves [00:06:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:01:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
+magnet:?xt=urn:btih:62913532BEAFB3EA163B49733002692C598FB1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 911369   (616582) от 23.06.2015
+###  Публикация: 1544911   (616664) от 18.04.2022
 
-My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy / Power Metal>
+Colosseum - Restoration (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Storm Is Coming
-02. The Cage (Oh Demon in My Eyes)
-03. Calling of the Wind
-04. Endless Night(   Читать дальше...   )Жанр: Progressive / Heavy / Power MetalПродолжительность: 00:48:27
+01 - First in Line
+02 - Hesitation
+03 - Need Somebody
+04 - Tonight(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC705A74C943BC5F46A531AF010B0A6DE6C4F5AE
+magnet:?xt=urn:btih:97E107E89272FA46183CEF156D6ABBCA598B7B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,28 +616,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 911225   (616581) от 23.06.2015
+###  Публикация: 1545175   (616663) от 18.04.2022
 
-Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
+Ольга Дзюба | Большая страшная книга. Черный Оборотень и другие ужасные истории (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616663.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошла трилогия Ольги Дзюбы об удивительных созданиях – аниморфах, которые умеют превращаться в разных животных. В центре событий история борьбы Волчкова Жени, который только погружается в необычный мир полулюдей, и его злейшего врага Черного Оборотня. Черный Оборотень, или Черный Ворон, много лет держит в страхе весь Зачарованный Лес – место силы аниморфов. (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8904CC5B2B1A8A37EA4BA08AFC82662B60EA3D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545212   (616662) от 18.04.2022
+
+Театр одного актера - 4 CD (2019-2020) [MP3|320 Kbps] <Russian Horror Punk>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Театр одного актера - Мертвый в доме [00:02:51]
+02. Театр одного актера - Пьяный царь [00:02:48]
+03. Театр одного актера - Смех [00:04:09]
+04. Кошмары [00:03:14](   Читать дальше...   )Жанр: Russian Horror PunkПродолжительность: 4 CD, 02:13:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545098   (616661) от 18.04.2022
+
+Skymera - Skymera (2022) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Verfolgung Zu Unrecht
-02. Komplettkontrollverlust
-03. Hoffnung
-04. Durch Die Wand(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:32
+01 - Won't Fly By (04:51)
+ 02 - Easy Disease (04:17)
+ 03 - Forgotten Tears (04:46)
+ 04 - Pillow Of Sickness (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B324A51B6D8779C09930A33EEBC662749C2174E
+magnet:?xt=urn:btih:4DD37E77BD065056A61C7735E79BDCFA97732E94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,258 +700,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 911240   (616580) от 23.06.2015
+###  Публикация: 1545008   (616660) от 18.04.2022
 
-Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
+Golgotha Opera Metal - Los Enigmas de un Hombre en Su Muerte (2022) 2CD, Acto 1-2 [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cleansing
-02. Realign
-03. Amenti
-04. The Chain(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:38:26
+01 - El Sueño de Claudia (00:03:44)
+02 - No Conozco a Ese Hombre (00:03:35)
+03 - Ante Pilato (00:05:41)
+04 - Antipas (00:04:19)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 2CD, 01:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911377   (616579) от 23.06.2015
-
-Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616579.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conquistador
-2. Leaving
-3. Kill Or Cure
-4. Concrete Wilderness(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911389   (616578) от 23.06.2015
-
-Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disturbed Unconscious Mind
-2. Fallen From The eye
-3. Nothings Gonna Change
-4. Mad Happiness(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911208   (616577) от 23.06.2015
-
-Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Funeral
-02. (Untitled I)
-03. (Untitled II)
-04. (Untitled III)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4744BDEA9DB0880B95308ECB3BA31BADEE248419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911336   (616576) от 23.06.2015
-
-Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning Of The End
-02. Lights Out
-03. Mutual Demise
-04. My Path(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74289C3EC212D7BE2D9DC69491CD917B74BA1A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911697   (616575) от 23.06.2015
-
-Время покажет с Петром Толстым (23.06.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое дорогое, что есть у современного человека, - это квартира. Поэтому все операции с недвижимостью нуждаются в тщательной проверке, чтобы не остаться без жилья. Между тем, во всех регионах страны часты случаи, когда люди, прибегнувшие к услугам риелторов, остаются без квартиры и без денег.
-В первой части программы эксперты говорят о деятельности риелторов, пытаются (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0B90942FBCD29F0BCF4FE8DE48278735521064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911204   (616574) от 23.06.2015
-
-Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addiction
-02. Mirror Of Pain
-03. Ascension: 6 To 7
-04. Apophis(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911242   (616573) от 23.06.2015
-
-Smell My Pillow - Strawberry Lipgloss (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asphyxia
-02. Hung On You
-03. Not Happy
-04. Rotting From The Inside(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D373ADCD8BC141DC940DF70509C45022FB0CFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911376   (616572) от 23.06.2015
-
-Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walk
-02. Hunter's Moon
-03. Distant Win
-04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
+magnet:?xt=urn:btih:8D73255DC1C83063E720F32D5F1EABEB424041AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

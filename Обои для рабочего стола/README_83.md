@@ -1,3 +1,33 @@
+###  Публикация: 470157   (97134) от 18.03.2012
+
+[Wallpapers] Japan Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97134.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Japan Wallpapers Pack 1
+Название: Japan Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469369   (97002) от 17.03.2012
 
 [Wallpapers] Animals Full HD Wallpapers Pack 5
@@ -700,35 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76F8C453D5C13465595684C4A88CD1AD41A1028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821347   (52230) от 01.10.2025
-
-Обои - Jeeekaaa - Art Gallery TV 4K v2 [PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция картин в рамах для режима заставки телевизора.
-Количество: 20 шт.
-
-Создано Jeeekaaa® (свободно от авторских прав)Формат: PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C0A61C5BBC73DE8C6E7EFD15053D304FD7F803
 ```
 
 https://mybot314.ru/tekegram_catalog/

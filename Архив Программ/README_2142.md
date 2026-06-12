@@ -1,3 +1,29 @@
+###  Публикация: 1714514   (60225) от 09.04.2024
+
+Media Player Classic - Black Edition (MPC-BE) 1.7.0 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic - Black Edition (MPC-BE) – универсальный проигрыватель аудио- и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema». Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5655DEEDC2121928C301A848CDBAA3FF660C7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714510   (60221) от 09.04.2024
 
 WinTools.net Premium 24.3.1 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -656,32 +682,6 @@ Adobe Illustrator — это принятое в качестве отрасле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97FB769AD3477B3722527346E5BCD14A4FD8C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715127   (60068) от 11.04.2024
-
-MiniTool Power Data Recovery 11.9 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60068.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B169722B911179E267CEC6E9E2966A5A3267F149
 ```
 
 https://mybot314.ru/tekegram_catalog/

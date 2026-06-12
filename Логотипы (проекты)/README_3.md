@@ -1,3 +1,56 @@
+###  Публикация: 986493   (930265) от 14.02.2016
+
+Проекты - VideoHive - Logo In Water [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. 3 версии включены.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C294BA10C7AC0760DE88A2B37C1DEA1053417516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094041   (930018) от 17.01.2017
+
+Проекты - VideoHive - Colorful Particles Logo - 19236015 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации Вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8F4BFE64596403DFD825CB18C710E5809544A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986739   (928661) от 15.02.2016
 
 Проекты - VideoHive - water splash logo Reveal [AEP]
@@ -626,58 +679,6 @@ Easy Neon Lights Maker -  позволяет превратить ваши со�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC45FEA23FA96C475AA48CFC1A6A6E6467650D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098607   (907977) от 30.01.2017
-
-Проекты - VideoHive - Minimal Logo Reveal - 19282610 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Logo Reveal - простая чистая анимация для раскрытия логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD3D2B4BD948702ED3A609E230FA70CE1AD4C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099068   (906168) от 31.01.2017
-
-Проекты - VideoHive - Colorful Logo - 19310908 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный и красивый проект для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8CEC547F1949BBB7BF3BB61CD1078B52753BFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

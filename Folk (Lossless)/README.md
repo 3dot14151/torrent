@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874944   (1072699) от 
+
+Carroll Baker - Hymns Of Gold (1985) CD, 1991, J & B Records [FLAC|Lossless|image + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Me (Lord) (3:34)
+02. You Light Up My Life (3:01)
+03. It Is No Secret (What God Can Do) (3:38)
+04. Let's All Go Down to the River (1:56)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A5A4C00E2452349918EA7528AE1FE158E7BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866962   (1066732) от 24.04.2026
 
 David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486968   (1003860) от 04.08.2021
-
-Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Of Dawn (3:48)
-02. Headed For A Fall (4:09)
-03. Getaway (3:46)
-04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

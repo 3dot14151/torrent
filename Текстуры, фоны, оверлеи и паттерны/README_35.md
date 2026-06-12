@@ -1,3 +1,29 @@
+###  Публикация: 1804894   (12770) от 02.07.2025
+
+Оверлеи - Etsy - Floral Gradient Backgrounds, Grainy Textures, Liminal & Polaroid-Inspired Overlays. PETALRUSH bundle - 1896215093 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хороший комплект с прекрасными оверлеями для ваших творческих задач.Формат: JPGРазрешение файлов: 5000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0068C1D58B3A47866F13472075219E3B7408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804905   (12766) от 02.07.2025
 
 Оверлеи - Creative Market - Retroset 03 - Dry Transfer Effects - 290009311 [PNG, EPS, AI]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46D25CEC217B66E39DD4C6C991D8E6EFE15DFB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813355   (7082) от 18.08.2025
-
-Фоны - Motion Array - Dreamy Botanical Blur - 3756269 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размытые фоны в ботаническом стиле с мягкими пастельными градиентами и цветочными фигурами.Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9521D04648233995FD251F32650C1FD1B2E2CFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

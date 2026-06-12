@@ -1,3 +1,30 @@
+###  Публикация: 165835   (588165) от 03.08.2016
+
+France Gall - видеозаписи (1963 - 1984)/ VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_588165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Isabelle Genevive Marie Anne Gall
+родилась в семье Роберта Галла, автора песен Шарля Азнавура и Эдит Пиаф, и певицы Сесиль Бертье. В подростковом возрасте создала вместе с братьями музыкальную группу. В 15 лет записала свой первый альбом. Её первый сингл «Ne sois pas si bte» имел оглушительный успех, как и последующие песни певицы, невинные, на первый взгляд, но (   Читать дальше...   )Жанр: МузыкаАктеры: France GallПеревод: Оригинальный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358008   (585895) от 02.07.2011
 
 Ани Лорак - Спроси (2011) HDRip
@@ -688,35 +715,6 @@ House Of Pain – Jump Around(   Читать дальше...   )Жанр: Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ED67907AC4752F652373699532F30CD06217C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818641   (539476) от 04.09.2014
-
-Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grimes - Genesis
-02. Ellie Goulding - You My Everything
-03. Chase & Status Feat. Jacob Banks - Alive
-04. CHVRCHES - The Mother We Share(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

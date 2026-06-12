@@ -1,119 +1,3 @@
-###  Публикация: 1539771   (655045) от 28.03.2022
-
-VA - Calm Down (Chill Out & Lounge Moods), Vol. 2 (2017) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Milton - Sunny Day (5:00)
-02. Dominik Pointvogl - Nova Bossa (5:09)
-03. Pharaon - Patented (Extended Mix) (2:51)
-04. Köbes - On The Sun (Extended Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51467EC91FC9856D8EEB300802320E14421CF941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539988   (655043) от 28.03.2022
-
-The Electric Swing Circus - It Flew By (2017) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empires (3:11)
-02. Golden Hour (2:49)
-03. Big Surprise (3:14)
-04. Scuttlebutt (2:45)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9ABDD0EE6209E1ED551FF01F9FAAAB4B7A0D12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540031   (655039) от 28.03.2022
-
-VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Solved by Walking (5:54)
-02. Vis et Spes - Appropriate Emotions (6:06)
-03. Komplextum - Drops of Mystery (5:55)
-04. Boeklin - Filling the Empty Spaces (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAFB0D9194340BD645EBF750EE0FF798F141FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540028   (655035) от 28.03.2022
-
-VA - Audioholic (Groovy Deep-House Tunes), Vol. 4 (2022) [AAC|~324 Kbps] <House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Beat - Will You (Original Mix) (8:33)
-02. Stephane Lumiere - Too Deep (Original Mix) (4:14)
-03. Living Room - Spirit Nature (Original Mix) (3:47)
-04. ACR - Way Home (Original Mix) (4:32)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C797E5100110BD6FA89E85D4D89C27E3CC8E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539990   (655033) от 28.03.2022
 
 Miss Kittin, The Hacker - Third Album (2022) [AAC|~317 Kbps] <Techno, Electro, Electroclash>
@@ -718,6 +602,116 @@ VA - 100% Hotel Deluxe Music, Vol. 1 (2012) [AAC|~334 Kbps] <Lounge, Chill Out, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B04C7AFE08EEFBB5969568A9507F2DF8EB6682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539593   (654027) от 29.03.2022
+
+Андрей Макаревич - Хроника текущих событий (2013) [AAC|~310 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лишь только веки сомкну... (0:42)
+02. Посвящение Михаилу Генделеву (2:09)
+03. Переворот (2:38)
+04. Песенка про Интернет (1:03)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE062F37110AE180902FEA91F796C094676C946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540016   (654010) от 29.03.2022
+
+VA - Arab Hits (2022) [AAC|~321 Kbps] <House, Pop, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khaled - Didi (5:02)
+02. Rachid Taha - Ya Rayah (6:15)
+03. Tawsen, Manal, ElGrandeToto - Safe Salina (Moroccan Remix) (3:03)
+04. Nancy Ajram - Oul Tani Eyh (4:08)(   Читать дальше...   )Жанр: House, Pop, FolkПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F5175A91A18359E0B996099A18611F5602E65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140722   (653744) от 08.06.2017
+
+Живое / Life (2017) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная космическая станция. Наши дни. С Марса прилетает модуль с образцами пород, куда совершенно случайно затесалась тамошняя инфузория-тапочка в свежезамороженном состоянии. Команда исследователей с упоением начинает издеваться над чужеродным организмом: помещает его в кислотную среду, кормит денатуратом с ложечки, бьет электрическим шокером и поджаривает (   Читать дальше...   )Производство: СШАЖанр: Фантастика, триллерРежиссер: Даниэль ЭспиносаАктеры: Джейк Джилленхол, Райан Рейнольдс, Ребекка Фергюсон, Хироюки Санада, Эрион Бакаре, Ольга Дыховичная, Александр Нгуйен, Хиу Вун-СинПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986C3071830D3E69903CAAA1390F8F402CED0A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226713   (653589) от 22.05.2018
+
+Гоголь. Вий  (2018) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писарь из Санкт-Петербурга Николай Гоголь бросает вызов загадочному тёмному Всаднику, который жестоко расправляется с девушками в окрестностях села Диканька. Собрав команду из местного полицейского, пьяницы-доктора, суеверного кузнеца и странствующего философа-экзорциста, Гоголь пытается заманить злодея в ловушку, но на его пути встает самое жуткое порождение нечистой (   Читать дальше...   )Производство: РоссияЖанр: Детектив, приключения, драмаРежиссер: Егор БарановАктеры: Александр Петров, Олег Меньшиков, Евгений Стычкин, Таисия Вилкова, Артем Ткаченко, Екатерина Бурлакова, Сергей Бадюк, Ян Цапник, Алексей Вертков, Марта ТимофееваПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A7CBD1F9D4E01E4B5DB687FD9EED5650AA8ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

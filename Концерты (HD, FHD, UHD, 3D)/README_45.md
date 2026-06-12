@@ -1,3 +1,29 @@
+###  Публикация: 451211   (75736) от 12.02.2012
+
+Peter Gabriel - New Blood (Live in London) (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive RockФормат: TSПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451187   (75661) от 12.02.2012
 
 Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
@@ -707,35 +733,6 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797688   (66794) от 17.05.2025
-
-Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках фестиваля "Rocco del Schlacko" 8 августа 2019 года в городе Пютлинген.01. Intro (100% Scooter - 25 Years Wild & Wicked)
-02. One (Always Hardcore)
-03. Bora! Bora! Bora!
-04. Oi(   Читать дальше...   )Производство: ГерманияЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Sebastian SchildeПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ED7369CBA8BDA1B07D11545F251E0E21075A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

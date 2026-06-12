@@ -1,3 +1,32 @@
+###  Публикация: 1502850   (821230) от 18.10.2021
+
+VA - Rap Inspiration: Music For Everyone (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821230.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Forcki9ers - Ortni
+002. Dirty Diggs - Thunderground Season
+003. Frost Gamble - Patti Knew
+004. Dom Pachino - Terrorizing The Airwaves Intro(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EB310C1AF37E2312880BED7EE7E70A0E2421FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007994   (819167) от 16.04.2016
 
 VA - Rap Ballads: Experimental Hip-Hop and Jazz Rap (2016) [MP3|320 кб/с] <Rap, Hip-Hop, House>
@@ -717,35 +746,6 @@ VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B26A2DCBA8C09706DE31A58FAF32BD9B04D85DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215154   (759611) от 25.03.2018
-
-VA - Rap Trap Nation Play (2018) [MP3|320 Kbps] <Rap, Trap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Lewis - Clockwise (feat. Nick Row)
-02. Carnage & Lil Pump - i SHYNE
-03. Keys N Krates - My Night (feat. 070 Shake)
-04. Getter x Ghostemane - Beware, the Sirens(   Читать дальше...   )Жанр: Rap, TrapПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35C3DAB5FA8E03DBABCE25A81B91416DE48CE15
 ```
 
 https://mybot314.ru/tekegram_catalog/

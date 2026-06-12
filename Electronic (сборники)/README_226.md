@@ -1,3 +1,32 @@
+###  Публикация: 1799013   (16857) от 26.05.2025
+
+VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A-Sultan - Fading Light
+02 - Rodle & Ab Bos - Amore Mio
+03 - Imazee - You Feel My Heart
+04 - Dndm, Mr Salama - Gray Night(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADA59B12330356FE8EF6C26175DFD45CCD4CE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799642   (16367) от 29.05.2025
 
 VA - Techno Bunker 5 (2025) [MP3|320 Kbps] <Techno>
@@ -716,35 +745,6 @@ VA - Compilation Part 178 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B5A29140A5F6A24C0B62ABAD0AB40460D40F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810389   (9384) от 04.08.2025
-
-VA - Car Music Mix 7 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunwest - FENDI2 (1:57)
-02. Masked Wolf, Alok - Astronaut In The Ocean - Alok Remix (2:08)
-03. BROHM, Thingstad - Sztoj Pa Moru (2:18)
-04. FILV. AVR YNG - Low (2:14)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB9EAB0C02295170C6228EE51027CA359AB2436
 ```
 
 https://mybot314.ru/tekegram_catalog/

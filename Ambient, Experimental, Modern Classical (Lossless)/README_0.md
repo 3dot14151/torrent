@@ -1,3 +1,29 @@
+###  Публикация: 1446173   (1033067) от 08.02.2021
+
+Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446074   (1033065) от 08.02.2021
 
 Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -692,35 +718,6 @@ Toki Fuko - Human Design (2021) Lowless Music [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22775BA09CC8986369D163A91E443633959764AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461283   (1022048) от 08.04.2021
-
-Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021) Columbia Local [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Tribal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonia, Pt. 1 (07:42)
- 02. Amazonia, Pt. 2 (10:00)
- 03. Amazonia, Pt. 3 (08:10)
- 04. Amazonia, Pt. 4 (03:17)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Field Recording, Tribal, Experimental •Продолжительность: 01:45:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 600636   (998523) от 09.01.2013
+
+EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubstepПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601103   (998364) от 10.01.2013
 
 DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
@@ -698,35 +724,6 @@ Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609255   (991733) от 27.01.2013
-
-Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
-2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
-3. AMOUAGE - Солнце 1080p (3:49)
-4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

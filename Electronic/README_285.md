@@ -1,3 +1,61 @@
+###  Публикация: 1312849   (529016) от 06.07.2019
+
+VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno) (2019) [MP3|320 Kbps] <Techno, Minimal, Deep House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs. Robot - Lucid Sounds, Vol. Thirty Two Deep Flow (Original Mix)
+02. dreamAwaken - Trilithon (Original Mix)
+03. D. Diggler & Nadja Lind - Kahuna (Helmut Ebritsch Remix)
+04. Dennis Allen - A61v3 (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 04:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02623060E96D543D6ACE8C9F07D40E0E3FDF8CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558434   (528856) от 22.06.2022
+
+Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justus - Tunnel w/J Balvin & Skrillex - In Da Getto w/Foreigner - Cold As Ice
+02. Ron Van Den Beuken - Timeless (Justus Until Sunrise Version) w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
+03. Justus - Speed w/Tiësto & Ava Max - The Motto
+04. ShortRound - Fly w/R.E.M. - Losing My Religion(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558865   (528797) от 22.06.2022
 
 David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-05-21) [MP3|~245 Kbps (V0)] <Progressive House, Electro House>
@@ -686,64 +744,6 @@ Lars Leonhard - Erstwhile (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BABB158A2E82368630A05D15FE23897B25473C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559337   (527182) от 24.06.2022
-
-Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell - INTO THE UNKNOWN
-02. Hardwell - BLACK MAGIC
-03. J Balvin & Skrillex - In Da Getto (Hardwell Bootleg)
-04. Oxia - Domino (Hardwell Bootleg)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FF70D1E7473FBD19A0A0838790B4669BCD9DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559209   (527145) от 24.06.2022
-
-VA - Sensation Seekers Vol 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kojun & Susana - Caught In A Memory (Mike Zaloxx Remix) (6:36)
-02. Activa - Luminosity (Sean Tyas Extended Remix) (8:00)
-03. EverLight - Disco Death Machine (Extended Mix) (7:41)
-04. Richard Durand & Christian Burns - Almost Home (Extended Mix) (6:30)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1FD9A5B35B6674889C7D42246BB59B9F7726C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

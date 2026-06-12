@@ -1,3 +1,61 @@
+###  Публикация: 1606789   (1044301) от 23.01.2023
+
+VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will Atkinson, Gary Go -  If I Spoke Your Language (Grum Extended Remix)  (6:16)
+02.  Michael Feiner -  Follow (Club Mix)  (3:39)
+03.  Siskin -  Always You (Extended Mix)  (8:48)
+04.  BetweenUs, VJS -  Floating (Extended Mix)  (5:14)(   Читать дальше...   )Жанр: EDM, Club HouseПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F1770163F069F9DFE3CA8BFE3D3D8A1D0CAAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607194   (1044162) от 25.01.2023
+
+Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mac Zimms - Ancient Myth [6:28]
+02. Nether Man - Made To Move [4:09]
+03. Phlash - Under My Control [5:42]
+04. ID - ID [5:52](   Читать дальше...   )Жанр: House, Hard House, TranceПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEE52F090F6665B1AECC474F2D4123F8F93CA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607684   (1043936) от 27.01.2023
 
 VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
@@ -683,62 +741,6 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440784   (1038511) от 18.01.2021
-
-VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Groove; Pablo Bolívar - Inside You (6:39)
-02. Francisco Aguado - Aimless Dreams (6:14)
-03. Anton Kubikov - Echoma (6:57)
-04. Pablo Bolívar - Probably Never (7:22)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Downtempo |Продолжительность: 02:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED90AED385A1DF3FBB369E78EA81ECBDC9C123D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441239   (1037994) от 20.01.2021
-
-VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Keeley – A Sort of Homecoming (Michael Cassette Extended Mix) (07:24)
-02. ALPHA 9 – Before the Dawn (feat. Kameron Alexander)Жанр: Progressive House, TranceПродолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
 ```
 
 https://mybot314.ru/tekegram_catalog/

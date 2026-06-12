@@ -1,3 +1,32 @@
+###  Публикация: 1325488   (412703) от 15.09.2019
+
+VA - Autumn Groove: Dj Electro House Mastermix (2019) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412703.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Che Cherry - Oblivious (Radio Edit)
+002. Nogroove - Deep Sound (Suspendd Mix)
+003. Oli.Versum - Tryptamoon
+004. Flatless - Mystical (Radio Edit)(   Читать дальше...   )Жанр: HouseПродолжительность: 11:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADEFCA3E806E6DC37BDAB7DC806C40365C0FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325451   (412597) от 15.09.2019
 
 VA - Team Dogz: 170 Rap Hits (Vol.02) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -714,35 +743,6 @@ VA - Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2556ACB423FD089202E3408D0BC07C869B41C503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948391   (411382) от 20.10.2015
-
-VA - Взорви танцпол 50х50 (2015) [MP3|320 кб/с]<Dance, club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Duke Dumont - Ocean Drive (Michael Calfan Remix)
-002 Felix Jaehn feat. Polina - Book Of Love (Extended Mix)
-003 Madcon feat. Ray Dalton - Don't Worry (Kolya Funk & Eddie G Remix)
-004 Steve Anderson & Andrea Britton - Easy To Say (Original Mix)(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 08:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B29016564E3D5D644A72B5993D12CE7D102F327
 ```
 
 https://mybot314.ru/tekegram_catalog/

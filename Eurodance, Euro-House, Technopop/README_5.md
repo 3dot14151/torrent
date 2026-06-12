@@ -1,32 +1,3 @@
-###  Публикация: 1587716   (192326) от 01.11.2022
-
-VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delerium feat. Sarah McLachlan - Silence (Tiesto's In Search Of Sunrise Radio Edit)
-02. Rank 1 - Airwave (Original Vocal Edit)
-03. Mauro Picotto - Komodo (Radio)
-04. Dune - Hardcore Vibes (Video Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:40:25 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DAFFACE92E3815D5D2F1A284BBF76CE8D0A0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587723   (192312) от 01.11.2022
 
 VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
@@ -743,6 +714,35 @@ VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21CDC0460AE94E5BEA13E0C6541C50B511B9A63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698381   (118454) от 09.02.2024
+
+VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Me & My - Dub I Dub (MG Radio Remix)
+02.  Playahitty - 1-2-3 (Train With Me) (The Love Train Mix)
+03.  Real McCoy - Come And Get Your Love (Long Version)
+04.  Jam Tronic - Wish You Were Here (Maxi Version)(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABF2A74655A5AD832064124B37D9563563FB901
 ```
 
 https://mybot314.ru/tekegram_catalog/

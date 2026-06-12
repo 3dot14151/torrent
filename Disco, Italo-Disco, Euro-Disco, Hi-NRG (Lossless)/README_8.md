@@ -1,32 +1,3 @@
-###  Публикация: 1013029   (777914) от 03.05.2016
-
-Gilla - Dance SuperHits (1999) [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat
-02. The Heat Is On
-03. Johnny
-04. Go Down Mainstreet(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22DCBA9520907D0630384A9BBDCE460903D4165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211220   (777725) от 06.03.2018
 
 VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -736,6 +707,35 @@ Tam Harrow - Incredible Idiot (2015) Limited Edition [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA2449C474D037F3F7202BF4AAA1AE47932A7513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129489   (720463) от 29.04.2017
+
+Tom Hooker - Back In Time (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want To Fight (5:44)
+02. King Of The World (5:13)
+03. I Want You Tonight (5:45)
+04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA735088CD372D08D13A546852A1D6B9FC86331
 ```
 
 https://mybot314.ru/tekegram_catalog/

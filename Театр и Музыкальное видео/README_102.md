@@ -1,3 +1,236 @@
+###  Публикация: 957306   (327548) от 17.11.2015
+
+Bon Jovi - Super Rock (1984) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Bon Jovi на фестивале Japan Super Rock,
+Seibu Stadium, Tokyo, Japan, 11-08-198401. She don't know me
+02. Breakout
+03. Get ready
+04. RunawayЖанр: RockПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E014D1639B960ABBC83230C543389A4B6BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956696   (327495) от 17.11.2015
+
+Дима Билан - 33 (2014) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телевизионную версию новой концертной программы Димы Билана "33". Победитель "Евровидения" и ветеран "Голоса" отметил свое 33-летие масштабным, технологичным шоу, которое не оставит равнодушными телезрителей. Помимо признанных хитов прозвучат и новые песни ("Не молчи", "Телепорт", "Ты (   Читать дальше...   )1. Против правил.
+2. Ты должна рядом быть.
+3. Часы (дуэт с Андреем Цветковым, Голос-2).
+4. Телепорт.(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EBCE10A39B1F31DE047D68A0B67D6F7C25B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674853   (327350) от 19.11.2014
+
+The London Rock and Roll Show (1972/2005) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена запись рок-н-ролльного буйства 5 августа 1972 г. на лондонском стадионе Уэмбли. Несмотря на не самое лучшее качество видеосъемки, концерт НЕПЕРЕДАВАЕМО ХОРОШ! Потрясающий драйв, излучаемый такими гигантами рок-н-ролла как Little Richard, Chuck Berry, Jerry Lee Lewis не оставит равнодушным ни одного фаната рок-н-ролла!. Увидев этот концерт, немного начинаешь (   Читать дальше...   )01. Houseshakers- Be-Bop-A-Lula
+02. Bo Diddley - Road Runne
+03. Bo Diddley - Bring It to Jerome
+04. Bo Diddley - Mona(   Читать дальше...   )Жанр: Концерт, Rock'n'rollПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9353F08053E576DF224943B304A3B6469BD92C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957713   (326651) от 18.11.2015
+
+Wayra - Dreams of the Wind (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом DVD , Wayra играет на индейской флейте с естественным ритмом, полный эмоций и чувствительности .... трансцендентного за пределами слов. Его музыка предлагает очаровательные звуки родных музыкальных инструментов с одиночеством земли, неба и дарами природы, наполняя сердца миролюбием, которые могут длиться всю жизнь. Музыкальные и видео клипы на этой записи (   Читать дальше...   )01. Dreams of the Wind
+02. Ghost Dance
+03. The white Feather
+04. Voices of the Wind(   Читать дальше...   )Жанр: Native American, PanfluteПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957456   (326391) от 18.11.2015
+
+VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Art Key - Делаю Больно (Премьера!) (00:03:13)
+02. De Hofnar X Goodluck - Back In The Day (Official Video) (00:02:47)
+03. Don't Wanna Be Your Lover - Vanessa White (Official Video) (00:03:11)
+04. Jessie J, Ariana Grande, Nicki Minaj - Bang Bang (Live At Capital Summertime Ball) (00:04:12)(   Читать дальше...   )Жанр: Pop, Dance, LatinoПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D04562870F5F5FE79DB8571FB0FC2C761DDB294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956688   (325745) от 19.11.2015
+
+Bon Jovi - Tokyo Road Live In Japan (1985) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Shibuya Public Hall, Tokyo, Japan, 28-04-198501.Tokyo Road
+02.Breakout
+03.Only lonely
+04.She don't know me(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C32316ABD770505E08E66AE9F37C339354A686F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955862   (324870) от 20.11.2015
+
+Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление 19 сентября 200501. Last Man Standing
+02. You Give Love A Bad Name
+03. Livin` On A Prayer
+04. Born To Be My Baby(   Читать дальше...   )Жанр: Музыкальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C2BC38580FCF8B3490672273B135C658AA34C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955557   (324836) от 20.11.2015
+
+Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's What the Water Made Me
+02. You Give Love a Bad Name
+03. Raise Your Hands
+04. Runaway(   Читать дальше...   )Жанр: МузыкальныйАктеры: Bon JoviПродолжительность: 2:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657A7CA24F35ED4E0B12D828C2DEA7045A7E57CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 415308   (323605) от 28.11.2011
 
 The Beatles Anthology [Episode 1-4, русская озвучка М.Жолобова] (2003) 2xDVD9
@@ -488,220 +721,6 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582075   (320949) от 29.11.2012
-
-Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582084   (320760) от 29.11.2012
-
-Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582054   (320737) от 29.11.2012
-
-Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582072   (320526) от 29.11.2012
-
-The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582089   (320380) от 29.11.2012
-
-Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958330   (319004) от 23.11.2015
-
-Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусный диск к альбому Whitesnake - The Purple Album (2015). Представлены четыре видеоклипа на песни с альбома, а также документальный видеоматериал по созданию альбома.1. Lady Double Dealer (Music Video)
-2. Sail Away (Music Video)
-3. Stormbringer (Music Video)
-4. Soldier Of Fortune (Music Video)(   Читать дальше...   )Жанр: Hard Rock, ДокументальныйПеревод: ОтсутствуетПродолжительность: 29:10 + 26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415421   (318906) от 30.11.2011
-
-Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт известной американской альтернативной рок-группы на Красной площади в Москве.01. Intro
- 02. New Divide
- 03. Papercut
- 04. Given Up(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259571   (318764) от 04.11.2018
-
-Квартирник на НТВ у Маргулиса. Валерий Сюткин (11.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318764.jpg" />
-</div>
-
-
-###  Подробнее
-
-На «Квартирнике НТВ у Маргулиса» выступил легендарный музыкант Валерий Сюткин. Специально для зрителей НТВ музыкант исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5652E3AFD6B73D7EB724413AEC97EB8FFEC7A6A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 733411   (286789) от 12.12.2013
+
+AudioJungle Pack NEXT [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник треков от AudioJungle для озвучивания видео-проектов.
+
+MP3 - 320 Kbps 44kHz
+WAV - 1411 kbps 44kHz(   Читать дальше...   )Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6EE0F85F09A4F03972582612ABC1674DE27E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186571   (285480) от 25.11.2017
 
 Звуковые библиотеки - Epic Stock Media - Sci-fi Evolution [WAV]
@@ -690,32 +719,6 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834239   (248584) от 02.11.2025
-
-Звуковые библиотеки - Producer Loops - Alliant Audio - Neo Soul Essentials Vol 2 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alliant Audio с гордостью представляет Neo Soul Essentials Vol. 2! Коллекция сэмплов, представляющих всеми любимую эпоху. Это сочетание неосоула и хип-хопа, вдохновлённое такими музыкантами, как J Dilla, Pete Rock и многими другими!Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA57A6E1BA2E1B0EBF0785C0328D9278C72EA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

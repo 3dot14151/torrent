@@ -1,30 +1,3 @@
-###  Публикация: 1291062   (672032) от 23.03.2019
-
-Иконки - InstantShift - Graphic Design Icon Set [PNG, SVG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные иконки в растре и векторе в 3-х вариациях (контурные, цветные, контурные цветные).
-Автор: iShift StaffФормат: PNG, SVGРазрешение файлов: 2135 x 2134
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC3D5340D0E349F9268AC4ECC1B5E52B14FE364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291091   (672030) от 23.03.2019
 
 Иконки - Designmodo - Free Icons for Illustrator and Sketch App [EPS, SVG, PNG, AI]
@@ -685,6 +658,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64A74183583E15DAC001C020A05E952F0E59FBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224746   (663907) от 12.05.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 278 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663907.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BB2668B37B0B7FE62AFA0EF266C94569286075
 ```
 
 https://mybot314.ru/tekegram_catalog/

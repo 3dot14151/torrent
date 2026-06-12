@@ -1,3 +1,30 @@
+###  Публикация: 1221840   (689435) от 27.04.2018
+
+Текстуры - Creativetacos - 10 Free Marble Ink Paper Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры, бумага покрытая чернилами.
+Автор: Nassy ArtФормат: JPGРазрешение файлов: 6000 × 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFCC8231579E8B35DD51B17DDA0619D42471FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221855   (689432) от 27.04.2018
 
 Текстуры - Creativetacos - 10 Free High Quality Texture Pack [JPG]
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222359   (685294) от 29.04.2018
-
-Текстуры - GraphicBurger - 6 Marble Textures Vol.3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4851 x 3479 - 5176 x 3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE51361228A0BF7509CF45F492BB7E8A758F2E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

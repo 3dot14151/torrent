@@ -1,3 +1,29 @@
+###  Публикация: 1613942   (206844) от 20.02.2023
+
+WinX VideoProc Converter 5.4 (17.02.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206844.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX VideoProc Converter - усовершенствованная версия, WinX HD Video Converter Deluxe, мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D8AA2EDE3BB59E2E14CFDB593AD14FAC65F11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651856   (206837) от 08.08.2023
 
 GeoGebra 6.0.794.0 Classic + Portable [Multi/Ru]
@@ -646,35 +672,6 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA908D588FFCA075FA14237BA5478696DB50D9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614868   (206637) от 23.02.2023
-
-Windows 10 (v22h2) x64 PRO by KulHunter v5 (esd) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_updated_
-feb_2023_x64_dvd_c29e4bb3.iso.
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3046DBB3BB43E683D5603E51A490B817D1A52588
 ```
 
 https://mybot314.ru/tekegram_catalog/

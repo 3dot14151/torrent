@@ -1,3 +1,61 @@
+###  Публикация: 1461979   (1021463) от 12.04.2021
+
+Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Country Lane [7:18]
+02. Rua Algoinhas 301 [7:04]
+03. Kenny [4:07]
+04. I Can Touch The Stars [4:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED4BC742F28EE13CF7BF09843773C008A51373B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462034   (1021462) от 12.04.2021
+
+Nils Krogh - Disposition (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposition (3:56)
+02. Things We Do (5:34)
+03. Lost Luggage (3:45)
+04. All I Want (3:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF2E7F725287C1219EAEA54F73DF0DBDC411635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462245   (1021339) от 13.04.2021
 
 Red Norvo - Nuances By Norvo (1938 - 1942) 2000, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A1B574C1752D237153182EEE7A0C62447B3AC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465878   (1018827) от 28.04.2021
-
-André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. La Javanaise
-2. L'eau A La Bouche
-3. Ce Mortel Ennui
-4. Black Trombone(   Читать дальше...   )Жанр: Chanson, Cool JazzПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF586F8590150F8F8597B095DED65E9A89E5448C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466024   (1018803) от 28.04.2021
-
-V.A. - Super Soul Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Charles – Come Rain or Come Shine
-02. Joshua Redman & Wallace Roney – The Sidewinder
-03. Harry Arnold, Quincy Jones & The Swedish Radio Studio Orchestra – Doodlin’
-04. Chris Connor & Maynard Ferguson – Black Coffee(   Читать дальше...   )Жанр: JazzПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4E5D15CC830EB1245DB305AC88BA4BF1763C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

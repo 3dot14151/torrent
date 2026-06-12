@@ -1,22 +1,25 @@
-###  Публикация: 1275787   (788147) от 16.01.2019
+###  Публикация: 1276596   (788236) от 16.01.2019
 
-Ю.М. Зубарев | Математические основы управления качеством и надежностью изделий (2017) [PDF]
+Disgorge (US) - Cranial Impalement (1999) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Научная и техническая литература
->>Учебники
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В учебном пособии рассматриваются современные проблемы, связанные с надежностью машин и сложных систем, в том числе оборудования машиностроительных производств, автоматических линий, ГПС и пр. Приведены математические методы при управлении качеством и надежностью изделий. Рассмотрены основные понятия качества изделий и их надежности при их эксплуатации, основы теории (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+01. Deranged Epidemic (3:07)
+ 02. Atonement (3:18)
+ 03. Cognative Lust of Multilation (2:41)
+ 04. Period of Agony (3:15)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4E93E03DB0EE050036B00F8074CCA489092BF32
+magnet:?xt=urn:btih:146FF9AE43C9B9F3854EED2ECAB2AC08684BE978
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275517   (788146) от 16.01.2019
+###  Публикация: 1276482   (788235) от 16.01.2019
 
-Лев Шумеев | Техника гитариста (2012) [PDF]
+Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга является продолжением "Школы начинающего гитариста". В ней рассматриваются практически все виды гитарной техники, освещаются проблемы интенсификации движений рук при исполнении современной музыки, предлагаются способы совершенствования аппликатуры правой руки в сложных арпеджио и гаммообразных движениях. Книга предназначена для широкого круга гитаристов, (   Читать дальше...   )Жанр: Музыка, Обучающая литератураФормат: PDF
+01. Rock With You [6:59]
+02. Blues For McCoy [6:36]
+03. Little Mary [6:39]
+04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C4470705DD185A8C6D49B42E9E1F053CFCE1C0F
+magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276484   (788145) от 16.01.2019
+###  Публикация: 1276471   (788234) от 16.01.2019
 
-WinSnap 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
+KCNcrew Pack 01-15-19 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinSnap позволяет делать скриншоты экрана монитора и редактировать полученные изображения. WinSnap может захватывать скриншоты нестандартных окон, которые имеют не строго прямоугольную форму. Кроме того, программа способна автоматически исправлять некоторые недостатки в графике, накладывать тени, сохранять результаты в большинстве графических форматах.Язык интерфейса: Русский, Английский и другие
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A587D00153C571CBD19534D7562557985E6564B
+magnet:?xt=urn:btih:8D9238CF9CB909F5CF4CF9054E961DB2D105910D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275436   (788144) от 16.01.2019
+###  Публикация: 1276576   (788233) от 16.01.2019
 
-Бар-Селла Зеев | ЖЗЛ. Александр Беляев (2018) [MP3]
+Suffocation - Human Waste (1991) EP, 1994, Relapse Records [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Об Александре Беляеве, носящем титул «классика советской фантастики», известно на удивление мало, и современные биографические справки о нем пестрят неточностями. Он — выпускник духовной семинарии и юридического лицея — работал в суде, играл в театре, был журналистом и даже милиционером. После стечения трагических обстоятельств, включая серьезную болезнь, периодически (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 23:23:18
+01. Infecting the Crypts (4:38)
+ 02. Synthetically Revived (3:38)
+ 03. Mass Obliteration (4:29)
+ 04. Catatonia (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:085C8CBCAF6907DF14A6FE3D4D384D726C35580B
+magnet:?xt=urn:btih:5F5A9576FCDBF253444AE242397AA60BAA43A939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,27 +111,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276525   (788143) от 16.01.2019
+###  Публикация: 1276589   (788232) от 16.01.2019
 
-Михаил Болтунов | Спартанцы XXI века (2018) [FB2]
+VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
->>Научная и техническая литература
->>Военная литература
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор – едва ли не единственный писатель и публицист, кому участники легендарного специального подразделения рассказали всю правду о себе.
+01. Grandaddy - Alan Parsons in a Winter Wonderland (02:59)
+02. The Dandy Warhols - Little Drummer Boy (03:12)
+03. The Webb Brothers - Every Day Is Christmas (02:55)
+04. Eels - Everything’s Gonna Be Cool This Christmas (02:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DD6B7AC4362CD5DE30A614B3283CD8BB4C7003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276409   (788231) от 16.01.2019
+
+VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788231.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Altson 45 - Back To You
+002. Clarv - Blizzard
+003. Savoir Adore - When The Summer Ends (Rac Mix)
+004. Bbno$, Y2k, Lewis Grant - Thankful(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3BA139987C8179F64F9469E282BDBBEC5898F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276492   (788230) от 16.01.2019
+
+Money Pro 2.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
 
-Самолет оторвался от взлетно-посадочной полосы, набрал высоту и взял курс на Батуми. Когда он был уже на предпосадочной прямой и выпустил шасси, в дверь пилотской кабины постучались. Один из летчиков посмотрел в глазок и увидел (   Читать дальше...   )Жанр: Военное дело / спецслужбы, Военная история, Историческая публицистикаФормат: FB2
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B47A6FE3AAB235EDD205C213F58C2DDFF0A13C3
+magnet:?xt=urn:btih:4EEC44C6B8CDDFB89AE675B5980AD2F3EA65F129
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276374   (788142) от 16.01.2019
+###  Публикация: 1276460   (788229) от 16.01.2019
 
-NG. История десятилетий / The '80s and '90s Greatest (2018) SATRip (серии 01-12, 14-16, 18-20 из 20)
+VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы вновь осветим самые запомнившиеся моменты того десятилетия в истории Америки, когда она переживала упадок и одновременно все было таким большим, начиная от подплечников и кончая банковским счетами. Неукротимый азарт вознаграждался крупными прибылями, и, утопая среди изобилия роскошных брендов и безумных кредитов, мы тратили наличные так, как будто у нас не было (   Читать дальше...   )Производство: США, National Geographic ChannelЖанр: Документальный, история, исследованияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:22:00
+01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
+02. Eros Pandi - Second Chances (Radio Mix) 2:43
+03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
+04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61D72D1619EBC36BF93457400C05EC3D0D944EDE
+magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,280 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276617   (788141) от 16.01.2019
+###  Публикация: 1276598   (788228) от 16.01.2019
 
-NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nature (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корея — древнее горное королевство. Земля разделённая на две части войной. Шрамы войны видны не везде. В мире дикой природы вы сможете найти другую Корею. На юге осталось много не тронутых человеком уголков. Там живут удивительные существа, которые тесно связаны с этой страной, и друг с другом. Здесь человек столетиями жил в гармонии с природой, по этому по сей растительный (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс РидПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC039A2577EC4820911322B24DBB86709552056E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276237   (788140) от 16.01.2019
-
-VA - Sex Lounge: Music For Making Love (2002) [FLAC|Lossless|tracks + .cue] <Lounge, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 - Sensual Foreplay:
-01. The Gentle People - Journey (Reprise Intro Edit) [1:09]
-02. The Gentle People - Groovin' With You [4:07]
-03. Deepak Chopra Feat. Demi Moore - Desire (The Lover's Passion - Do You Love Me - Come To Me - Desire) [5:39](   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA85EEBDE0382ACD18554A2DA755575D8F0E15DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276590   (788139) от 16.01.2019
-
-Blackmore's Night - All Our Yesterdays (2015) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Our Yesterdays (4:02)
- 02. Allan Yn n Fan (3:28)
- 03. Darker Shade of Black (6:05)
- 04. Long Long Time (4:13)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C8E84D45965C23F539F424299010FD91FE8E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203428   (788138) от 02.02.2018
-
-Michiya Koide Backed By The King Orchestra - Beautiful Melodies Of Japan Play's By Ocarina (1960???) аукционная пластинка [FLAC|Lossless|tracks] <folk, World, & Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A1 	Akatombo
-A2 	Sakuragai No Uta
-A3 	Chiisai Aki Mitsuketa(   Читать дальше...   )Жанр: folk, World, & CountryПродолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164751F2695D64E635B9A1893CE2C0D60C0D4FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203572   (788137) от 02.02.2018
-
-Евгений Гаглоев | Кефир, Гаврош и Рикошет, или Приключения енотов-инопланетян (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга цикла «Приключения енотов-инопланетян».
-Илона скоро станет первоклашкой, но она уже достаточно взрослая и храбрая, чтобы защитить:- бабушку - от злобных грабителей;
-- музей - от кражи экспонатов;
-- город - от сумасшедшего ученого Финдершлотца;(   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7018732DC320FF870ED436A3DDC1DF38628992D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203168   (788136) от 02.02.2018
-
-Галина Куликова | Похождения соломенной вдовы (2018) [MP3, Татьяна Ненарокомова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром вместо любимого мужа Лера Сердинская обнаруживает в своей постели совершенно незнакомого типа, который нагло утверждает, что именно он и есть настоящий муж Все вокруг, и даже родная сестра, признают в самозванце законного супруга Леры. Но она знает, что не сошла с ума, и нанимает детектива для расследования этой истории. И пусть все принимают ее за (   Читать дальше...   )Жанр: Иронический детективИздательство: Нигде не купишьПродолжительность: 14:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16BD69C28EA79227DFD06076790060B1BCD74CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203536   (788135) от 02.02.2018
-
-YTD Video Downloader PRO 5.9.3 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788135.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD06DFC2FE3328723FFC0F9263C0E488B72E1924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203517   (788134) от 02.02.2018
-
-Александр Марцинкевич и группа Кабриолет - Неповторимая (2003) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цепи
-02. Не ругай меня, мама
-03. Убегу
-04. Конь мой вороной(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6945EEB7BC03B9B77CFBE8790BA25C4754421F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203444   (788133) от 02.02.2018
-
-Kruger - Врага бей в рога (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрный флаг
-02. Великий Джордано
-03. Russian Rock Brothers (Дизель версия)
-04. Один в поле воин(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1D8B552BACAB20C07A2A7B536AF0E612169AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203523   (788132) от 02.02.2018
-
-VA - Armin Van Buuren & Gareth Emery & Ashley Wallbridge - A State of Trance 850 (Part 2) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Armin van Buuren played:
-01. Armin van Buuren feat. Conrad Sewell – Sex, Love & Water
-02. Axwell Λ Ingrosso feat. Trevor Guthrie – Dreamer (ALPHA 9 Remix)
-Tune Of The Week(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:09
+01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
+02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
+03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
+04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B98B51496038D5CEB068988F28F8AD78ECB1C4
+magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,28 +255,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203502   (788131) от 02.02.2018
+###  Публикация: 1276603   (788227) от 16.01.2019
 
-Barry Sisters - Barry Sisters with Sammy Meade's Orchestra (1940) шеллак  78 [FLAC|Lossless|tracks] <Folk, World, & Country>
+VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1
-Old chief walla hoo
-2
-Pound your table polkaЖанр: Folk, World, & CountryПродолжительность: 00:05:55
+01. Anden State - Dogma (Extended Mix)
+02. Formal One - Neon City (Original Mix)
+03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
+04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF2EC4A40FB4F01D545AF727A18DD697746EC584
+magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,28 +284,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203501   (788130) от 02.02.2018
+###  Публикация: 1276348   (788226) от 16.01.2019
 
-VA - Armin Van Buuren and Above & Beyond - A State of Trance Episode 850 (Part 1) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust And Dirt (04:06)
+02. Die Sonne Innere (08:00)
+03. Acid Kiss (06:41)
+04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276391   (788225) от 16.01.2019
+
+Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alger 69
+02. Day by Day
+03. My Girlfriend
+04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276583   (788224) от 16.01.2019
+
+Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle of Arcane Might (5:07)
+ 02. Powerwind (5:17)
+ 03. Guardian of the Seas (5:39)
+ 04. Flight of the Sapphire Dragon (5:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276610   (788223) от 16.01.2019
+
+VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Surok & AirLab7 – Urabe Mikoto (Original Mix)
+02. Varsente – Athena (Original Mix)
+03. Blue Moon & DreamLife – Last Farewell (George Crossfield Emotional Remix)
+04. Sothzanne String – Live Your Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9EDA52421DA856201AF053E0279FD0E27CB73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276413   (788222) от 16.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maite Kelly - Die Liebe Siegt Sowieso
+02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
+03. Andrea Berg - Ja Ich Will (DJ Edition)
+04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276592   (788221) от 16.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren – Be In The Moment (ASOT 850 Anthem)
-02. Omnia & Alex Sonata – Titans
-03. Super8 & Tab ft. Envy Monroe – True Love
-04. Alexander Popov & Tenishia ft. Thomas T – Play Your Cards (Max Roven Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:00
+01. Tim Green - Her Future Ghost
+02. Tonal Axis - Rainfall (Monoverse Remix)
+03. Louis Botella - Sueno Latino (Paradise Slave Mix)
+04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24AA2B155AB492AD6088DFD429049D07B94CBE7A
+magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,25 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203479   (788129) от 02.02.2018
+###  Публикация: 1276401   (788220) от 16.01.2019
 
-CoolUtils Total Audio Converter 5.3.0.160 RePack (& Portable) by ZVSRus [Ru/En]
+Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский | Английский
+01. Ma Mama
+02. Naleki
+03. Youwile
+04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9725CAD1BB02262B70E1502C715E53624565BE92
+magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203359   (788128) от 02.02.2018
+###  Публикация: 1276410   (788219) от 16.01.2019
 
-Peter Gabriel - Us (1993) [FLAC|Lossless|tracks + .cue] <Pop Rock, Art Rock, Downtempo, Funk>
+VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come Talk To Me (7:06)
-02. Love To Be Loved (5:18)
-03. Blood Of Eden (6:39)
-04. Steam (6:03)(   Читать дальше...   )Жанр: Pop Rock, Art Rock, Downtempo, FunkПродолжительность: 00:57:49
+001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
+002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
+003. The Regrettes - Don't Stop Me Now
+004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3B9EDEA2111EBF594F99A8EDF5497FAE28C553B
+magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +516,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203374   (788127) от 02.02.2018
+###  Публикация: 1203540   (788218) от 02.02.2018
 
-François X (Francois X) - Irregular Passion (2017) Dement3d [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Ambient, Experimental>
+Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
+02. 3 Is Family 3:39
+03. Got To Give Me Love 4:10
+04. Show Me 4:03(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAE5890999212FF326A144ACE94F1A5727F2678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203405   (788217) от 02.02.2018
+
+VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club>
 
 >>Electronic
->>Trance, House, Techno (Hi-Res)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Of A Lifetime (04:46)
- 02. Blurry Youth (03:41)
- 03. Slave, No Slave (06:14)
- 04. Just A Dream (02:49)(   Читать дальше...   )Жанр: Techno, Ambient, ExperimentalПродолжительность: 00:58:06
+01.  Turbotronic  -  JOA (Original Mix)  4:30
+02.  Maarten Van Larsen, Harlie & Charper  -  Woodoorave (Extended Mix)  4:24
+03.  DJ MNS vs. E-Maxx  -  Night Train (Harlie & Charper Remix)  3:48
+04.  Turbotronic  -  Show Me The Money (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Melbourne Bounce, ClubПродолжительность: 02:03:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0050882A9445E7839EE22B2AB7B73E2212ACDEA
+magnet:?xt=urn:btih:52BBA4124C9C61FDD70136447BA963C291B389F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,54 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203499   (788126) от 02.02.2018
+###  Публикация: 1203216   (788216) от 02.02.2018
 
-Бравадос / The Bravados (1958) BDRip [H.264]
+С. Моносов | Очерки истории революционного движения (1933) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дикий американский Запад: дикие времена, дикие нравы. Джим Дуглас ищет тех четверых, что изнасиловали и убили его жену. Он узнает, что в соседнем городке их арестовали и должны казнить. После того, как убийцам удалось сбежать, Дуглас решает взять правосудие в свои руки. Однако постепенно он убеждается в справедливости древней истины: убивая другого, ты уничтожаешь (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, ВестернРежиссер: Генри КингАктеры: Грегори Пек, Джоан Коллинз, Стивен Бойд, Альберт Сэлми, Генри Сильва, Кэтлин Галлант, Бэрри Коу, Джордж Восковек, Герберт Радли, Ли Ван КлифПеревод: Профессиональный (двуголосый  закадровый)Субтитры: ОтсутствуютПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3449C7C8DDFD8439ABC4D598DF50E8ED823EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203566   (788125) от 02.02.2018
-
-Марина Козинаки, Софи Авдюхина | Тёмные птицы (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятый роман цикла «По ту сторону реки».
+Настоящий учебник предназначается для обслуживания слушателей совпартшкол, рабфаков, техникумов и для самообразования.
 
-На Тридевятое государство опускается беззвездная ночь, страх расползается по улицам городов. Темные получают то, что не должно было попасть им в руки. Неужели на стороне Светлых есть предатель? Друзья попытаются выяснить, кто он, но лишь сильнее запутаются.
-(   Читать дальше...   )Жанр: Книги про волшебников, Русское фэнтезиФормат: FB2
+Первоначально предполагалось, что учебник будет переработан самим автором С. Моносовым, но преждевременная смерть автора поставила Партиздат пред необходимостью привлечь ряд товарищей для коренной переработки этого учебника.
+(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EB6B6B8F19A782C1D618E9678859C3853BACD2F
+magnet:?xt=urn:btih:AC0803F7EC6CC1B3FB96D7E0E208BAA32694C2F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +603,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203537   (788124) от 02.02.2018
+###  Публикация: 1203533   (788215) от 02.02.2018
 
-Шрам / The Cut (2014) BDRip [H.264]
+Dana Dawson (Дана Доусон) - Paris New-York And Me (1991) Columbia, COL 481568 2, Europe [MP3|320 Kbps] <Electronic, Pop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время геноцида армян в 1915 году Назарет Манукян теряет семью. Спустя годы он случайно узнает, что его дочки-близнецы, возможно, спаслись. Назарет отправляется на их поиски и доходит из родной деревни Мардин в пустыню Месопотамии, а потом в Новый Свет - в Гавану и Северную Дакоту.Производство: Германия, Франция, Италия, Россия, Польша, Канада, Турция, Иордания / Bombero International, Corazón International, Dorje FilmЖанр: драма, историяРежиссер: Фатих АкинАктеры: Тахар Рахим, Симон Абкарян, Макрам Хури, Хинди Зара, Кеворк Маликян, Барту Кючюкчаглаян, Трине Дюрхольм, Мориц Бляйбтрой, Акин Гази, Джордж Джорджиу, Зейн Факури, Дина ФакуриПеревод: Дублированный (DVD R5)Субтитры: русские полные (stalkerok)Продолжительность: 02:18:20
+Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Romantic World 4:44
+02. Tell Me Bonita 5:01
+03. Survival 3:45
+04. I'm A Singer 4:03(   Читать дальше...   )Жанр: Electronic, Pop, R&BПродолжительность: 00:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94021669E416A1DDD25C2F6E2FF2CF821FCC508D
+magnet:?xt=urn:btih:A45D6EF7A68776B5FDE9D489F20DE6A6D0D2B0E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +632,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203180   (788123) от 02.02.2018
+###  Публикация: 1203442   (788214) от 02.02.2018
 
-Галина Куликова | Гарем покойников (2018) [MP3, Татьяна Ненарокомова]
+Григорий Ряжский | Подмены (2017) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говорят, дорога в ад вымощена служебными романами. Несмотря на наличие красавицы-жены, Глеб Стрельцов, плейбой и глава крупной фирмы, не может устоять перед молодыми красотками. Но на них словно мор напал. Погибли в день своего рождения две его бывшие любовницы. Надвигался день рождения третьей. Как и предыдущие две, она получила открытку с угрозами. Глеб с ужасом (   Читать дальше...   )Жанр: Иронический детективИздательство: Нигде не купишьПродолжительность: 08:31:33
+Жизнь семьи Грузиновых-Дворкиных складывалась вполне респектабельно: глава семьи – герой Отечественной войны, дошедший с батальоном до Праги, профессор, заведующий кафедрой; жена, красавица княжеских кровей; подающий надежды сын; просторная квартира в центре Москвы… Но ветры перемен не минуют в российской истории никого, и вот, уже в послевоенные годы, семейная идиллия (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:58:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53EC0F19F35DA6228975A998AD0D51EB711B4354
+magnet:?xt=urn:btih:F86F696F2E0D02182F24B5491E6FF9FCFD8551BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +658,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203275   (788122) от 02.02.2018
+###  Публикация: 1203448   (788213) от 02.02.2018
 
-Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
+Serial Box 02.2018 [En]
 
->>Other Styles
->>Other (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Divorce Me C.O.D.
-2. Deep South
-3. Blue Smoke
-4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
+База серийных номеров проекта iSerial по состоянию на 2 февраля 2018 года.
+В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!Тип издания: macOS SoftwareРелиз состоялся: 01.02.2018Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 или более новаяЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
+magnet:?xt=urn:btih:7DD5AAD426AECA546F1A3413FC63B0C1E8A5D202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203140   (788212) от 02.02.2018
+
+А. И. Новиков | Заговор справедливых (1977) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о мужественных и самоотверженных людях, осмелившихся мечтать об обществе, в котором все будут равны и свободны. Юный читатель узнает о том, как жили и боролись против мира насилия Мор, Кампанелла, Фурье, Сен-Симон и многие другие провозвестники светлого будущего человечества.Жанр: История, политология, философия, биография, публицистикаФормат: DJVU, PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABADEACE6B77976E594A0E8F69D148436482B5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203453   (788211) от 02.02.2018
+
+VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation presents Elara - Meridian (World Premiere)
+02. Markus Schulz presents Dakota - Cafe Del Mar
+03. Stoneface & Terminal - Covenant
+04. Giuseppe Ottaviani - Till the Sunrise (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8179E870BB0496E6141C5389920D90201B306C
 ```
 
 https://mybot314.ru/tekegram_catalog/

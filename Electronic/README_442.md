@@ -1,3 +1,234 @@
+###  Публикация: 1593959   (179255) от 29.11.2022
+
+Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179255.jpg" />
+</div>
+
+
+###  Подробнее
+
+1983 - Lust
+1985 - Suessherz und Tiefenschaerfe
+1987 - Traumreisen
+1996 - Esperanza(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 05:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF4C868280CF2DFC4A3CDA6F397F3B824734113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666064   (178929) от 05.10.2023
+
+Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simply the Best Hit [00:04:56]
+02 - Through the Flickering Stars [00:04:41]
+03 - From the Morning to the Dark [00:04:11]
+04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594250   (178699) от 30.11.2022
+
+Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - Flammende Herzen
+1978 - Sterntaler
+1979 - Katzenmusik
+1982 - Fernwärme(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 02:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287C7AC181F961E5875F79E482A1451709A7D17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428935   (178395) от 04.12.2020
+
+An Moku & Stijn Hüwels - Where We Meet (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Where We Meet (28:44)
+
+bandcampЖанр: Ambient, Experimental, DroneПродолжительность: 00:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9FA6FD087356C811827731CEC106A290127726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428922   (178368) от 04.12.2020
+
+Francis M. Gri - The Ropes (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electro-acoustic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Consequences of Words (06:40)
+2. A Rope Can Hold (05:05)
+3. Bind or Break (04:20)
+4. Twined Together (05:20)(   Читать дальше...   )Жанр: Ambient, Electro-acousticПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802A589B0745E15B9A6CC98A964CD9D0E399DF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667048   (178357) от 06.10.2023
+
+Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-10-05) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma - Chordial
+02. Pryda - Hiidden
+03. Boris Brejcha - Wormhole
+04. Rebuke & Anyma - Syren(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428915   (178316) от 04.12.2020
+
+VA - All Night Jazz: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Micarelli - La Genesi Del Fraseggio: Another Me, Another You (01:00)
+02. Belinha Bossa Duo - Carinhoso (04:34)
+03. Raquel Silva Joly - Estate (04:25)
+04. Lisa Maroni - Eu Sem Voce (Instrumental) (05:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81079F943597626632F4B053833872C5858E0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666846   (178259) от 06.10.2023
+
+VA - Chill with Colors: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss Deep Sound Lab - Je Sais (French Version) (6:24)
+02. thE fluiD musics lab. & Ritmo - 5 Minutes (5:06)
+03. Roberto Sol - Impress Me (Ohm-G Remix) (4:43)
+04. Lubay - Golden Hour (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDACBD7AE1CA418C56B99106B5ED575D1B08151A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428873   (178205) от 04.12.2020
 
 VA - Armada Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House, Dance>
@@ -513,238 +744,6 @@ VA - The Best Of Suanda Voice 2022 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A8DE65222F15214094F45DD34912622EF9F155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429447   (176726) от 06.12.2020
-
-VA - Winter Chillout Lounge 2020 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manoa - Emotions - Way Back Mix (5:13)
-02. Poolwave - Liquid Affair - Open Water Cut (5:36)
-03. DJ Maretimo, Sky Sergeant - Wingsuit - Dreamwave Cut (5:36)
-04. Frank Borell - Distance Voices - Over the Islands Mix (4:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309A48FB98C9AD9B43FBDD7141C103D2122BF81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100474   (176172) от 06.12.2020
-
-Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Post Rock, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. North (07:59)
- 02. West (04:07)
- 03. East (07:44)
- 04. South (06:47)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 42:01:16 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1B4B00C32B1137A76B6479413F6C7969A753EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595260   (176162) от 04.12.2022
-
-Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог. Вход В Тишину [00:02:34]
-02. Улыбайся [00:05:26]
-03. Когда Наступит Утро [00:05:23]
-04. Пока Горит Постель [00:04:19](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B692C29D66FB7628C6B010C7D0C73AF3FBCF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429719   (176025) от 07.12.2020
-
-Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + .cue] <IDM, Experimental, Deconstructed Club>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hypnic Jerks (03:52)
-2. Vacuum Angle (03:17)
-3. Mirror Instant (03:57)
-4. Metrogazer (05:13)(   Читать дальше...   )Жанр: IDM, Experimental, Deconstructed ClubПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2770F566B7275F33172227F5E16180EF989F5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429710   (175991) от 07.12.2020
-
-Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <Ambient, Leftfield>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Arrival (02:49)
-2. Gone For A Wander (03:13)
-3. Sunshine In 1929 (03:45)
-4. Water Theme (03:17)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700A9BDA811124BD74EEE9B2E327D8F748C06C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595523   (175515) от 05.12.2022
-
-2DCAT - Fantastic Voyage (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star (Vinyl Version) [00:03:48]
-02. Come Back To Me (Vinyl Version) [00:03:34]
-03. Give Up (Vinyl Version) [00:03:18]
-04. Stay With Me (Vinyl Version) [00:03:12](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C362F1F4363E236CBEF873E0D9ECD08DB5D368C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667854   (175376) от 10.10.2023
-
-Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Brazil (2023-04-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Rateuke - Oudara (Club Mix)
-02. ID - ID
-03. Shiba San & Nautik - Drop That Shhh
-04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 04:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667864   (175323) от 10.10.2023
-
-MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MEDUZA - Friends
-02. Adapter - No No!
-03. Mau P & Kevin de Vries - Metro
-04. MEDUZA - Slowdown w/MEDUZA ft. Dermot Kennedy - Paradise (Acappella)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 02:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
 ```
 
 https://mybot314.ru/tekegram_catalog/

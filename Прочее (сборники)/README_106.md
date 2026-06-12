@@ -1,3 +1,166 @@
+###  Публикация: 540060   (504818) от 28.08.2012
+
+VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с]<Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Red Blooded Women
+02. Natasha St-Pier - Je Te Souhaite
+03. Chris De Burgh - Love Of The Heart Divine
+04. Tony Joe White - Cold Fingers
+05. Patricia Kaas - Je Te Dis Vous
+06. Alanis Morissette - Hands Clean
+07. Jai - I Love You(Human)
+08. Despina Vandi - Ime Ego
+09. Anggun - Je Partirai
+10. Eros Ramazzotti - L'Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933841   (504602) от 03.09.2015
+
+VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave & Get Closer - The Time Before (Original Mix)
+02. Mary J. Blige - Real Love (Christofi Glenn Michaels Remix)
+03. Denis Kenzo & Kimberly Hale - Find The Light (Original Mix)
+04. Matvey Emerson - Run Away (Original Mix)(   Читать дальше...   )Жанр: Trance, Dance, House, Synthpop, ClubПродолжительность: 09:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933874   (504418) от 03.09.2015
+
+VA - Super Hits Of Russian Dance & Club House [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Dancе, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вирус - Счастье (Dj Tarantino Remix) [04:09]
+02. Краски - Весна (Dj Shulis Aka Sergey & Ночной Мир Project Remix) [04:47]
+03. Демо - Солнышко (Mexx Beat 2014 Remix) [03:45]
+04. Инфинити - Алло (Tony Kart & Mike Prado Remix) [03:56](   Читать дальше...   )Жанр: Dancе, Club HouseПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51791D49C9477483C658DEA5332DFD1A67DEF8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540103   (504390) от 28.08.2012
+
+VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Power Metal, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doro Feat. Onkel Tom Angelripper - Merry Metal Xmas
+ 02. Slash - Crucify The Dead (feat. Ozzy Osbourne)
+ 03. Serj Tankian - Goodbye - Gate 21 - Featuring The FCC And Tom Morello
+ 04. Scorpions feat. Amandine Bourgeois - Still Loving You - Je t'aime encore
+ 05. Doro& Krypteria - Victoria
+ 06. Gamma Ray (feat. Michael Kiske and Hansi Kürsch) - Land Of The Free
+ 07. Linkin Park - Enjoy The Silence (Feat. Depeche Mode)
+ 08. Lordi (feat. Udo Dirkschneider) - They Only Come Out At Night
+ 09. U.D.O.&Ария - Штиль
+ 10. Halford (feat. Bruce Dickinson) - The One You Love To HateЖанр: Hard Rock, Heavy Metal, Power Metal, InstrumentalПродолжительность: 03:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540094   (504387) от 28.08.2012
+
+VA - Русский рок - Баллады (vol. 2) (2012) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ''Михей и Джуманджи'' и С. Галанин - Мы дети большого города
+ 02. Сергей Маврин - Утоли мои печали
+ 03. Гран-КуражЪ - Дождь
+ 04. F.P.G. - Легенда
+ 05. Ольви - Осенняя песня
+ 06. Deform - Торжество жертвы
+ 07. Артефакт - Сердце ночи
+ 08. ЛегЕндА - Забудь про свет
+ 09. Маленькие Трагедии - Эммануэль
+ 10. Райский Ад - СтеныЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC92BB977E03599E62C0205F097DC7DD2CCFA6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540085   (504279) от 28.08.2012
 
 VA - Лучшие Русские Рок - Дуэты (2012) [MP3|295-320 кб/с]<Rock, Hard Rock, Heavy Metal>
@@ -686,163 +849,6 @@ VA - Дрожь Танцпола. Клубные хиты (2012) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141DCBBB92733318A2894B08A22F069DDB719360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541549   (500429) от 01.09.2012
-
-VA - Радио Energy - NRJ HOT30 (31.08.2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Project - Musica
-02. Flo Rida - Whistle
-03. Loreen - Euphoria
-04. Oceana - Endless Summer
-05. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield rmx)
-06. Playmen - Fallin
-07. Tonic feat Erick Gold - Lead The Way
-08. Alex Ferrari - Bara Bar Bere Ber
-09. Far East Movement Feat. Junior Caldera & Natalia Kills - Lights Out
-10. Bel Suono & Dj Magic Finger - Te Quiero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4D39EFC0EA0930C0196B699332F76B82EC1C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316712   (500283) от 01.08.2019
-
-VA - 100 Songs Part 2 (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3rd Force - Bridge of Dreams -  [4:17]
-002. A$AP Rocky - Praise The Lord (Da Shine) (feat. Skepta) -  [3:25]
-003. A-ha - The Living Daylights -  [4:47]
-004. Alborosie - La Revolucion -  [3:45](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80944B1198DA4799AB17CF2B5533AAB916AB944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935099   (500207) от 07.09.2015
-
-VA - Всё сразу 200 хитов Выпуск 7 50/50 (from Valik) (2015) [MP3|146 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500207.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - HLOP, HLOP, HLOP
-002. Major Lazer feat. Amber - Get Free (What So Not Remix)
-003. VISA feat. D.I.P Project - Алло
-004. Filly Bee - Like A Bomb(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBFF868C313F8A09D77772902C145C5E0C7CFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317530   (500175) от 01.08.2019
-
-VA - Новинки с разных популярных MP3 сайтов. Ver.86 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rus:
-1.Anivar - Без Тебя (2:38)
-2.Artik & Asti - Забудешь (Dj Loyza Remix) (3:38)
-3.Doni feat. Batrai & Timran - Манила (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCE06DA8283BF7CF5810925DEBAC038C22E0560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541936   (500077) от 01.09.2012
-
-VA - Музыка для потрясающего вечера (2012) [MP3|80-320 кб/с]<Relaxation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB – Enigmatic Encounter (Feat. Enigma)
-02. Toni simonen - parasailing
-03. Dab - waiting 4 you
-04. Bright sun spirit - white sand
-05. Motif - give it away
-06. Coastline - mediterranen
-07. Lunatic soul - time to remember
-08. Wasaby ink - all my love
-09. Steve xavier - one world
-10. Toni simonen - endless sea(   Читать дальше...   )Жанр: RelaxationПродолжительность: 02:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9F89E09EDA2645FDAA459ED1C5E14FB5AC62FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

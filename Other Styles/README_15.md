@@ -1,3 +1,119 @@
+###  Публикация: 1358712   (967311) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358713   (967229) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745789   (967218) от 15.01.2014
+
+VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hilary Stagg - Inspirations (6:32)
+02. Paul Machlis - Nightblossom (3:43)
+03. Gary Malkin - The First Night (2:37)
+04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358716   (966978) от 09.02.2020
+
+VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966978.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:13| 01. Low Roar - Don't Be So Serious
+|02:50| 02. Low Roar - Bones
+|04:48| 03. Low Roar - Easy Way Out
+|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618767   (966675) от 17.02.2013
 
 VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|320 кб/с]<Soundtrack>
@@ -635,119 +751,6 @@ Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listeni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9285F4C935DBD1683525FF42EE56814436E0493D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747501   (962438) от 19.01.2014
-
-Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 April
-02 Balloons
-03 Unbridled
-04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978366   (962293) от 24.01.2016
-
-Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love (Jellybean Remix)
-02. The Power Of Love (Instrumental)
-03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978804   (962292) от 24.01.2016
-
-David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Vie en rose
-02. Fascination Waltz
-03. Comptine d'un autre ete (from the motion picture Amelie)
-04. I Will Wait for You(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978825   (962286) от 24.01.2016
-
-VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indian Classical, Samba, Bossa Nova>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gusttavo Lima - Balada (3:25)
-02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Indian Classical, Samba, Bossa Nova, Indie RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6225A27D092770652E305C5F921C731E036EB0D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

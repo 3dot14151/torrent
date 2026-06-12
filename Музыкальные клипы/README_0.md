@@ -1,3 +1,29 @@
+###  Публикация: 1854024   (1060461) от 11.03.2026
+
+RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F1C87276C5119E1C0BAA062104FE6A0A826DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854027   (1060460) от 11.03.2026
 
 NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
@@ -673,35 +699,6 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE5586D445E2D4D03FE2C2D50E669CF188E5E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392170   (1022722) от 04.04.2021
-
-Коррозия металла - Клипы (1996-2020) WEBRip [H.264/720p/1080p] <Thrash Metal> (15 штук)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Bad Girls Train
-002 - Russian Vodka
-003 - Голая Марина
-004 - Джек-потрошитель(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E110C29581627D65C5D332B9EB557E55228BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

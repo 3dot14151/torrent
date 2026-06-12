@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1875646   (1072725) от 
+
+Frank Sinatra - Everything Happens To Me (1996) Compilation [FLAC|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gal That Got Away/It Never Entered My Mind (5:52)
+02. Everything Happens To Me (4:13)
+03. Once Upon A Time (3:30)
+04. Summer Wind (2:57)(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA43B0787E2085FC08CF3759CAC34D20BDAA71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875521   (1072609) от 
+
+Kammerflimmer Kollektief - There are actions which we have neglected and which never cease to call us. (2018) [FLAC|Lossless|Web-DL|tracks] <Free Jazz, Ambient, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action 1: Lucid, Imperial Beach (10:34)
+02. Action 2: Discharged, Quauhnáhuac (4:08)
+03. Action 3: Thoughtless, Hamburg (5:17)
+04. Action 4: Wasted, Ivano-Frankivsk (3:58)(   Читать дальше...   )Жанр: Experimental, Ambient, Free Jazz, Jazz NoirПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED81CAD4EBA4ADD0B10F2D6280B3F1AAD39660CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874513   (1071987) от 02.06.2026
 
 Joel Fausto & Illusion Orchestra - Hello (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Dream Pop>
@@ -688,64 +746,6 @@ Rick Braun - Rick Braun Plays Chuck Mangione (2026) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E440999843AA76EBC088765D75253E34F45FB3A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856061   (1058558) от 26.02.2026
-
-VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Massimo Faraò - Your Song (2:37)
-02.  Massimo Faraò Trio - Endless Love (3:25)
-03.  Massimo Faraò Trio - Candle in the Wind (2:22)
-04.  Massimo Faraò Trio - The Entertainer (1:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21733D8D38EDE15DC3921160E5B200369F4E1625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856063   (1058556) от 26.02.2026
-
-VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soundset City - Dancing In My Dreams (3:35)
-02.  Nightview - Play Games (2:37)
-03.  Jean Mare - Playground (2:56)
-04.  Soundset City - Taxi Driver (2:58)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, LoungeПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBED336AB97FED8E393A7DA2D93B5AEE2A6D0EDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

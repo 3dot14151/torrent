@@ -1,3 +1,148 @@
+###  Публикация: 1545813   (611229) от 21.04.2022
+
+Вячеслав Малежик - Здравствуй (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Здравствуй
+2. Берег ночи
+3. Вологда
+4. Ах, какая ты, любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0034660070FCC0D80BA857F0180E59C5D7A03F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147159   (611209) от 01.07.2017
+
+VA - A Touch Of Italo Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layla Mystic/Funkenhooker - Ibiza Needs You (Nu Disco Bitches edit mix) (03:44)
+02. Jason Rivas/Class Of '88 - E Salsa (Club edit) (03:23)
+03. Nu Disco Bitches/Jason Rivas - Song Five (vocal Club edit) (03:45)
+04. Acid Klowns From Outer Space/Jason Rivas - Golden Years (03:32)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545454   (611037) от 21.04.2022
+
+Рома Жуков - Легендарные Песни (2005) Special Edition [FLAC|Lossless|tracks + .cue] <Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцующий дождь
+02. Девчонки, мои девчонки
+03. Млечный путь
+04. На крыльях ночь(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BF6E217482DF979173DE77BA45B147AB36F914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147228   (610997) от 01.07.2017
+
+Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The City (3:58)
+02. Bless The Beasts And The Children (4:18)
+03. Christmas Lullaby (3:53)
+04. I Won't Say (I'm In Love) (3:18)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912690   (610762) от 26.06.2015
+
+Андрей Ковалёв - Неба синь (2005) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соль, текила и ломтик лайма
+02. Это ложь
+03. Разбитая любовь
+04. Если хочешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AB97DF418DA59448AFB3E16A7FAAD2BA40CBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912472   (610477) от 26.06.2015
 
 Bad Boys Blue - 30 (2015) [MP3|320 кб/с]<Disco, Pop, Eurodance>
@@ -603,153 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCF5976589A9BD310544711E3EB6A65861A6F7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913320   (607080) от 28.06.2015
-
-Savage Garden - The Singles (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You
-02. To The Moon And Back
-03. Truly Madly Deeply
-04. Break Me Shake Me(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C3C728E63AB6B86686EB8333B96E377FC6F155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231297   (607044) от 17.06.2018
-
-VA - Booom Summer 2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Enrique Iglesias x Pitbull - MOVE TO MIAMI
-02. Namika - Je ne parle pas français (Beatgees Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7526FE2FE4DFC32E36CADE5E2782B6B3CECFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231324   (606972) от 17.06.2018
-
-VA - NOW That's What I Call Summer Party 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606972.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Camila Cabello feat. Young Thug - Havana
-02. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:05:49
-
-01. French Montana feat. Swae Lee - Unforgettable
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA9FCB23C009769D277DF2EB15F22E5D411744B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231334   (606962) от 17.06.2018
-
-VA - В десяточку! лето98 (1998) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алабина ( Майами )
-02. Папа, мама ( Агутин )
-03. Завтра ( Авария )
-04. Джамбо ( Сивара )(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D20D06F379AA0B938C96A35B710A2CB6AEC05C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913370   (606934) от 28.06.2015
-
-Savage Garden - The Singles (2015) [FLAC|tracks+.cue]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You
-02. To The Moon And Back
-03. Truly Madly Deeply
-04. Break Me Shake Me(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BB928F4377313A32D0C451AC04BB1AC598F010
 ```
 
 https://mybot314.ru/tekegram_catalog/

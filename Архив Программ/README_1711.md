@@ -1,3 +1,31 @@
+###  Публикация: 1651749   (206957) от 07.08.2023
+
+Антивирусная утилита AVZ 5.83 (18.07.2023) (Неофициальная) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206957.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52697FF14F510B9492B2F670A3182A5B81FA8C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613830   (206941) от 19.02.2023
 
 X-Mouse Button Control 2.20 + Portable [Multi/Ru]
@@ -652,32 +680,6 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFB282CECED6B41B58F362D18C218D02E6E9DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613942   (206844) от 20.02.2023
-
-WinX VideoProc Converter 5.4 (17.02.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206844.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinX VideoProc Converter - усовершенствованная версия, WinX HD Video Converter Deluxe, мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D8AA2EDE3BB59E2E14CFDB593AD14FAC65F11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

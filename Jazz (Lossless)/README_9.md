@@ -1,3 +1,61 @@
+###  Публикация: 1445317   (1033795) от 05.02.2021
+
+Elmo Hope Ensemble - Sounds From Rikers Island (1963) 2003, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One for Joe [4:35]
+02. Ecstasy [3:16]
+03. Three Silver Quarters [4:45]
+04. A Night in Tunisia [5:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A114BDB8EC646F987361B4AC266988D717A8434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445191   (1033794) от 05.02.2021
+
+Thelonious Monk - Greatest Jazz (1992) [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thelonious (3:03)
+02. April in Paris (3:21)
+03. Monk's Mood (3:09)
+04. Round About Midnight (5:17)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764F1F77D890DB216216EECBCEB15522A127FDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445239   (1033774) от 05.02.2021
 
 John Coltrane - Impressions (1963) 1987, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modal Music>
@@ -687,64 +745,6 @@ Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30EE391CBEC70FC7E1CCD7F246ECB063D5EF0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446862   (1032311) от 11.02.2021
-
-Dino Saluzzi - Albores (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adios Maestro Kancheli - 3:56
-2. Ausencias - 4:58
-3. Segun Me Cuenta La Vida – Milonga - 7:01
-4. Intimo - 5:42(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89ED3D4949632FA45D04A456D2AC490FDE7525A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446940   (1032307) от 11.02.2021
-
-Julie London - For The Night People (1966) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Won't You Come Home Bill Bailey [2:26]
-02. I Got It Bad (And That Ain't Good) [3:59]
-03. Saturday Night (Is the Loneliest Night in the Week) [2:30]
-04. God Bless the Child [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFEC8E43BF0DB4C016A79E5909C267F9A38EEAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

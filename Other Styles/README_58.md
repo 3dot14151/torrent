@@ -1,3 +1,119 @@
+###  Публикация: 1282843   (741163) от 15.02.2019
+
+Birds of Chicago - Love in Wartime (2018) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro:Now/Sunlight (01:03)
+02. Never Go Back (02:33)
+03. Love in Wartime (05:50)
+04. Travelers (04:40)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777384B586929D974785FAFF869FF7FEDADE3953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282891   (741159) от 15.02.2019
+
+Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maale Mani (07:37)
+02. Dokhtare Irooni (06:44)
+03. Naaz Nakon (07:10)
+04. Ghahro Ashti (06:08)(   Читать дальше...   )Жанр: World MusicПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760B8A921B42EC1D123298886FB7508660F0A28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127146   (740905) от 20.04.2017
+
+Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sone
+02 - La Campana
+03 - Le Gustan Los Artistas
+04 - Yo Te Ensene(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B13901CCB37BEECC02E077CE5CB497ECF0BAB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127150   (740903) от 20.04.2017
+
+Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Castellano
+02 - Como Me Da La Gana (Hip Hop)
+03 - Quien Eres Tu
+04 - La Silicona(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B364A7DA6215B6EFE8DD6C9C2B80908BA2EE4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283134   (740762) от 15.02.2019
 
 Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -623,122 +739,6 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126928   (732083) от 21.04.2017
-
-VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Buddha - Desert Thar: World Mantra Flow (04:55)
-02. Donna De Lory - Sky is Open: Yoga Mantra Flow (Edit) (05:24)
-03. Prem Joshua & Chintan - The Subject Tonight Is Love: Hafiz Yoga Beats (Edit) (05:47)
-04. EarthRise SoundSystem - You Lovin' Me: Yoga World Dance (feat. Camille Armstrong, Srikala) (04:45)(   Читать дальше...   )Жанр: Chillout, Ethnic, Downtempo, New AgeПродолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127164   (732076) от 21.04.2017
-
-Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732076.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Om Rama – 9:39
-2. Om Shanti – 6:52
-3. Rama Rama – 7:35
-4. Rama Guru – 5:52(   Читать дальше...   )Жанр: New Age, Female Vocal, SpiritualПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021740   (732002) от 30.05.2016
-
-The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/с] <New Age, Miscellaneous>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Closed 00:01:39
-02. Drift Away 00:01:46
-03. Dreaming of Luna 00:01:40
-04. Weightlessness 00:01:39(   Читать дальше...   )Жанр: New Age, MiscellaneousПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AC0A231C965A199D35252C58A035A495FBAF67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529917   (731857) от 08.02.2022
-
-Евгений Алексеев - Piano Tribute to Гражданская Оборона, Vol. 2 (2022) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сияние
-2. Кайф или больше
-3. Никто не хотел умирать
-4. После нас(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491F5CE7FB914D70E812C83B2CE7B99FFC829473
 ```
 
 https://mybot314.ru/tekegram_catalog/

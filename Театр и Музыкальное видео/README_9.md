@@ -1,3 +1,29 @@
+###  Публикация: 601103   (998364) от 10.01.2013
+
+DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDB77D3B6DCD95C35D4DF8B6B6B9E7E5D1203F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601102   (998332) от 10.01.2013
 
 Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
@@ -709,32 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605619   (995416) от 20.01.2013
-
-Дискотека 80-х лучшее за 10 лет (2002-2011)-2 часть (DVD-9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаАктеры: TRANS-X, СЛАДКИЙ СОН, BAD BOYS BLUE, GLORIA GAYNOR, ВЯЧЕСЛАВ БУТУСОВ, KIM WILDE, DEMIS ROUSSOS, СЕРГЕЙ МИНАЕВ и др.Перевод: ОтсутствуетПродолжительность: 03:22:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

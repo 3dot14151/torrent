@@ -751,28 +751,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246272   (465461) от 09.09.2018
+###  Публикация: 384604   (480346) от 07.09.2011
 
-Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson, Jazz>
+Patricia Kaas - Greatest Hits [2CD] (2009) [APE|Lossless]<Pop, Blues, French Shanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 C'était L'été 2:13
-2 Dieu Et Diable (En Duo Avec Guy Marchand) 2:30
-3 Je Suis Comme Je Suis 3:59
-4 Il Y A La Nuit 3:21(   Читать дальше...   )Жанр: French, Pop, Chanson, JazzПродолжительность: 00:40:55
+01. Ma Liberte Contre La Tienne (5:49)
+02. Une Femme Comme Une Autre (4:46)
+03. Quand Jai Peur De Tout (4:22)
+04. Chanson Simple (3:24)
+05. Less Eternelles (3:52)
+06. Unne Fille De Lest (3:31)
+07. Mon Chercheur Dor (4:32)
+08. Rien Ne Sarrete (3:31)
+09. What Now My Love (3:59)
+10. Where Do I Begin (3:45)(   Читать дальше...   )2009Жанр: Pop, Blues, French ShansonПродолжительность: 02:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

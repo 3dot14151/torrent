@@ -1,3 +1,55 @@
+###  Публикация: 1077978   (304178) от 29.11.2016
+
+Проекты - VideoHive - Dynamic Color Opener - 18728736 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Color Opener - энергичная быстрая модная презентация для вашего бизнеса, модного салона или рекламы продукции.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F618A0D0DB519664C1B5767BD2B3F751915B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078018   (304050) от 29.11.2016
+
+Проекты - VideoHive - Awards Show - 18730960 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awards Show - Новый, мощный, современный и роскошный, премиум-класса пакет, по настоящему Голливудских анимаций! Лучше всего подходит для наград, но для него подходят и другие мероприятия: награды Академий, Юбилеи, премии, церемонии награждения победителей. Или кинематографические события: Emmy, Emmys, показ Моды, Золотой глобус, награды Grammy, Оскар, и даже свадьбы.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72E7FDA70E7591C6C67A87A057ED933FE3B7918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184229   (302761) от 16.11.2017
 
 Проекты - VideoHive - Corporate Identity Presentation - 506046 [AEP]
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592BF3281BCEEBA837C640F73E759A5F50C9206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186259   (287131) от 24.11.2017
-
-Проекты - VideoHive - News Opener - 20952510 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287131.jpg" />
-</div>
-
-
-###  Подробнее
-
-News Opener - Это начальная видео-заставка для новостных каналов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBCC742B745FD13B41AB27EC440858066D6F96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017132   (285711) от 08.12.2016
-
-Проекты - VideoHive - Broadcast Complete Package - Channel Identity [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadcast Complete Package - Channel Identity - полный комплект для работы с телевещанием. Видео обучение включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6261F747DAA68DE3223B0DBB14D2FE4C332A3D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1558949   (527673) от 23.06.2022
+
+Windows Server, Version 20H2 (10.0.19042.1766) (Updated June 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECC2F444767387D269CB8E847FE0B9292ADF08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558952   (527617) от 23.06.2022
 
 Microsoft Windows 11 [10.0.22000.739], Version 21H2 (Updated June 2022) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -504,6 +530,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141407   (472124) от 20.09.2009
+
+Microsoft Windows 7 - Language Pack MSDN [Multiple Languages]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_472124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 - Language Pack MSDN [Multiple Languages]Пакеты MUI предназначены и штатно устанавливаются  только на
+Windows 7 Ultimate (Максимальная) и Windows 7 Enterprise (Корпоративная).
+Не пытайтесь установить MUI на другие версии Windows 7, т.к. они не поддерживают
+мультиязычную пользовательскую среду.Windows 7 Language Pack (x64) - DVD (Multiple Languages)
+File Name: mu_windows_7_language_pack_x64_dvd_x15-73276.iso
+Date Posted (UTC): 8/6/2009 9:59:56 AM
+Size: 2 306 793 472 bytes
+MD5: 4FD12AD4C946DD145A67C3230650AB8B(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320384   (470661) от 18.08.2019
 
 Windows 10 x64 Full-Lite Release by StartSoft USB 18-2019 [Ru]
@@ -656,60 +715,6 @@ Microsoft Windows 10.0.17763.1457 Version 1809 (Updated Sept 2020) - Ориги�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43CF4BDCB023338A29042B6C074A138A62FE49F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409209   (446843) от 16.09.2020
-
-Microsoft Windows 10.0.18363.1082 Version 1909 (Updated Sept 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1082.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF89F3A17985E7DF2A8F64218D2EB13EDDFB035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409210   (446840) от 16.09.2020
-
-Microsoft Windows 10.0.19041.508 Version 2004 (Updated Sept 2020) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.508.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BFB3438CBF15FB2892679165BB5058000003CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

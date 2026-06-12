@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875663   (1072717) от 
+
+Sigh - Hail Horror Hail (1997) 2 x CD, Reissue, Remastered, 2026, Peaceville Records Ltd. [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072717.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hail Horror Hail (5:08)
+ 02. 42 49 (7:43)
+ 03. 12 Souls (6:56)(   Читать дальше...   )Жанр: Black Metal, AvantgardeПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EA93107E73A5856D36AFAA59FE508108F89106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874596   (1071934) от 03.06.2026
 
 Sigh - Ghastly Funeral Theatre (1997) 2XCD, Japanese Edition, Reissue, Remastered, 2026, Peaceville Ltd. [FLAC|Lossless|image + .cue] <Black Metal>
@@ -716,38 +745,6 @@ Katsu Ohta - Micronist III (2016) [WavPack|Lossless|image + .cue] <Neoclassical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F3D92588D09362D6ED16010D9F58AE81274C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597386   (1000505) от 02.01.2013
-
-VA - Citrine. My Dream Beautiful Yellow Crystal (2005) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000505.jpg" />
-</div>
-
-
-###  Подробнее
-
-(07:03) 1. The feeling of yellow crystal
-(06:52) 2. The buddist of the yellow crystal
-(06:06) 3. The yellow crystal inspiration
-(06:43) 4. The propitious yellow crystal
-(12:39) 5. The full clean moon of yellow crystal
-(07:27) 6. The shine of yellow crystal yellow crystal
-(06:30) 7. My dream beautiful yellow crystalЖанр: New age, InstrumentalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888D12ECCB9ECB07ED007E2DFB3330DB16DD9D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

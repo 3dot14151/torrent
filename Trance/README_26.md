@@ -1,3 +1,90 @@
+###  Публикация: 1240132   (531392) от 09.08.2018
+
+VA - Miami Music (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eXotic - Su (Original Mix)
+02. Phocus - Nova (Original Mix)
+03. Kristian Macarol - New Age (Original Mix)
+04. Simon Motnikar - Northern Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9526A5BD246D18D5F1FAD6B231766B89B32B2863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240117   (531384) от 09.08.2018
+
+VA - Trance Energy (Mixed by Cosmic Gate & Ben Nicky) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.VA - Trance Energy 2018 (Continuous Mix By Cosmic Gate)
+02.Estiva - Cubes (Original Mix)
+03.Above & Beyond - Red Rocks (Original Mix)
+04.Gabriel & Dresden Ft. Sub Teal - Only Road (Cosmic Gate Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8C2838663397A450C92D0343280177FA0E6E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312654   (530819) от 05.07.2019
+
+VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond feat. Susana - Love You Are Made Of (Extended Mix)
+02. Maria Nayler - Angry Skies (James Dymond Extended Mix)
+03. Allen & Envy feat. Neev Kennedy - Without You (Dan Stone Remix)
+04. Sneijder feat. Jess Morgan - Sky Is On Fire (Kaimo K Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6465337A56E067E5050829C33C736472BE51AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532981   (530757) от 11.08.2012
 
 Aly And Fila Vs Roger Shah Feat Adrina Thorpe - Perfect Love (2012) [MP3|320 кб/с]<Trance>
@@ -655,93 +742,6 @@ VA - Trance In Space 6 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D405EF9759A48812D3DA28E1252AF710CB8803D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241642   (519295) от 18.08.2018
-
-VA - Costa - Baltic Wave (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa - Coming To Life (Original Mix)
-02. Costa feat. Veronica K - The Missing Piece (Original Mix)
-03. Costa feat. Hanna Finsen - I Will Wait For You (Original Mix)
-04. Costa - Baltic Waves (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFACAF73CE8003D35E2C6F51A1C33153773C85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241986   (517185) от 20.08.2018
-
-ACTINY - Guy from the space (1996) [MP3|320 Kbps] <Rave, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raveman (5:55)
-02. Welcome to the party (5:00)
-03. Upstairs to the next floor (6:16)
-04. Dreams (5:06)(   Читать дальше...   )Жанр: Rave, TranceПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043E8912D1708E6F6335FB26214D666384D5DA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242192   (516294) от 21.08.2018
-
-VA - Progressive Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FEEL & Diana Leah - One Last Time (Extended Mix)
-02. Christina Novelli & Adip Kiyoi - Carousel (Extended Mix)
-03. Elite Electronic - Digital Age (Extended Mix)
-04. Attila Syah & Xpectra & J.Puchler & Joanna Angelina - Forever (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5191AA98ED911A1B2DB03F8B6E4FA18491CD5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

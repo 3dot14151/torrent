@@ -1,3 +1,119 @@
+###  Публикация: 1093178   (933478) от 15.01.2017
+
+VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lindsey Stirling - Main Theme (From 'The Dark Knight Rises')  4:22
+02.  The Piano Guys - Themes (From 'Pirates of the Caribbean')  6:19
+03.  Lang Lang - Gladiator Rhapsody (From 'Gladiator')  4:38
+04.  Till Bronner - Main Theme (From 'Crimson Tide')  4:02(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093923   (932433) от 16.01.2017
+
+Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Spoken Word>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditations to Heal Your Life - Waking [00:05:19]
+02. Morning Meditation [00:05:04]
+03. Afternoon Meditation [00:05:12]
+04. Evening Meditation [00:04:39](   Читать дальше...   )Жанр: Meditative, Spoken WordПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665CAF414F4EEE5D42B952D16627CE04CC4049A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094029   (932380) от 16.01.2017
+
+Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest and relaxation
+02. The freshest air
+03. free and easy
+04. Releasing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF9920440E1DAD578F4B32BC6DEADAB3FC6D0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093798   (932368) от 16.01.2017
+
+Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering (4:23)
+ 02. New Morning (6:35)
+ 03. My Secret (3:56)
+ 04. Over the Fields (5:32)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093767   (932365) от 16.01.2017
 
 Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -635,122 +751,6 @@ Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987930   (924325) от 18.02.2016
-
-VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-3P0’s Plight - Kaskade
-02. Help Me! - GTA
-03. Force - TroyBoi
-04. Cantina Boys - Baauer(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428762AD90767312BCD54CA6783A3694E233E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366394   (924012) от 11.03.2020
-
-Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924012.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:10| 01. Main Theme (Team Fortress 2)
-|04:25| 02. Playing With Danger
-|03:52| 03. Rocket Jump Waltz
-|04:04| 04. The Art of War(   Читать дальше...   )Жанр: Soundtrack, Metal, ElectronicПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489722   (923894) от 17.08.2021
-
-Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribalistas - Velha Infancia
-02. Methania, Barque - Sem Fantasia
-03. Marcia - Eu E a Brisa
-04. Luiza Possi - Eu Sou Assim(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A27A2552653821179B500A3858E68827AA027AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366291   (923564) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] <Soundtrack, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923564.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1373176   (882001) от 05.04.2020
+
+VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Connor - Fashion (Extended Version)
+002. Swimming Tapes - Keep Her Closer
+003. Mark Morrison - Return Of The Mack (C & J Street Mix)
+004. T-Micky - N'oublie Pas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B623D5BD8B4A6EC5F60A98AAC3DB028D7863A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996143   (881057) от 13.03.2016
+
+VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheryl Cole - I Dont Care
+02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
+03. Olly Murs - Tomorrow
+04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996015   (880628) от 13.03.2016
 
 VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб/с] <pop>
@@ -491,32 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 300063   (876082) от 24.02.2011
-
-VA - Зажигательный музон (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_876082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEB03AD4F66EC02B472F898A564DBDA3F2B68D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997408   (875578) от 16.03.2016
 
 VA - Популярный музон хорошего настроения (2016) [MP3|256-320 кб/с] <Pop>
@@ -568,32 +600,6 @@ VA - Топ в тачку №2 (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07868184C49D2E654DA19C05491D9CF154608C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300504   (874660) от 25.02.2011
-
-VA - Лучшие хиты «Авто Радио» vol.4 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_874660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F71F911871935D3929BD52FB4E637A7124EF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

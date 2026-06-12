@@ -1,3 +1,102 @@
+###  Публикация: 593148   (135296) от 23.12.2012
+
+VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Tahu Rhodes - Toreador Song [05:11]
+02. Bruce Martin - Impossible Dream [02:12]
+03. Connelli & Johnston - Climb Every Mountain [03:10]
+04. Winchester Cath Choir - Jerusalem [02:48]
+05. Idea of North - Amazing Grace [03:12]
+06. Bryn Terfel - Loch Lomond [03:59]
+07. Suzanne Erens - Don't Cry For Me Argentina [05:58]
+08. Mario del Monaco - Nessun Dorma [03:11]
+09. Louis Armstrong - Wonderful World [02:25]
+10. Ella Fitzgerald - I Gonna Wash That Man Right Out Of My Hair [03:04](   Читать дальше...   )Жанр: Classical SongsПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680362   (134223) от 29.11.2023
+
+VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Vibes - Celestial Chants (Original Mix) (6:36)
+02. Badshust, Vadim Manko - Green Light (Original Mix) (5:26)
+03. Juantxo Munoz, Robric - Delirio (Original Mix) (6:50)
+04. Arthaum - Sabhka (Original Mix) (7:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595456   (131948) от 29.12.2012
+
+Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Preliator
+02 - Mighty Rivers Run
+03 - Prelude (On Earth As In Heaven)
+04 - Spiritus Khayyam
+05 - La Coronacion
+06 - Europa
+07 - Diem Ex Dei
+08 - Orchard of Mines
+09 - Crusaders of the Light
+10 - Madre Terra(   Читать дальше...   )Жанр: New Age, Epic MusicПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596652   (130836) от 31.12.2012
 
 VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Soul, Funk/Soul, Disco>
@@ -670,93 +769,6 @@ VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822332   (100767) от 06.10.2025
-
-VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak, Tibetania - Pyramid of Light (Original Mix) (8:02)
-02. Tibetania, Kaisser Bouzriba - Sawt El Hob (Original Mix) (6:32)
-03. The Friend, Tibetania - Desert Wind (Original Mix) (7:18)
-04. Tibetania, Noyan Music, Moohan Music - Moyo (Original Mix) (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821995   (94701) от 04.10.2025
-
-VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
-03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
-04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822104   (94498) от 05.10.2025
-
-VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Alexander Barabash - Bedouin (Original Mix) (6:49)
-02. Ertunç Şenbay, Tibetania - Ancient Phokaia (Original Mix) (5:20)
-03. Antonello D'Arrigo, Alessio Serra, Tibetania - Organica (Original Mix) (6:48)
-04. Inkwall, Kintero Guzman, Tibetania - Eterno (Original Mix) (5:50)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,167 @@
+###  Публикация: 1169667   (401322) от 29.09.2017
+
+Картинки - Магия света. 2048x1152 - 60 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные "светографичные" фото с изящными девушками на голубом или темном фоне. Каждая из них - волшебница, способная управлять стихиями с помощью магии света.) Как по мне -  практически идеальные картинки для рабочего стола (эх, еще бы разрешение поболе!)Формат: JPGРазрешение файлов: 2048х1152
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980C865E9CB26D425E9DD2B6B27AA406563FEFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565444   (401284) от 25.10.2012
+
+Desktop Wallpapers (24.10.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B24DDB24775DB2720289D3BC8B9E6BADDFF3B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565376   (401276) от 25.10.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 3
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401276.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 3
+Название: Nature Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789517E6597CB70C3B1060B7557A78E0A6F7E7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565439   (401193) от 25.10.2012
+
+Best HD Wallpapers Pack (24.10.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF962C0E8903685B70FEDCC2EA1C8089B40B924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565349   (401114) от 25.10.2012
+
+[Wallpapers] Auto
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401114.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Auto
+Название: Auto [Wallpapers]
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1280*960 до 1920*1080
+Расширение (тип) файлов: *.jpg/*.png/*.bmрСкриншоты:Время раздачи: 24/7 до 10 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5E8DFCEC21C719E7CB1A838BD9D4CC183A2A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565255   (401007) от 25.10.2012
+
+[Фотография] PhotoArt of Angora
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы фотографа под ником Angora.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0EE5950BDDC4F37292B751D65CB221D29982C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565232   (400973) от 25.10.2012
 
 [Фотография] Фотоманипуляции Елены Визерской
@@ -542,179 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B29EBDE7232BDBEF4A6FD07AC1AA43BA7CAE8638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569931   (391544) от 03.11.2012
-
-[Рисованая графика] Artworks by Liu Dongzi (псевдоним - east monkey)
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391544.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92068BC66CDFBAC39BE0E81EF20D67996378F6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569802   (391501) от 03.11.2012
-
-[Wallpapers] Обои для рабочего стола - Фэнтези (Драконы, Девушки, Пейзажи) [1000x624-2970x2376] [1 114шт] (2012) JPG
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола, Фэнтези поднимут вам настроения,
-и украсят ваш рабочий стол...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66856E2297C9235B86556D16CBF94B128206853E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570027   (391272) от 04.11.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 5
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391272.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 5
-Название: Nature Desktop Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3200х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88FFEABEAAC16534BB66704CFB491B3B7C87E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570007   (391263) от 04.11.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391263.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-Название: Nature Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1020A5E16369593E5B0CD4ED14C5E0C5BE983A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570046   (391199) от 04.11.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 7
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391199.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 7
-Название: Nature Desktop Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5C74E19BD9D65AD9AEBCDE8DD252539FE09A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570045   (391193) от 04.11.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391193.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6
-Название: Nature Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6912ED99A1F11F07C5AD12C723E04E1E1EEC12
 ```
 
 https://mybot314.ru/tekegram_catalog/

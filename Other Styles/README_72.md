@@ -1,3 +1,119 @@
+###  Публикация: 1029321   (682343) от 26.06.2016
+
+Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opar (by Zoe Mthiyane) (03:29)
+02. Diamonds (04:51)
+03. Togetherness (01:45)
+04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028929   (682204) от 26.06.2016
+
+Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cry ! Cry ! Cry ! (2:26)
+ 02.  Hey Porter (2:12)
+ 03.  Blue Train (2:01)
+ 04.  Hey Good Lookin' (1:41)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029120   (682194) от 26.06.2016
+
+Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Blue
+02. I Am Sailing
+03. Memories
+04. Words(   Читать дальше...   )Жанр: Classical, Romantic, InstrumentalПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289569   (681977) от 18.03.2019
+
+James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vie en rose
+02. Spanish Eyes
+03. Lili Marleen
+04. Überall blühen Rosen (L'important C'est La Rose)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289576   (681974) от 18.03.2019
 
 VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spielen Meisterwerke Aus Klassik Und Pop) (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -658,119 +774,6 @@ VA - Вечерняя Коллекция (Звуки природы) (2010) [FLA
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509231   (676055) от 11.06.2012
-
-Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136439   (674901) от 22.05.2017
-
-NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Take A Minute (3:43)
-02 - Sunshine Good Times (3:26)
-03 - Make Each Moment Last (3:47)
-04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030318   (674414) от 30.06.2016
-
-J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674414.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Romans 6.4-6) (0:45)
-2. Theme, Pt. 1 (6:24)
-3. A New Day, Pt. 2 (4:12)
-4. Joy Comes in the Morning, Pt. 3 (6:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290765   (674334) от 22.03.2019
-
-Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October in the Railroad Earth (04:58)
-02. Small Engine Repair (03:50)
-03. T-Bone Steak and Spanish Wine (05:16)
-04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 538625   (509735) от 23.08.2012
+
+Rekevin - A Peacock (2008) [FLAC|Lossless]<Trip Hop, Acid Jazz, Downtempo, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая московская группа Rekevin играет музыку, которая вызывает прямые ассоциации с лучшими силами британской сэмплоделики 90-х – от Lamb и Portishead до, скажем, проекта Bonobo. В музыке Rekevin идеально сочетаются меланхоличный трип-хоп и изнеженное даунтемпо, сыгранные исключительно вживую и подкрепленные нежным эмоциональным вокалом невероятно красивой вокалистки Ксении.01. It :: 03:25
+02. The Collector :: 04:43
+03. A Peacock :: 06:00
+04. Peter :: 04:17
+05. A Fleeting Passion :: 05:53
+06. The Autumn Lips :: 04:14
+07. My Beloved Water :: 05:11
+08. Forget Him :: 05:47
+09. What's The Matter :: 04:05
+10. Feed Her :: 11:15Жанр: Trip Hop, Acid Jazz, Downtempo, Easy ListeningФормат: CD, AlbumПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538421   (509485) от 23.08.2012
+
+МС Вспышкинъ & Никифоровна - Sex (2004) [FLAC|Lossless]<Trance, Euro-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегапроект «МС Вспышкин & Никифоровна» стал настоящей бомбой 2003 года, а хит «Колбасный Цех» («Шишки») танцевальным гимном питерской молодежи. После этого артисты стали широко известны за пределами Санкт-Петербурга, благодаря ряду хитов из альбомов «Секс» и «Шишки». Никифоровна (Дмитрий Чеков) разбился на мотоцикле 22 августа 2011, Диджей МС Вспышкин (Владимир Турков) умер от инфаркта в Петербурге через 3 месяца (14 ноября 2011).01. Sex :: 04:23
+02. Колбасный Цех 3 (Шишки) :: 04:29
+03. Колбасный Цех 2 :: 04:19
+04. Дискотэка :: 03:18
+05. Хорошо :: 03:34
+06. Новогодняя (Меня Прёт) :: 05:07
+07. МС Вспышкинъ & DJ Aligator - Davai, Davai :: 05:22
+08. МС Вспышкинъ & Slim Line - I'm Back (Вспышка 2003) :: 03:49
+09. КПП :: 04:56
+10. Бессоница :: 05:22(   Читать дальше...   )Жанр: Trance, Euro-HouseФормат: CD, Album, EnhancedПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932215   (509273) от 29.08.2015
+
+VA - Mystic & Secret (2010) 2CD[FLAC|tracks + .cue]<Chill Out, New Age, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Era - Sombre Day  [3:42]
+  02.  Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)  [5:53]
+  03.  Bliss - Kissing   [6:03]
+  04.  Schiller mit Anggun - Blind  [4:50](   Читать дальше...   )Жанр: Chill Out, New Age, DowntempoПродолжительность: 02:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DB2B2CCCC756C86A66B8977E14080ECFBC2EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932607   (509265) от 29.08.2015
+
+N.A.S.A. - Stolen Мoments (2015) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawnbreak (09:34)
+02. In My House of Dreams (11:17)
+03. Be Svendsen  - Circle (N.A.S.A. Remix) (09:35)
+04. Eyes Wide Open (08:08)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592676C2501B2538E4DE476D7D07BA7FE80E7597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562376   (509215) от 09.07.2022
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour - Ibiza) (2022-07-07) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woo York - Like a Phoenix
+02. Probspot - Blueberry (ID Remix)
+03. Push - Universal Nation (Bart Skils Remix)
+04. Paul Kalkbrenner - Gebrunn Gebrunn (Special Berlin Calling Edit)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3364889CBAC39611E31D1B02DBD85C6FF88F8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562386   (509115) от 09.07.2022
 
 Martin Garrix - Tomorrowland Friendship Mix (2022-07-07) [MP3|320 Kbps] <Electro House, Big Room>
@@ -600,148 +757,6 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316635   (505153) от 27.07.2019
-
-VA - Quality Control (2019) VALE [FLAC|Lossless|WEB-DL|24Bit|tracks] <Dubstep, Drum n Bass, Half-time, Experimental, UK Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avum - Voyager (03:48)
-02. Fourth Dimension - Nevi'Im Rishonim (02:59)
-03. Dazo L'oizeau - Otel (02:53)
-04. RAWT - Track Grouping Corrupt (05:11)(   Читать дальше...   )Жанр: Dubstep, Half-time, Drum n Bass, Experimental, UK GarageПродолжительность: 00:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F6C902296134455C569C21645A00A0D0BCACB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933535   (505117) от 02.09.2015
-
-Нейромонах Феофан - Притоптать (2015) Single [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ПритоптатьЖанр: Drum & BassПродолжительность: 00:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B58CF1B43757BE283FAF1C03A5490F4187826B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563370   (504480) от 14.07.2022
-
-Morakh - Limes (2022) [MP3|320 Kbps] <Breaks, Techno, Tribal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kubrick [00:03:51]
-02 - Shaman [00:05:05]
-03 - Limes [00:04:44]
-04 - Way [00:04:03](   Читать дальше...   )Жанр: Breaks, Techno, Tribal, ExperimentalПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397C55B89BE5B97FE92FFD1DAF62C9747B9C0BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563509   (504478) от 14.07.2022
-
-VA - Bittersweet Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Six String Jam (Original Mix) (5:14)
-02. Living Room - Like an Old Jazz Records (3:07)
-03. Funkdust - Jazz Dub (Original Mix) (2:55)
-04. Martin Liege - Bittersweet (Original Mix) (4:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B17C0173641750277D3AEE5DD370317746F69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563439   (504476) от 14.07.2022
-
-Баська - Гигос болотных солдат (2021) [MP3|320 Kbps] <Breaks, Techno, Tribal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бронепоездъ [00:02:49]
-02 - Лойс [00:03:00]
-03 - Утро понедельника [00:02:20]
-04 - Кай и Герда [00:03:01](   Читать дальше...   )Жанр: Breaks, Techno, Tribal, ExperimentalПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECF480464199D7C96DA8437D3F7164A2E03CA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1441562   (1037439) от 22.01.2021
+
+Microsoft Windows 10.0.18363.1316 Version 1909 (Updated January 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1316.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9CB4CC55D4892E37CA55EAEAE82F31CA80E403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441564   (1037433) от 22.01.2021
 
 Microsoft Windows 10.0.19041.746 Version 2004 (Updated January 2021) - Оригинальные образы от Microsoft MSDN [En]
@@ -664,33 +691,6 @@ ru_windows_10_business_editions_version_20h2_updated_jan_2021_x64_dvd_f09398b8.i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D809C7E00833DE6A03C9080F7608A89E19E70FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455410   (1025601) от 19.03.2021
-
-Microsoft Windows 10.0.18363.1440 Version 1909 (Updated March 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1440.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CEF6F842B16E9BAC2511A5B2D4A398B55E2A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

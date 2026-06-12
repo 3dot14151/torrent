@@ -1,32 +1,3 @@
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350372   (626891) от 14.06.2011
 
 VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
@@ -745,6 +716,35 @@ VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570347   (436051) от 20.08.2022
+
+2 Unlimited - No Limits! (1993) [OGG|485 Kbps] <Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limit	3:44
+02. Tribal Dance	4:31
+03. Mysterious	4:23
+04. Faces	3:48(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1584B008E813C70CCCFAAC48E539AEFC2AFCF578
 ```
 
 https://mybot314.ru/tekegram_catalog/

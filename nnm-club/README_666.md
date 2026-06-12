@@ -1,210 +1,22 @@
-###  Публикация: 1850216   (1054263) от 26.01.2026
+###  Публикация: 1850965   (1054797) от 31.01.2026
 
-Fast Video Cutter Joiner 6.9.7.0 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C540D06C00A96D7D821A51B5A9B20110017B6470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850221   (1054262) от 26.01.2026
-
-VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ezra Jot - Bang O Bang (03:31)
- 002. Little Rainy - Be Closer (03:01)
- 003. Paul B.Ny - Clouds In My Coffee (02:05)
- 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850225   (1054261) от 26.01.2026
-
-Роберт Хайнлайн | Вне всяких сомнений (2026) [MP3, ReadMic]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одна тайна раскрыта! Ничто не скроется от взгляда учёных, обладающих пытливым умом. Наконец-то можно выдохнуть и сказать: "Теперь-то мы знаем секрет голов истуканов с острова Пасхи!".Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850228   (1054260) от 26.01.2026
-
-Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm a Monster [00:03:15]
-02. Snake Bite [00:03:25]
-03. Devil On My Tongue [00:03:18]
-04. The Teeth Of My Thieves [00:03:56](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850232   (1054259) от 26.01.2026
-
-Проекты - VideoHive - Camera Movement Transitions - 61545525 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свои видеопроекты на новый уровень с помощью шаблона Camera Movement Transitions — профессионально разработанного видеошаблона, созданного для получения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон создан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D41584F96D583CE72644B08F5B72CF11680557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850235   (1054258) от 26.01.2026
-
-Растровый клипарт - Adobe Stock - Vintage Lambs & Lambaders Isolated Transparent #2 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054258.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 стоковых изображений с лампами из Adobe Stock. Оригинальные названия сохранены.Формат: PNGРазрешение файлов: 4128x1152 - 9977x5779
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D4296A8D25C9F866E8B0BB504BC38A6AF5691F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850218   (1054257) от 26.01.2026
-
-Сайлент Хилл 2 / Silent Hill: Revelation (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: Канада, Франция, Япония / Anibrain Digital Technologies, KonamiЖанр: ужасы, триллер, детективРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255D807E78821ABCB4D62312E1D6DBFC9D8C2760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849854   (1054256) от 26.01.2026
-
-Он наблюдает за тобой / He's Watching You (Black Spines) (2026) WEBRip [H.264/1080p] [MVO] [AD]
+Охота за тенью / Bu feng zhui ying / The Shadow's Edge (2025) BDRip [H.264/720p] [MVO]
 
 >>Горячие новинки
->>Новинки с Рекламой
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подросток, расследующий череду загадочных убийств в своём маленьком городке, находит коллекцию VHS-кассет, которые могут пролить свет на личность печально известного серийного убийцы.Производство: США / Palm Drive Productions, Amasia Entertainment, Palm Drive ProductionsЖанр: ужасы, триллерРежиссер: Джордон ФоссАктеры: Элизабет Ю, Кая Розенталь, Ванесса Рубио, Джанни ДеЧенцо, Кевин Портер, Ян Луис Кастельянос, Гэвин Дж. Коноп, Николь Элизабет Бергер, Тиана Ле. Гилберт Овуор, Брэндон Мелом, Кейси МиллсПеревод: Многоголосый профессиональный (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:32Реклама: присутствуют аудио и видео вставки рекламы, баннер
+Группа профессиональных воров совершает кражу на сотни миллионов юаней и скрывается, обойдя полицейскую систему видеонаблюдения «Око небесное». Когда расследование заходит в тупик, полиция Макао привлекает к делу Хуан Дэчжуна, который отошёл от дел много лет назад. Дэчжун, эксперт по слежке, совместно с молодыми сотрудниками следственного отдела создаёт специальную (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New United Films, EJJ Films, HR PicturesЖанр: боевик, криминал, детективРежиссер: Ларри ЯнАктеры: Джеки Чан, Тони Люн Ка-Фай, Чжан Цзыфэн, Цы Ша, Броно Байтала, Луна Фудзимото, Вэнь Цзюньхуэй, Лан Юэтин, Чэйни Линь, Кэнъя СавадаПеревод: Многоголосый (ВПОДПОЛЬЕ, LE-Production), Авторский (Михаил Яроцкий)Язык озвучки: Русский, КитайскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:22:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CA6648340D2BC64D1A631A9FF27B48F1659F02C
+magnet:?xt=urn:btih:A393D9AE0338C84CB109AC4F29A2382383428D46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850224   (1054255) от 26.01.2026
+###  Публикация: 1851112   (1054796) от 01.02.2026
 
-В августе 44-го (2001) BDRip [H.264/1080p]
+Как можно лучше / The Best You Can (2025) WEB-DL [H.264/1080p] [MVO]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лето 1944 года. Белоруссия уже освобождена, однако с её территории регулярно выходит в эфир группа лазутчиков, передавая врагам важную информацию о советских войсках. На поиски шпионов в район запеленгованной рации отправляется отряд во главе с офицером СМЕРШа.Производство: Россия, Беларусь / Министерство культуры Республики Беларусь, БеларусьфильмЖанр: военный, детектив, боевик, драма, историяРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей Печиньски и др.Субтитры: русскиеПродолжительность: 01:45:03
+Охранник Стэн Ольшевски предотвращает попытку ограбления дома уролога Синтии Рэнд. Между ними завязывается дружба, начинающаяся с ночных текстовых переписок, что меняет жизни обоих: Синтия справляется с деменцией своего пожилого мужа, а Стэн — с проблемами со здоровьем и неудачами в карьере.Производство: США / Fibonacci FilmsЖанр: драма, мелодрама, комедияРежиссер: Майкл Дж. ВейторнАктеры: Кевин Бейкон, Кира Седжвик, Джадд Хёрш, Бриттани О’Грейди, Оливия Луккарди, Мира Рохит Кумбхани, Рэй Романо, Миша Брукс, Хезер Бёрнс, Роб БенедиктПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCAB9BF803E20038D8DE2C37E6510C023318A12E
+magnet:?xt=urn:btih:E79BD5A5967B7A3AA0BD026981BDB4DC413351E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850240   (1054254) от 26.01.2026
+###  Публикация: 1851098   (1054795) от 31.01.2026
 
-YT Downloader 10.1.8 [En]
+4K Video Downloader + 26.0.1.0280 [Multi/Ru]
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2026Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F764AB80AA39981F7EF2E4D277505F3D8BAC2321
+magnet:?xt=urn:btih:694D12DD0D94BDBE51DDECF6AE5CBB701C9D835B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 26.01.2026
+###  Публикация: 1851117   (1054794) от 01.02.2026
 
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Прощальное послание / Голубая нота / La note bleue (1991) BDRip [H.264] [MVO]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
+Баронесса Дюдеван, известная под псевдонимом Жорж Санд, проводит лето 1846 года в окружении тех, кого она любит: Фредерика Шопена, Александра Дюма-младшего, художника Эжена Делакруа, оперной дивы Полины Виардо и её возлюбленного Ивана Тургенева. Фредерик находится на грани смерти. Жорж Санд оставляет его. Они оба понимают, что их любовь закончилась, но Санд просит (   Читать дальше...   )Производство: Франция, Германия / Oliane Productions, Erato FilmsЖанр: драма, мелодрама, музыкаРежиссер: Анджей ЖулавскийАктеры: Януш Олейничак, Мари-Франс Пизье, Софи Марсо, Феодор Аткин, Орельен Рекуан, Роман Вильхельми, Павел Слабы, Бенуа Ле Пек, Гражина Дилонг, Жиль ДетруаПеревод: профессиональный многоголосый (Selena International; Монолит)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 02:11:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
+magnet:?xt=urn:btih:BA90AABD79F92BC3E2AC95874AE0B8D434F7ED32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850236   (1054252) от 26.01.2026
+###  Публикация: 1851118   (1054793) от 31.01.2026
 
-T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retrowave, Electropop>
+Проекты - VideoHive - Vertical Promo Opener - 61554528 [AEP]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Images of Heaven [00:03:31]
-02. Cars [00:04:28]
-03. Heartbreak Hotel [00:04:26]
-04. Make a Circuit with Me [00:03:37](   Читать дальше...   )Жанр: Synthpop, Futurepop, Retrowave, ElectropopПродолжительность: 00:43:05
+Шаблон Vertical Promo Opener — это высококачественный видеошаблон, разработанный для оптимизации вашего творческого процесса и оживления ваших визуальных образов. Независимо от того, создаете ли вы профессиональные презентации, контент для социальных сетей, видеоролики для YouTube или рекламные материалы, этот шаблон предлагает стильные, настраиваемые элементы, которые (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
+magnet:?xt=urn:btih:E8A6734C929AADA6BCC79D5BE784F8DB4A641CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850234   (1054251) от 26.01.2026
+###  Публикация: 1851113   (1054792) от 15.02.2026
 
-Daniel J. Barrett | Responsible Software Engineering. With Real-World Case Studies from Google (2025) [PDF, EPUB] [EN]
+Occupy Mars: The Game (2023) [Ru/Multi] (1.0.2) Repack Let'sРlay [Collector's Edition]
 
->>Компьютерная литература
->>нет
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Today's software applications need more than a friendly interface and correct algorithms. They also need to be responsible: to be beneficial for society and not cause harm. In an era of AI chatbots, deep fake images and videos, social media bubbles, expanding privacy regulations, and a warming planet, it's more important than ever to practice responsible software (   Читать дальше...   )Жанр: Business Ethics, Environmental Economics, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Occupy Mars это высокотехничный, открытый мир, песочница о колонизации Марса. Стройте и модернизируйте свою базу, открывайте новые удивительные регионы, проводите горные работы, добывайте воду и генерируйте кислород, выращивайте урожай, исправляйте сломанные части, учитесь выживать на Марсе!Тип издания: RepackРазработчик: Pyramid GamesЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F22F7796CB0845CB2118F37FFB8DA13E3289968D
+magnet:?xt=urn:btih:EE0FD22731E94DB4FF8558099E8F7F37AA250796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,26 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850233   (1054250) от 26.01.2026
+###  Публикация: 1851121   (1054791) от 31.01.2026
 
-Иосиф Дзеранов | Алгоритмы поиска и сортировки (2025) [PDF]
+Иконки - UI8 - 3D Sybmols icons Mockuply Pro [PNG]
 
->>Компьютерная литература
->>нет
+>>Графика, Арт, Разное
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хотите стать хорошим программистом? Начните с алгоритмов! Эффективный код и решение любых практических задач основываются именно на них. Эта книга - практическое руководство по алгоритмам для программистов, готовящихся к собеседованиям и стремящихся углубить свои знания.
-Иосиф Дзеранов - опытный разработчик, преподаватель и автор ряда популярных курсов. В этой книге (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+150 3D-иконок гарантируют кристально чистую детализацию, четкие края и идеальное качество в любом размере и формате.Формат: PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C711ABCAD3976260C61AA3A3613F2C0A4A1A980
+magnet:?xt=urn:btih:432BB83B79A1702C1F6730FF7422E3B79E399854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850231   (1054249) от 26.01.2026
+###  Публикация: 1851122   (1054790) от 31.01.2026
 
-Alexander Rybak - Fairytales Too (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Снегоуборщик. Опасная дистанция / Delivery Run (2024) BDRip [H.264/720p]
 
->>Pop
->>Pop (Hi-Res)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lindy Hop [00:02:53]
-02. Rise [00:03:17]
-03. The Breakup [00:04:25]
-04. Just a Closer Walk With Thee [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:31:06
+Ли — обычный курьер, чья рутина сводится к скучным маршрутам по заснеженной Миннесоте. Но всё меняется, когда он случайно забирает сумку, набитую деньгами. Теперь обычный маршрут курьера превращается в настоящий ледяной ад. Его машину начинает преследовать гигантский снегоочиститель, за рулём которого — некто, явно желающий не просто напугать, а буквально размазать (   Читать дальше...   )Производство: Финляндия / Arctic RenegadesЖанр: боевик, триллерРежиссер: Джоуи ПалмрусАктеры: Александр Арнольд, Юсси Лампи, Лиам Джеймс Коллинз, Джо Галина, Надин Хиггин, Том Чакон, Джеремайя Кросби, Даррен МакСтэй, Селин Эль Азизи, Томас ДеллинджерПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:20:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB58A0B8E838EDC0E50379DD80DF236A135EB7C2
+magnet:?xt=urn:btih:E5EA88462BBF312E79D1D7B33D1DAFB17C012754
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,26 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850219   (1054248) от 26.01.2026
+###  Публикация: 1851120   (1054789) от 31.01.2026
 
-Mark Liu | Build a Text-to-Image Generator (from Scratch). With transformers and diffusions (2026) [PDF] [EN]
+Снегоуборщик. Опасная дистанция / Delivery Run (2024) BDRip [H.264/1080p]
 
->>Компьютерная литература
->>нет
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book takes you step-by-step through creating your own AI models that can generate images from text. You’ll explore two methods of image generation—vision transformers and diffusion models—and learn vital AI development techniques as you go.
-Dive into the powerful models behind AI image generators. The best way to learn is to build something from scratch, and (   Читать дальше...   )Жанр: Computer Vision & Pattern Recognition, Computer Neural Networks, Computer ScienceЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+Ли — обычный курьер, чья рутина сводится к скучным маршрутам по заснеженной Миннесоте. Но всё меняется, когда он случайно забирает сумку, набитую деньгами. Теперь обычный маршрут курьера превращается в настоящий ледяной ад. Его машину начинает преследовать гигантский снегоочиститель, за рулём которого — некто, явно желающий не просто напугать, а буквально размазать (   Читать дальше...   )Производство: Финляндия / Arctic RenegadesЖанр: боевик, триллерРежиссер: Джоуи ПалмрусАктеры: Александр Арнольд, Юсси Лампи, Лиам Джеймс Коллинз, Джо Галина, Надин Хиггин, Том Чакон, Джеремайя Кросби, Даррен МакСтэй, Селин Эль Азизи, Томас ДеллинджерПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:20:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66C485089D00B1DAC4A7E7AC009A9F0C49A10AAB
+magnet:?xt=urn:btih:93014C5E3A1375C9592BBEF4ABFEA7EED53CB709
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,215 +232,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850222   (1054247) от 26.01.2026
+###  Публикация: 1850943   (1054788) от 31.01.2026
 
-Sanath Raj B Narayan, Nitin Agarwal | Mastering LangChain. A Comprehensive Guide to Building Generative AI Applications (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054247.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book provides a comprehensive exploration of LangChain, empowering you to effectively harness large language models (LLMs) for Gen AI applications. It focuses on practical implementation and techniques, making it a valuable resource for learning LangChain.
-The book starts with foundational topics such as environment setup and building basic chains, then delves (   Читать дальше...   )Жанр: Artificial Intelligence, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53CAEC1574481AF306BC0E060197AD53591CDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850227   (1054246) от 26.01.2026
-
-Chien-Lung Kao | CPython. A Complete Guide to CPython's Architecture and Performance. First Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Dive CPython explores the internal mechanics of CPython, the widely used Python interpreter written in C. Starting with a practical guide on downloading and compiling the CPython source, this book is perfect for developers eager to understand Python’s behaviour at a fundamental level.
-The book takes readers from basic concepts to complex details with a systematic (   Читать дальше...   )Жанр: Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DEFE1FF2945D8BD2E987D95003C443B109A2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850230   (1054245) от 26.01.2026
-
-Giovanni Volpe, Benjamin Midtvedt, Jesus Pineda и др. | Deep Learning Crash Course (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Build AI Models from Scratch (No PhD Required)
-
-Deep Learning Crash Course is a fast-paced, thorough introduction that will have you building today’s most powerful AI models from scratch. No experience with deep learning required!
-(   Читать дальше...   )Жанр: Computer Programming Structured Design, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D159122804CABF173A6BF968469B9052531CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850229   (1054244) от 26.01.2026
-
-Паоло Феррагина | Разработка алгоритмов. Инженерный подход (2026) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство книг об алгоритмах фокусируются на нотации «О большое» и основных принципах проектирования, однако эта книга предлагает уникальный подход, выводя разработку и анализ на уровень предсказуемой практической эффективности. В ней обсуждаются базовые и классические алгоритмические задачи, возникающие при создании приложений больших данных, для которых демонстрируются (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12388D7F382D881214B98465CC6094E8B8D110F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850223   (1054243) от 26.01.2026
-
-Christian Ullenboom | Spring Boot 3 and Spring Framework 6. Build Scalable, Modern Java Applications with Spring and Spring Boot—From Fundamentals to Advanced Techniques (Rheinwerk Computing) (2024 ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Say goodbye to dependencies, bogged-down code, and inflexibility! With the Spring framework and Spring Boot, you'll painlessly create Java applications that are production ready. Start with the basics: containers for Spring-managed beans, Spring framework modules, and proxies. Then learn to connect to relational databases, implement Jakarta Persistence, use Spring (   Читать дальше...   )Жанр: Java Programming, Computer Operating Systems, Computer Programming LanguagesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66457FA653BFF9BDF5A10346279731542384004D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850214   (1054242) от 26.01.2026
-
-Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
+М. Экмечич | История сербов в Новое время (1492–1992). Долгий путь от меча до орала (2024) [FB2, RTF, PDF, EPUB]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850213   (1054241) от 26.01.2026
-
-Numa Dhamani, Maggie Engler | Introduction to Generative AI. Reliable, responsible, and real-world applications. 2nd Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get up to speed quickly with generative AI!
-AI tools like ChatGPT and Gemini, automated coding tools like Cursor and Copilot, and countless LLM-powered agents have become a part of daily life. They’ve also spawned a storm of misinformation, hype, and doomsaying that makes it tough to understand exactly what Generative AI actually is and what it can really do. Introduction (   Читать дальше...   )Жанр: Natural Language Processing, Computer Science, Writing, Research & PublishingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15475CD95D3C3AC79C71FBDB1EBF7B505127246F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850217   (1054240) от 26.01.2026
-
-Danilo Chiarlone | Server-Side WebAssembly. Building portable and secure multi-language apps (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how to harness the power of Wasm on the application back-end. By following the numerous practical examples and crystal-clear explanations, you’ll soon be seeing the benefits of reduced cold start times, improved security and performance, and the freedom of polyglot programming.
+Книга известного сербского историка и учёного —академика Милорада Экмечича «Dugo kretanje između klanja i oranja istorija Srbau Novom Veku 1492–1992» («Долгий путь от меча до орала – история сербов в Новое время (1492-1992)» впервые издана на русском языке при поддержке компании «Газпром нефть».
 
-This book lays out everything you need to take WebAssembly beyond its traditional (   Читать дальше...   )Жанр: Mobile App Development & Programming, Microsoft Programming, Cloud ComputingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Для работы над важным для развития культурных и исторических связей (   Читать дальше...   )Жанр: История, СербияИздательство: АбрикобуксФормат: FB2, RTF, PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1937B4A3D8ABB780688468AAC6E01E33EED6AD65
+magnet:?xt=urn:btih:B4EDC2B8F5BDF8DC1F5C4E1778083FBF33C3E751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,26 +260,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850215   (1054239) от 26.01.2026
+###  Публикация: 1850945   (1054787) от 31.01.2026
 
-Reuven Lerner | Python Workout. 200 ten-minute Exercises. 2nd Edition (2026) [PDF] [EN]
+Миямото Мусаси, Юдзан Дайдодзи, Такуан Сохо | Самураи. Путь воли и меча (сборник) (2018) [PDF, FB2, EPUB, RTF]
 
->>Компьютерная литература
->>нет
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Practice makes perfect Python!
-The only way to master a skill is practice, practice, practice. That’s exactly what you’ll do in Python Workout, Second Edition! In this instantly-valuable book you’ll work through 50 carefully selected exercises that flex your programming muscles. This revised new edition covers the latest version of Python and adds updated content (   Читать дальше...   )Жанр: Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+В этой книге собраны наиболее авторитетные трактаты и руководства, посвященные своду заповедей "Путь Воина", известному как "Бусидо", а также тексты, рассказывающие о пути великих самураев. "Будосёсинсю" Юдзана Дайдодзи, "Книга пяти колец" Миямото Мусаси, "Письма мастера дзэн мастеру фехтования" Такуана Сохо, "Вечерние (   Читать дальше...   )Жанр: Восточная философия, история войн, восточные единоборстваИздательство: АСТФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2B8F77D4CE7C2D22BFD3360B4E60CCA2F4EA671
+magnet:?xt=urn:btih:4DBA139EA4E13FFDA53EECBF582B3C20760BAEC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +286,397 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850252   (1054238) от 26.01.2026
+###  Публикация: 1850952   (1054786) от 31.01.2026
 
-Эрих Мария Ремарк, Марлен Дитрих | «Скажи мне, что ты меня любишь…» роман в письмах (2020) [MP3, Игорь Сергеев, Ирина Патракова]
+Конфуций | Суждения и беседы «Лунь юй» (2021) [PDF, FB2, EPUB, RTF]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Возвращение с Западного фронта.
-Эрих Мария Ремарк (1898–1970) – знаменитый немецкий писатель, обладатель Ордена «За заслуги перед Федеративной Республикой Германия».
-Одна из самых завораживающих и печальных историй любви ХХ мирового века.
-История романа самого прославленного певца «потерянного поколения» Эриха Марии Ремарка – и самой знаменитой «фам фаталь» (   Читать дальше...   )Жанр: Зарубежная литература, классика, биография, мемуарыПеревод: Евгений ФакторовичИздательство: Аудиокнига (АСТ)Продолжительность: 05:03:24
+«Лунь юй» – один из наиболее известных памятников древнекитайской литературы и философии. Главная книга конфуцианства создавалась уже после смерти великого мыслителя – его высказывания и диалога в течение нескольких десятилетий бережно собирали и записывали его многочисленные ученики. В этом издании «Суждения и беседы» приведены в научном переводе А. Е. Лукьянова (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ШансФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B170CB25247ABDCDD46DF00F0832D26675C0CB86
+magnet:?xt=urn:btih:4B18D42D63D79F87C7B42C4C2F8F957B3044335F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850920   (1054785) от 31.01.2026
+
+P. Гароди, И. Валлерстайн | Мифы израильской пропаганды. Земля обетованная или земля завоёванная? (2024) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о том, как государство Израиль годами вводит в заблуждение весь мир, придумывая мифы и формируя гигантскую машину пропаганды и лжи с единственной целью - сохранить свою власть над оккупированными палестинскими территориями.
+Авторы - легендарные Роже Гароди и Иммануил Валлерстайн - рассказывают о том, как возникали мифы израильской политики, (   Читать дальше...   )Жанр: История, ПолитологияИздательство: РодинаФормат: PDF, DJVUКачество: OCR, Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9AF56B61987402C5549537004E95657B8A1D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850939   (1054784) от 31.01.2026
+
+Udemy, Андрей Кудлай | Laravel 11. Теория и практика работы с PHP-фреймворком (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию курс – "Laravel 11. Теория и практика работы с PHP-фреймворком". Курс состоит из двух частей и включает в себя 60 уроков. Данный курс ориентирован на начинающих и продолжающих PHP-программистов, которые хотят на практике закрепить свои знания, развить навыки программирования, а также научиться работать с одним из наиболее популярных (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770EB48E547E29E0F92C6B7A2C1BEFD58F54AF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850950   (1054783) от 31.01.2026
+
+Ван Сяоси | Моральный капитал. Второе издание (2023) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Моральный капитал» известного китайского ученого, специалиста в области этики, профессора Ван Сяоси впервые публикуется на русском языке. В издании всесторонне рассмотрены вопросы морали, связь морали с экономикой и механизмы их взаимодействия. Представлена концепция морального капитала, проанализированы его особенности и формы. Большое внимание уделено практическим (   Читать дальше...   )Жанр: Восточная философия, История, Экономика, ПсихологияИздательство: ШансФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CD83936586B3420AA671D15494831B16828BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850954   (1054782) от 31.01.2026
+
+Чжуан-цзы | Чжуан-цзы. Притчи (2022) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжуан-цзы (ок. 396–286 до н. э.) – великий китайский философ периода «Борющихся царств», вместе с Лао-цзы – один из основателей даосизма. Его именем названа эта книга – сборник притч, величайший памятник культуры. «Дао» – «путь» – понятие, которое лежит в основе учения. Это путешествие по непознанной дороге жизни, попытка найти себя и ощутить бесконечность мира. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670ED7AB9490AC6A1B75F6002AA79C8F8C6B4FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850956   (1054781) от 31.01.2026
+
+Хань Фэй-цзы | Книга закона и порядка. Советы разумному правителю (2018) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хань Фэй-цзы в своем трактате подверг критике догмы конфуцианства.
+Конфуций учил, что властные полномочия правителя предопределяются его добродетельностью. Никто не обязан подчиняться недостойному правителю. Хань Фэй-цзы считал, что власть не должна стремиться к утверждению справедливости и добродетели. Моральные качества правителя никак не влияют на обязанность (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C886875CC9FADC57DC9CBD7D3B038C15BD4EF40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850957   (1054780) от 31.01.2026
+
+Сунь-Цзы | Искусство войны. С комментариями и пояснениями (2016) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний китайский трактат "Искусство войны", написанный более двух тысяч лет назад великим военачальником и стратегом Сунь-Цзы, до сих пор являет собой богатую пищу для ума мыслителей. Это классическое руководство по стратегии поведения в конфликтах любого уровня - от военных действий до политических дебатов и психологического соперничества. Будучи первым (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916DBC62CCC5580988737867302103DD530EEB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850959   (1054779) от 31.01.2026
+
+Э. Кассе | Исповедь меча, или Путь самурая (2010) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меч и Япония неразделимы. Путь самурая - это путь меча, очерченный вошедшим в легенды "Кодексом Бусидо". Меч как символ, меч как любовь, меч как истина - в раннем невероятном расследовании Этьена Кассе, отправившегося в Страну восходящего солнца за великой загадкой пути Самурая.
+Захватывающие легенды и исторические материалы переплетаются в повествовании (   Читать дальше...   )Жанр: ИсторияИздательство: ВекторФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4151B18460DE4A8C29E684AFAE3B5C4F3E0F9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851124   (1054778) от 31.01.2026
+
+Охота за тенью / Bu feng zhui ying / The Shadow's Edge (2025) BDRemux [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа профессиональных воров совершает кражу на сотни миллионов юаней и скрывается, обойдя полицейскую систему видеонаблюдения «Око небесное». Когда расследование заходит в тупик, полиция Макао привлекает к делу Хуан Дэчжуна, который отошёл от дел много лет назад. Дэчжун, эксперт по слежке, совместно с молодыми сотрудниками следственного отдела создаёт специальную (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New United Films, Shanghai CMC PicturesЖанр: боевик, криминал, детективРежиссер: Ларри ЯнАктеры: Джеки Чан, Тони Люн Ка-Фай, Чжан Цзыфэн, Цы Ша, Броно Байтала, Луна Фудзимото, Вэнь Цзюньхуэй, Лан Юэтин, Чэйни Линь, Кэнъя СавадаПеревод: Многоголосый профессиональный (ВПОДПОЛЬЕ), Многоголосый любительский (LE-Production), Авторский одноголосый (М.Яроцкий)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E21015862B40DF86FBB593EABAC24C5644D5A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850967   (1054777) от 31.01.2026
+
+Polnalyubvi - Коллекция (2018-2024) [FLAC|Lossless|tracks] <Pop, Indie>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, IndieПродолжительность: 02:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40F992B514B330DA048701962438BEF2427E1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850988   (1054776) от 31.01.2026
+
+П.П. Скороспелов, А.К. Сорокин | Теория Победы. Советское политическое и военное руководство и планирование применения Красной армии в 1920-1945 гг. (2024) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей работа - краткий стратегический очерк деятельности советского политического и военного руководства в области военного планирования в решающий период становления СССР как ведущей мировой державы. Начиная от похода на Вислу в 1920 г. - через анализ оперативных планов применения Красной армии в межвоенный период, планов кампаний в ходе (   Читать дальше...   )Жанр: ИсторияИздательство: М.: Политическая энциклопедияФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C443C68F2AEA1570D8178B648D2FC5AB36239978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850991   (1054775) от 31.01.2026
+
+А.К. Нефедкин | Животные в войнах древнего мира (2021) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Термин «элефантерия», недавно введенный в русский язык, обозначает боевых слонов как род войск. Впервые для военных целей слонов начали использовать примерно три тысячи лет назад в Древней Индии. «Экипаж» слона состоял из двух-трех человек – воины сидели на пестрой попоне или на особом седле, а ноги слона охраняли приписанные к животному четверо пехотинцев («стражи (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D84C90005203146E4E9E956E974D692162A236A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850993   (1054774) от 31.01.2026
+
+Б.В. Мегорский | Осады и штурмы Северной войны 1700–1721 гг (2022) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054774.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 300-ЛЕТИЮ ОКОНЧАНИЯ ВЕЛИКОИ СЕВЕРНОЙ ВОИНЫ!
+«Чрез взятие сего города Санкт-Питербурху конечное безопасение получено» – так Петр Великий прокомментировал взятие русскими войсками Выборга в 1710 г. Всего же за продолжавшуюся 21 год войну России со Швецией насчитывается около семидесяти осадных операций, ведь захват и оборона крепостей составляли значительную часть (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4266FD40482DCFB3A24F4F3FE4A9CE682DBA56AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850994   (1054773) от 31.01.2026
+
+С.В. Жарков | Викинги. Первая иллюстрированная энциклопедия (2018) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«А furore Normannorum libera nos, Domine» – с такой молитвой в VII-XI вв. обращались многие священники Западной Европы, прося защитить их от викингов…
+Они появились у европейских берегов на своих кораблях под красными или полосатыми парусами с устрашающей головой змеи или дракона на носу. По словам современников, они «опустошали грешную землю Англии от одного морского (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C599EBEEC41711634BF9850D2018DBEF68843AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851069   (1054772) от 31.01.2026
+
+Sleeplab - Syzygy (2026) [FLAC|Lossless|WEB-DL|tracks] <electro industrial rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. to the stars [00:03:12]
+02. lockdown babies [00:04:03]
+03. undergrowth [00:04:57]
+04. pointy end [00:04:55](   Читать дальше...   )Жанр: electro industrial rockПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2FB1DBB87C341CB7EC6E86FD999D725140FD11
 ```
 
 https://mybot314.ru/tekegram_catalog/

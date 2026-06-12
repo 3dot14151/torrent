@@ -1,3 +1,31 @@
+###  Публикация: 1631446   (198918) от 05.05.2023
+
+Media Player Classic - Black Edition (MPC-BE) 1.6.7 Stable + Portable + Standalone Filters [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic - BE – универсальный проигрыватель аудио и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema», со своими нововведениями и оптимизацией.
+
+Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD62D18ECBA248FE0FFF3EA4DE5D26D4A5BF2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631450   (198912) от 05.05.2023
 
 4K Video Downloader 4.24.3.5420 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -647,32 +675,6 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A82E691583624C619D1A740A9D66D225B5CBF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632270   (198726) от 09.05.2023
-
-HopToDesk 1.40.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198726.jpg" />
-</div>
-
-
-###  Подробнее
-
-HopToDesk - это бесплатный инструмент для удаленного управления и демонстрации экрана. Легко выполняйте совместное использование экрана, удаленную помощь, передачу файлов и чат с удаленным коллегой.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BEFE8DD55BAD54AF159758B8C736C3C7B5E762
 ```
 
 https://mybot314.ru/tekegram_catalog/

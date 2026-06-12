@@ -1,3 +1,32 @@
+###  Публикация: 1392170   (1022722) от 04.04.2021
+
+Коррозия металла - Клипы (1996-2020) WEBRip [H.264/720p/1080p] <Thrash Metal> (15 штук)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Bad Girls Train
+002 - Russian Vodka
+003 - Голая Марина
+004 - Джек-потрошитель(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E110C29581627D65C5D332B9EB557E55228BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461446   (1021282) от 13.04.2021
 
 The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
@@ -686,32 +715,6 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600636   (998523) от 09.01.2013
-
-EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DubstepПродолжительность: 00:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

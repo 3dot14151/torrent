@@ -1,116 +1,3 @@
-###  Публикация: 1506420   (800265) от 31.10.2021
-
-Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
-02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
-03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
-04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506421   (800264) от 31.10.2021
-
-Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
-03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
-04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121402   (800259) от 02.04.2017
-
-Аисты / Storks (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аисты приносят детей... или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас СтоллерАктеры: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив Гликман, Кристофер Николас СмитПеревод: Дублированный (Blu-ray 3D NORDiC)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E106D6953606BC782EE2681EFAD6A791E059C6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506449   (800251) от 31.10.2021
-
-VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Can See the Light in Her Eyes (4:50)
-02. Johannes Huppertz - Morning Star (4:22)
-03. Cardinal Zen - Rain and Snow (4:19)
-04. Weathertunes - Smoke and Mirrors (3:48)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1137F7D590D9D1DA43EB2D622E792287B62E0D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506441   (800244) от 31.10.2021
 
 VA - Toxic Lounge Tunes, Vol. 2 (2011) [AAC|~325 Kbps] <Downtempo, Lounge, Chill Out>
@@ -722,6 +609,122 @@ VA - Mykonos Chillout Café (Feelings Del Mar) (2007) [AAC|~328 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5ACB5ABCA2A23FEE108FA65DF116647E5B8FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506645   (799535) от 01.11.2021
+
+October Noir - Fate, Wine, & Wisteria (2021) [AAC|~305 Kbps] <Gothic, Doom Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate (0:50)
+02. Windows (6:48)
+03. Reverence (Make You Love) (6:41)
+04. Effigy (5:42)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723086C68B23C567195FCFA379161438C049571F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506664   (799533) от 01.11.2021
+
+VA - In Love with Lounge, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
+02. Sami Sivananda - Temple Tunes (Original Mix) (6:46)
+03. Dreamhunter - Wolf in the Snow (Original Mix) (4:05)
+04. Artur Bayramgalin - Toronto Lights (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A9BEF548D0FBA5AA6FB13DE3E0D3091E43A425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506637   (799531) от 01.11.2021
+
+VA - Mykonos Chillout Café, Vol. 5 (Feelings Del Mar) (2010) [AAC|~333 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Boyz - With My Own Eyes (Keys of da Sea Mix) (5:30)
+02. Bay Area, Hela Delgado - Espiritu + Libertad (Viva Mix) (5:43)
+03. Mahoroba - Photo in My Mind (Great Memories Mix) (5:47)
+04. Orange Music, Mirjam - Islandlover (Monotonic Trip Mix) (6:22)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2109A1E4B916BE49CE6AA8AF425308F94A6209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506829   (799528) от 01.11.2021
+
+VA - Chillout Your Mind, Vol. 2 (Ultimate Chillout Collection) (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daphne Ashbrook - Turning Tables (4:05)
+02. Brazil Beat - Fragile (Original Mix) (3:08)
+03. Brazil Beat - Smooth Operator (5:03)
+04. Ronnie Jones - Easy (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB51CE55476E548A26BCF6139A254CF281725FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

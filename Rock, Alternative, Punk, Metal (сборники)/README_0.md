@@ -1,3 +1,32 @@
+###  Публикация: 1862315   (1064191) от 30.03.2026
+
+VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. PRESIDENT - Mercy (3:49)
+002. Nickelback - Bones For The Crows (4:04)
+003. Pierce The Veil - So Far So Fake (3:56)
+004. Bilmuri - ALWAYS LET YOU DOWN (feat. A Day To Remember) (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 06:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB9CBF265DD2B08D83023171D4CEC64BAA405AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862469   (1064004) от 31.03.2026
 
 Gotthard - Compilation (1992-2026) [MP3|320 Kbps] <Hard rock, Ballads>
@@ -710,35 +739,6 @@ VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F220B701219B022E8BBA4A93E032D64A9BE3035A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850791   (1054605) от 30.01.2026
-
-VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054605.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:44]. 001-7Б - По дорогам ветра
-[3:29]. 002-Сурганова и Оркестр - Коктейль
-[4:01]. 003-Вис Виталис - Рыбы в холодной воде
-[3:11]. 004-Инкогнито - Крутим диски(   Читать дальше...   )Жанр: rockПродолжительность: 11:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

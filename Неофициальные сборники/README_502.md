@@ -1,3 +1,61 @@
+###  Публикация: 1418404   (344421) от 26.10.2020
+
+VA - The Best Of  The Alternative (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344421.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charmer - Wolf Fang Fist
+002. Helicon - The Sun Also Rises
+003. Lovedrug - Black Wave
+004. Villagers - Hold Me Down(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 06:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418947   (344313) от 26.10.2020
+
+VA - Funk & Soul: Jackin Club Model (2020) [MP3|320 Kbps] <Funk, Soul, Pop, R&B, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344313.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helmut Lotti - Hallelujah I Just Love Her So
+002. Lea Lea - The Road
+003. Pieces Of A Man - Grits
+004. Solomon Burke - A Tear Fell(   Читать дальше...   )Жанр: Funk, Soul, Pop, R&B, JazzПродолжительность: 08:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D226FE77BD6135F327FBECF9F2B1C0221C2B0385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418945   (344307) от 26.10.2020
 
 VA - Beatport Electro House: Sound Pack #192 (2020) [MP3|320 Kbps] <Electro House>
@@ -717,64 +775,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 003 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680803BBCC1C78F2C4AB3C149F88249E64039C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954367   (342293) от 07.11.2015
-
-VA - Extra House: Bonus [01] (2015) [MP3|320 кб/с]<House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edx - Revered (Original Mix) (06:14)
-02. Nana - Lonely (The Distance & Riddick Remix) (05:55)
-03. Diversion & Jennifer Rene - Wishing (Original Mix) (07:10)
-04. Hrrsn - Papa Legba (Original Mix) (06:08)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC67377D3E1749E11F70A955DC04FCF3C93D168C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954463   (342285) от 07.11.2015
-
-VA - Happy Holidays Winter Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Franz Schubert - Ellens Gesang III, Op. 52: No. 6, Ave Maria, D. 839 - Arr. for Wind Quintet [06:05]
-02. Frйdйric Chopin - 24 Prйludes, Op. 28: No. 4, Largo in E Minor [02:49]
-03. Franz Liszt - Liebestrдume, S. 541: No. 3, Oh Lieb, so lang du lieben kannst in A-Flat Major [05:54]
-04. Jules Massenet - Thaпs, Act II, Scene 1: Meditation [04:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB820EF7C503EC5EEEDF47FB4CA02DF82802301
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,481 @@
-###  Публикация: 1522247   (760236) от 06.01.2022
+###  Публикация: 1394765   (760379) от 07.07.2020
 
-Bebe Rexha - Compilation (2019) [MP3|320 Kbps] <Pop>
+Inuyasha: Toki o Koeru Omoi | Inuyasha the Movie: Affections Touching Across Time | Инуяся: Любовь, превозмогающая время [2001, Movie] BDRip 1050p 10-bit raw+eng
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_760379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из осколков камня душ, попав в сухое дерево, возвращает к жизни потомка грозного демона, который некогда был сражен отцом Инуяси. Теперь демон намеревается заполучить наследие своего отца для завоевания мира.Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Синохара ТосияПеревод: 19th angelЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394755   (760378) от 07.07.2020
+
+Журнал | Burda [TR] №7 (июль 2020) [PDF][Tr]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760378.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1949 году Энне Бурда расширила свой семейный бизнес и основала компанию по производству и печати журналов о моде. Первым был выпущен журнал Favorit, который позже был переименован в Burda Moden. Первый его номер был издан в 1950 году с тиражом в 100 000 экземпляров, но уже через два года он достиг полумиллиона. В 1950 году Burda продавался во всех немецкоговорящих (   Читать дальше...   )Жанр: МодаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B03FF90C678BFB86576A84FE6192C15AF25F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394821   (760377) от 07.07.2020
+
+Simon Posford - Flux & Contemplation - Portrait of an Artist in Isolation (2020) Twisted Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Psychill>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_760377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (08:30)
+ 02. On A Rainy Day (03:13)
+ 03. Cyclical Ruminations (00:33)
+ 04. Germination (02:14)(   Читать дальше...   )Жанр: Ambient, Experimental, PsychillПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522186   (760376) от 06.01.2022
+
+VA - Study Sounds 005 (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scot & Millfield - Dark Lantern (7:14)
+02. Blue Pearl - Your Door To The Stars (6:40)
+03. Robotanni - Blue Ritz (5:01)
+04. Luis Hungria - Raining In Blanes (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4655796F701FAA359AE452F6A791EA99F226E417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522194   (760375) от 06.01.2022
+
+VA - Study Sounds 010 (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Latanika - Summer Jam (5:30)
+02. Mark Gaetani - Rwanda (5:21)
+03. Das.RBT - ide3 (2:29)
+04. Girolamo Erilancho - Ben To (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9A1D69A014EA35368DE8F3EEF831CCE9C91E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522191   (760374) от 06.01.2022
+
+VA - Study Sounds 009 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elite Electronic - My Inspiration (5:13)
+02. Scoopy - Mary Jane (5:02)
+03. TwoRule - Be With Me (2:22)
+04. Astral Vega - Manhattan Skyline (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F596DE9147A23067C481436DF3974BFDE6B4B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522197   (760372) от 06.01.2022
+
+VA - Study Sounds 012 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Chillout - Searching For Thule (3:04)
+02. JussComplex - Live Love Life (6:09)
+03. Hiromori Aso - Fall Asleep (4:10)
+04. Dima Rise - Angel (2:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0715499B7EFDAF004A40C1AD2BFB3F015F39C6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522189   (760370) от 06.01.2022
+
+VA - Study Sounds 007 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Lean - KeyGen (Chillout Mix) (5:23)
+02. DJ Deraven, Roy Corporation - Escape (4:10)
+03. John Abbruzzese - Fluctuations (5:04)
+04. The Moodyfreaks - Only One For Me (5:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBD4554DF1449D0D357BABB4A66292B63FC1E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522178   (760368) от 06.01.2022
+
+VA - Study Sounds 002 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tetarise - Abundance (8:11)
+02. Miklian - Healing (4:07)
+03. RBA - August (3:44)
+04. Zweig - Desert Flower (6:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D5EDF7F21279E5BCC50532CAD142AC976B8CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522199   (760366) от 06.01.2022
+
+Benny Goodman - Yale University Archives, Vol. 1 (1955 - 1986) 2CD, 2008, Nimbus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760366.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sweet Georgia Brown [4:35]
+02. Macedonia Lullaby [4:33]
+03. Soft Lights And Sweet Music [3:59](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABC73285A2F96032F0C2772106A0ADE3373CE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522198   (760365) от 06.01.2022
+
+VA - Study Sounds 013 (2022) [AAC|~274 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Chillout - Bangkok Black (3:39)
+02. Gert-Jan Kleyne, Roy Gomes - Chillmode (3:07)
+03. Labaci - My Way (Chill Out Mix) (3:22)
+04. Bistro Boy - Dreamland (Remix) (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE1E26FD748F60D53F74AD812FF68406697EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522179   (760363) от 06.01.2022
+
+VA - Study Sounds 003 (2020) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baronin - August (3:42)
+02. Ulysse Solomon - Baja Sardinia (4:36)
+03. Cash Andrein - A Bit More (5:55)
+04. Souxsoul - Gimme The Music (6:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB9F56B16765CBF8FF831F8F7A41064EB11AE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522348   (760362) от 06.01.2022
+
+Inhibidor - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renacer del Tiempo
+02. Una Puta Vez
+03. Sabor a LibertadLucas Bravo
+04. Reina Madre (feat. Joel Bedetti)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F2ED6E199371F60B5A725D93D4F68C75878BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522159   (760360) от 06.01.2022
+
+VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760360.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 391-й музыкальный релиз от Beatport в стиле Electro House вошло большое число прекрасных замыслов, которые в лучшем виде добрались до слушателя. Композиции, составляющие танцевальный сборник, занимательны и чрезвычайно легки для слуха. Каждый на релизе отыщет ту самую запоминающуюся мелодию что будет крутиться в голове творя отличное настроение.001. Croatia Squad - Drop That Skirt
+002. Gabriel Pinheiro - Different Now
+003. Ronnie Spiteri - Demons
+004. Alban Berisha - Mirage(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522171   (760358) от 06.01.2022
+
+VA - The Techno Streaming Sound (Vol.1) (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непредсказуемый музыкальный стиль! Все композиции сборника электронной музыки "The Techno Streaming Sound" характеризуются синтезом коротких и длительных периодов, неожиданным замедлением и ускорением ритма. Еще занятнее посмотреть танцы исполняемые под музыку этого стиля, это ритм и энергетика переданная языком движений. Такие выступления запоминаются (   Читать дальше...   )001. Donato Dozzy - Wooden Dolls Don't Cry
+002. Gonzalo Md - Valkyr Uv
+003. Astronomical Telegram - Ahora Ii
+004. Psyko Punkz - Embody Love(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADC9F4DE4399EF00B7997CA2407A36C9FA4F2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522195   (760356) от 06.01.2022
+
+Элизабет Хиткот | В ловушке (2021) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760356.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Бывшая любовница моего мужа. Все твердили, что ее смерть - это результат несчастного случая. И я им верила... раньше".
+Кармен вполне счастлива с Томом - преуспевающим лондонским адвокатом, отцом троих детей от первого брака. Она неплохо ладит с его детьми и не переживает из-за своего положения "новой жены". Однако тайна прошлого Тома не дает (   Читать дальше...   )Жанр: Детектив, Психологический триллерПродолжительность: 11:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D69AC15A7E98D2E2EF060DDDCA631702A96B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522077   (760354) от 06.01.2022
+
+Ysa Ferrer - Compilation (2019) [MP3|320 Kbps] <Pop, Pop-rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pillow
-02. Mine
-03. I'm Gonna Show You Crazy
-04. Pray(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:23
+01. Tant qu'on s'aime
+02. Les Yeux Dans Les Yeux
+03. Imaginaire Pur
+04. Made In Japan(   Читать дальше...   )Жанр: Pop, Pop-rockПродолжительность: 01:45:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E882AD47ACBD3A63D8198C8A5355F454F650CF5A
+magnet:?xt=urn:btih:049B85E12781E9D750B7D8D8680BB0F52499D30F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +483,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522164   (760235) от 06.01.2022
+###  Публикация: 1522157   (760352) от 06.01.2022
 
-VA - Not Allowed 2021 Compilation (2022) [AAC|~303 Kbps] <Deep House, Tech House>
+VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Electro>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ana Antonova - Gruvata (Original Mix) (7:20)
-02. Adur - Parallel (Original Mix) (8:08)
-03. Art Dealer - Polotiè (Teskera Remix) (7:03)
-04. Arthus - Marabacu (Original Mix) (5:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:12:04
+Такая музыка не "пишется на коленке", чтобы получить приемлемый результат авторам этого направления электроники приходится приложить усилия своего творческого потенциала. Чего только стоит запись вокала, сведение и живой аккомпанемент, без кропотливой работы в студии не обойтись, что однозначно вызывает уважение001. Lilly Noise - The Bike Day
+002. Makloud - King
+003. Murley Rune - Dub Substation
+004. Lappo DJ - Afterhall(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 07:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895DAA63C21E9C3866AB5CA9444B418C24CD28F8
+magnet:?xt=urn:btih:784D4A13EF909A35608652FBE7FF6021D79E309E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +512,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522158   (760234) от 06.01.2022
+###  Публикация: 1522230   (760350) от 06.01.2022
 
-Из воздуха (2021) WEBRip [H.264/1080p]
+VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
 
->>Документалистика и Телепередачи
->>нет
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воздух — уникальная и удивительная субстанция: дыхательная среда живых организмов на нашей планете и источник многих химических веществ, которые привносят в жизнь людей комфорт, безопасность и прогресс. Трудно представить, но часто вещи, которыми все пользуются каждый день, произведены с помощью разных компонентов воздуха — кислорода, азота, аргона, криптона, ксенона, (   Читать дальше...   )Производство: Россия | ООО "СТВ"Телекомпания: НТВЖанр: Документальный, познавательныйПродолжительность: 00:44:55
+01. Bruno Motta - Stay Together (Latouche Finale Remix) (feat. Dave Baron) (05:08)
+02. Eddy Sanchez - Back To Back (05:10)
+03. Jerem A - When The Sun Goes Down (DJ Hakuei Remix) (06:34)
+04. Infradisco - Il vizio (04:38)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Funk, SoulПродолжительность: 01:30:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D955AE9BFC7F6031D77C87DB5459D12B65C9BDA1
+magnet:?xt=urn:btih:AB19D0024C55061D536406EE36B2D826CB04E03E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +541,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522156   (760233) от 06.01.2022
+###  Публикация: 1522167   (760348) от 06.01.2022
 
-VA - The Complete "Blue Cover" Series, vol. 2 (2019) [AAC|~321 Kbps] <Electro Swing, Broken Beat, House>
+VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pisk, Cab Calloway - Jumpin' Jive (Electro Swing Remix) (3:38)
-02. Heavy Sugar, The Real Tuesday Weld - Joe Palooka (Show Me the Money) (The Clerkenwell Kid Electro Swing Remix) (4:06)
-03. The Swing Bot - Shake Like It's Coming On (4:41)
-04. Atom Smith, Burkey - Girl Lookin' Good (3:30)(   Читать дальше...   )Жанр: Electro Swing, Broken Beat, HouseПродолжительность: 01:44:11
+Транс - это мелодии чувств, от прослушивания которых испытываешь удовольствие. Немногим удаётся понять и осознать данный стиль музыки, но однозначно повезло тем, кто способен проникнуться чудесными мелодиями и звуками, которые приносит с собой транс музыка.001. Alvaro Santis - Silent Punch
+002. Dan Thompson - Atlas (Radio Edit)
+003. Paul Todd - La Graciosa
+004. Corrado Baggieri - Exciderunt(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:41:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:783ED72F9425CCD578899E6F62563C235E9C668D
+magnet:?xt=urn:btih:CF9ED2689FE02D4ADF8F0D035650D90DAE8FFDB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,83 +570,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522152   (760232) от 06.01.2022
+###  Публикация: 1522308   (760347) от 06.01.2022
 
-VA - The Complete "Blue Cover" Series, vol. 1 (2017) [AAC|~331 Kbps] <Electro Swing, Broken Beat, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pisk - Minnie the Moocher (3:41)
-02. Fab Samperi - The Big Swing (3:40)
-03. Charlie Beale - Stop Breakin' Down Blues (3:10)
-04. DJ Dunya - Xyloswing (5:16)(   Читать дальше...   )Жанр: Electro Swing, Broken Beat, HouseПродолжительность: 01:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EFE75282EE56C6C472627E5ECD54EB21A7EF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522177   (760231) от 06.01.2022
-
-VA - Study Sounds 001 (2020) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twintone - Fragments Of Love (Seathasky & Twintone Remix) (5:26)
-02. Bistro Boy, Kikuchi Giovanni - Northern Light (Bistro Boy Remix) (4:20)
-03. Jade - Aurora (3:22)
-04. Phil of Rhythmic Souls, Ted Ganung - Caution (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729EAF00070D8822E4B0860A564C271E7C83EBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522221   (760229) от 06.01.2022
-
-Мельница каменных женщин / Il mulino delle donne di pietra (1960) BDRip [H.264] [VO]
+Энох Арден / Enoch Arden (1911) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ганс приезжает в небольшой городок близ Амстердама, чтобы написать статью о знаменитом скульпторе, который живёт на островке в старой бывшей мельнице, которую местные жители называют Мельницей каменных женщин. Ганс знакомится с очаровательной дочерью профессора Элфи и начинает испытывать к ней страсть. Вскоре Ганс начинает подозревать, что эксперименты профессора (   Читать дальше...   )Производство: Италия, Франция, C.E.C. Films, Explorer Film '58, Faro Film, Galatea Film, Wanguard FilmЖанр: фантастика, ужасыРежиссер: Джорджио ФеррониАктеры: Пьер Брис, Шилла Габель, Вольфганг Прайсс, Дани Каррель, Херберт А.Э. Бёме, Лиана Орфей, Марко Гульельми, Ольга Сольбелли, Alberto ArchettiПеревод: любительский одноголосый (Stalk)Субтитры: русские, английские (2 варианта)Продолжительность: 01:35:36
+18-й век, рыбацкая деревня. Любовный треугольник — скромный рыбак Энох Арден, его возлюбленная Энни Ли и богатый соперник Филип Рэй. Девушка достается Эноху, они женятся, и через несколько лет у них трое детей. Чтобы заработать больше денег для своей семьи, Энох решает пойти на рыболовецком судне в длительное путешествие, несмотря на возражения Энни Ли. Корабль терпит (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Уилфред Лукас, Линда Арвидсон, Френсис Дж. Грэндон, Джордж Николс, Эдвард Диллон, Джозеф Грейбилл, Грэйс Хендерсон, Флоренс Ли, Джини Макферсон, Альфред ПегитПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:33:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0D1F37A866BF0A61268C4B7FA0B3963825EA89
+magnet:?xt=urn:btih:97955312C61EFC9CF226B0309A1E67548C083EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,29 +596,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522251   (760227) от 06.01.2022
+###  Публикация: 1522316   (760345) от 06.01.2022
 
-The Mavericks - The Mavericks (2003) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Rock, Country>
+Одна из многих (1927) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Mavericks ("Индивидуалисты") - американская нео-кантри-группа, появившаяся в 1989 г. в Майами. В период с 1991 по 2003 год записали шесть студийных альбомов, 14 синглов попали в чарты Биллборд. Самой успешной была композиция "All You Ever Do Is Bring Me Down" 1996 года, совместно с аккордеонистом Flaco Хименесом.
-В Англии наиболее известен (   Читать дальше...   )01. I Want to Know
-02. In My Dreams
-03. Shine Your Light
-04. I'm Wondering(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:44:17
+Фильм высмеивает увлечение американскими кинозвездами. Героиня картины под впечатлением приезда Мэри Пикфорд и Дугласа. Фсрбенкса в 1927 г. в Советский Союз мечтает о поездке в Голливуд. Во сне ее мечта сбывается. Она приезжает в Голливуд и встречается с американскими кинозвездами. Картина кончается сценами, в которых Фербенкс оставляет героиню на растерзание львам, (   Читать дальше...   )Производство: СССР, Межрабпом-ФильмЖанр: Рисованная анимация, короткометражныйРежиссер: Николай ХодатаевАктеры: А. Кудрявцева (студийка)Субтитры: Русские интертитрыПродолжительность: 0:15:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5C69CEABF82C3580A5261EC1FDE127F30EAE7D2
+magnet:?xt=urn:btih:0C3546274A236D2DBEE49B0CCFA2E5D5F4EFD755
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +622,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522169   (760225) от 06.01.2022
+###  Публикация: 1522250   (760343) от 06.01.2022
 
-VA - Route Music: Disco Night (2021) [MP3|320 Kbps] <Disco, Funky, Nu Disco>
+Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вашему вниманию самый качающий диско-микс прошедшего года. В этой подборке представлены самые яркие ремиксы на хиты 80-х годов которые, как иногда кажется, звучат даже лучше оригинала.001. Jordi Cabrera - Infinity
-002. Alex Guittini - All Over Again
-003. Soul Divers - The Mystery Of Universe
-004. Pina.Nikolada - She's A Beauty(   Читать дальше...   )Жанр: Disco, Funky, Nu DiscoПродолжительность: 10:41:38
+01. My Gipsy Wanderer
+02. It's Goodbye
+03. No Tears Anymore
+04. Lonely is the Night(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E3FB1674B2F4221F9A71F4601EDF14E9F3488EE
+magnet:?xt=urn:btih:95D00C07F53EF89C5E4B3E57CE74681ABD0999C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,406 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280225   (760207) от 03.02.2019
+###  Публикация: 320539   (760339) от 08.04.2011
 
-Антон Емельянов, Сергей Савинов | Мертвяк и снайпер (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата, один самый обычный человек, другой обладатель странной, противоречащей всем постулатам современной науки способности «временной смерти». Как сложится их судьба, когда после событий, положивших конец привычному укладу вещей, они окажутся по разные стороны баррикад? Тот, кто привык притворяться и искать обходные пути, и тот, кто считает, что пистолет – это (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 16:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53AAFD7FF116E9678815A9B9CAC8BA98B5DF593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280513   (760206) от 03.02.2019
-
-Константин Никольский - Энциклопедия российского рока (2003) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне только снится жизнь моя
-02. Я думал о многом и разном
-03. От любви к любви
-04. Спи, душа моя(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CA8656EC5D4A9E589B8E42A5FDB978073C65B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280036   (760202) от 03.02.2019
-
-Майк Резник и др. | Литературный аудиопроект «Глубина» [выпуск 12] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760202.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: ФантастикаПродолжительность: 05:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273D4B8C8D6CC6BA148FF504A59CFC0CC6A46292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869937   (760200) от 03.02.2019
-
-И мир увидел Сталинград (2008) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760200.jpg" />
-</div>
-
-
-###  Подробнее
-
-253 кинооператора снимали Великую Отечественную войну. Погиб каждый пятый. Но сегодня мы смотрим на войну именно их глазами. И если бы не было их, миру невозможно было бы предъявить те страшные кадры преступления фашизма.
-Посмотрев этот фильм, Вы поймёте почему так дорог каждый кадр фильма "Сталинград". Этот фильм посвящен кинооператору Владимиру Ивановичу (   Читать дальше...   )Телекомпания: Студия "Сувенирфильм"Жанр: ДокументальныйПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E506A44E6AF35992E4ACEF85D4F48C33D6E66147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280472   (760198) от 03.02.2019
-
-The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon Classic Concert Album 2018 (2018) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.アバンBGM (0:20)
-02.ムーンライト伝説 (5:51)
-03.セーラームーン劇伴(BGM)音楽メドレー (13:17)
-04.同じ涙を分け合って (1:57)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C4FB07943E3D85A4D4002793041DCCEAA2956A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280601   (760196) от 03.02.2019
-
-ДиДюЛя - Седьмое чувство (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Колесо времени (Велюровый вальс)
-02.Покорители пространства (Ветряные мельницы)
-03.Танец с дождём (Причудливые круги)
-04.Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280454   (760194) от 03.02.2019
-
-Иконки - InstantShift - Interfaz Icon Set: 400 Free Social & Interface Icons [PNG, AI, SVG, EPS]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные иконки для коммерции и личного пользования.
-Автор: iShift StaffФормат: PNG, AI, SVG, EPSРазрешение файлов: 32 x 32 - 100 x 100
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943DEE6E8500A3A9743604CAC3CF0739F4DC06F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280446   (760192) от 03.02.2019
-
-Невероятные изобретения / Wicked Inventions (2015) HDTVRip [H.264/1080p-LQ] (сезон 1, выпуски 30 из 30)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонка вооружений и освоение космоса привели к созданию множества замечательных вещей. Мы пользуемся ими каждый день, не подозревая об их удивительном происхождении. В сериале "Невероятные изобретения" мы постараемся приоткрыть тайны науки и разгадать загадки прошлого, чтобы познакомиться с удивительной историей всем нам известных предметов. В каждом выпуске (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Defenition Media LtdЖанр: Документальный, технологии, инновации, дизайнРежиссер: Джэймс ФловерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C3871826969F0307788BABE049AAACB4601363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280226   (760190) от 03.02.2019
-
-Григорий Шаргородский | Противодраконья эскадрилья (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Илья Смирнов, по прозвищу Смирный, – корпоративный психолог, сотрудник успешной компании. Он из-за цепи случайностей попадает в параллельный мир и свои навыки по сплочению коллектива вынужден применять среди зеленокожих дикарей. Илье это удаётся. Весьма кстати приходится и его знакомство с военной историей римского периода. И вот сильные и воинственные, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 10:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBA14B871A0EF94173F2481D38AFEB99748562B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280501   (760188) от 03.02.2019
-
-VA - Play With Fire: Rock Blues Collection (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spare Change - Mr. Boogs
-002. John Primer - Let It Bleed
-003. Andy Watts - Blues On Fire
-004. Deltaphonic - Big Game(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822D7C0D12A299B3408E3C8663BD90C02E57AD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280558   (760186) от 03.02.2019
-
-Фоны и наложения - TheHungryJPEG - Neo Random light Overlay 52 - 3518185 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neo Random light Overlay 52 - Наложения, которые позволяют создавать на фотографии солнечные лучи различных форм, размеров, направлений и цветовых тем. Таким образом, вы можете легко добавить летнее настроение к вашим фотографиям.Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566B961162B498B1AA5A3700DEBC6F0B8564A23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235767   (760184) от 03.02.2019
-
-Децл aka Le Truk feat. Animal ДжаZ - Acoustic (2018) [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пятница (feat. Animal ДжаZ)
-02. Кто ты (feat. Animal ДжаZ)
-03. 10:33 (feat. Animal ДжаZ)
-04. Сучки (feat. Animal ДжаZ)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F685A5D31881683BC81B5D38EAEF00409976DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280572   (760182) от 03.02.2019
-
-Тролли. Праздник продолжается! / Trolls: The Beat Goes On! (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) NewStudio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня мультсериала - жизнерадостная Розочка. В городке троллей населяют очень различные существа - тролли. Среди них - Цветан, лучший друг Розочки. Ручеёк - самый спокойный тролль в деревне и Купер - красная троллошадка. Розочка живёт вместе со старым скрягой - Розовым королём. Розочка - оптимист по жизни. Она любит наряжатся и гулять. Её любимое занятие (   Читать дальше...   )Производство: США /  DreamWorks Animation TelevisionЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Майк Митчелл, Уолт ДорнПеревод: Многоголосый закадровый, профессиональный - NewStudioСубтитры: русские, форсированные (на песни)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C99DD0DD55983229F3EEDE2532BF0D9297FBB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278633   (760180) от 03.02.2019
-
-History Channel. Герои войны: Польша / Heroes of War: Poland (2013) HDTVRip (1-5 серии из 5)
-
->>След.
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760180.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2014 году исполнилось 75 лет со дня начала Второй мировой войны. Этот сериал возвращает нас к тому времени, когда обычные люди в смертельных схватках с нацистами, стали выдающимися героями, борцами за свободу, шпионами и взломщиками секретных кодов. Используя интервью с немногими оставшимися очевидцами, доступ к недавно открытым документам, реконструкцию и архивную (   Читать дальше...   )Производство: Великобритания, History ChannelЖанр: Документальный, война, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 5 х ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49DAD358D867420C8A4420B34E371BF7D326278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280389   (760178) от 03.02.2019
-
-Wondershare Filmora 9.0.7.4 [Multi/Ru]
+Ярослав Хотеев | Оборотни [2011] [MP3]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare Filmora - удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. Вы сможете создавать высококачественные фильмы с титрами, применять фильтры, эффекты перехода, обрабатывать звук. Кроме этого, программа поможет напрямую загрузить свое видео на YouTube для обмена с друзьями и семьей, сохранить видео для воспроизведения на (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Человечество, как тараканы, разбежалось по планете, унося свою драгоценную задницу. Стоило лишь раз пройти кислотному дождю и что стало с культурой? Где моральные ценности? Вечный голод, проблемы с продовольствием. То, что растет на поверхности, есть невозможно, а старых запасов надолго не хватило. И стал человек человеку враг и пропитание. Честь, совесть, мораль… (   Читать дальше...   )Жанр: Фантастика
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B74B7D73B862491A822B43DB349BB1E15D76F572
+magnet:?xt=urn:btih:65A302EF9B7B9DC79E6C05CFEB9D539668EBDF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +677,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280266   (760177) от 03.02.2019
+###  Публикация: 1280457   (760336) от 03.02.2019
 
-Видеоколлекция Bilim Land / Bilim Land video collection (2013-2017) WEB-DLRip
+NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264/1080i-LQ]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обучающих и познавательных фильмов, рассчитанных для детей с первого по одиннадцатый классы, благодаря которым они быстро усваивают новый материал. Ведь такой способ обучения задействует сразу два чувства: зрение и слух. Несмотря на то, что чтение развивает воображение, получение новых знаний посредством только этого способа приводит к быстрой усталости (   Читать дальше...   )Производство: Казахстан / Bilim Media GroupЖанр: Обучающий, Развивающий, КороткометражныйРежиссер: Bilim Media GroupПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 08:52:03
+Доктор Нил Хаммершлаг отправился на поиски огромной акулы-молота, которая вырастает до 7 метров в длину и может весить более 450 кг.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брэндон Хилл, Марк ОстрикПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:471EA1FE8393C6DE1CD5E2548E44F6AA1D81DE44
+magnet:?xt=urn:btih:2F0F0A153A8B0CCCA22B9469D1088BF68D514FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +703,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280606   (760174) от 03.02.2019
+###  Публикация: 1280563   (760335) от 03.02.2019
 
-Ленинград (2007) WEBRip (серии 1-4 из 4)
+Вести недели (03.02.2019) SATRip
 
->>Отечественные сериалы
->>нет
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм посвящен одной из самых трагических страниц второй мировой войны — 900-дневной блокаде Ленинграда, которая продолжалась с 8 сентября 1941 года по 27 января 1944 года. Время действия — ноябрь 1941 года. Памятники и величественные купола соборов осажденного немцами Ленинграда затянуты камуфляжной сеткой, разрушены здания, брошены трамваи. Снабжение города продовольствием (   Читать дальше...   )Производство: Россия / Первый каналЖанр: драма, военныйРежиссер: Александр БуравскийАктеры: Мира Сорвино, Ольга Сутулова, Луиза Мосендз, Кирилл Лавров, Александр Абдулов, Владимир Ильин, Юлия Рутберг, Михаил Ефремов, Евгений Стычкин, Валентин Гафт, Валентина Талызина и др.Продолжительность: ~00:52:00 серия
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: Информационно-аналитическая программа, политикаПродолжительность: 01:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05AA1836AA7757BC3696EA2E6D963819B363389F
+magnet:?xt=urn:btih:EEF91BE2E768AD707865DAE8922F4BF87BCC0DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

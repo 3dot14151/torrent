@@ -1,32 +1,3 @@
-###  Публикация: 988558   (920958) от 20.02.2016
-
-Omnium Gatherum - Grey Heavens (2016) [MP3|320 кб/с] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pit
-02. Skyline
-03. Frontiers
-04. Majesty and Silence(   Читать дальше...   )Жанр: MDMПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3253E0356951D02637047BC5A006ECB89F2F484A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096337   (920930) от 23.01.2017
 
 Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
@@ -755,6 +726,35 @@ Rawrorr - Cynism (2020) [MP3|320 Kbps] <Blackened Death Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29EE7705589BF61ADEA1AA42E7D1B5B68346710F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367859   (914365) от 17.03.2020
+
+Ocean Grove - Flip Phone Fantasy (2020) [MP3|320 kbps] <Nu-Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstar (03:05)
+02. Neo (01:53)
+03. Sense Again (03:03)
+04. Sunny (03:00)(   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00259211847689AFF916C45D0FB7464CDCBDD4C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

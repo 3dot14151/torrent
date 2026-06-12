@@ -1,3 +1,90 @@
+###  Публикация: 1799116   (16861) от 26.05.2025
+
+VA - Assorted Compilation Part 9 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stive Morgan - Out of Rain
+02 - The Sound of Love - White Sea
+03 - Sergey Grischuk - Land of a Dream
+04 - The Sound of Love - Magical Fly(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B50C4DAF064B28526F4D56CFEA7F9109F41DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799013   (16857) от 26.05.2025
+
+VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A-Sultan - Fading Light
+02 - Rodle & Ab Bos - Amore Mio
+03 - Imazee - You Feel My Heart
+04 - Dndm, Mr Salama - Gray Night(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADA59B12330356FE8EF6C26175DFD45CCD4CE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799218   (16822) от 26.05.2025
+
+Bad Balance (Михей, Шеff, AL Solo, Купер) - Compilation (1994-2024) [MP3|320 Kbps] <Hip-Hop, Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Balance - World Mix
+02. Bad Balance - Мы Не Любим, Когда... (& MC Sheriff)
+03. Bad Balance - Светлая Музыка
+04. Шеff - What A Wonderful Life (& Lojaz)(   Читать дальше...   )Жанр: Hip-Hop, ReggaeПродолжительность: 06:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506843417E5DE0B6547474C432491EDBD911A3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799110   (16815) от 26.05.2025
 
 VA - Compilation Part 165 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, Instrumental, Piano>
@@ -658,93 +745,6 @@ VA - History of... (mixed by Юrkanik) (2010-2013) [MP3|320 Kbps] <Techno, Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A449F8E32CD125780A547A743DBE10A2EB4BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801379   (15060) от 10.06.2025
-
-Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minor Life [04:12]
-02. Intro / Set Me Free (From Yesterday) [04:35]
-03. Lady In Black [12:29]
-04. Ready To Die [04:25](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 06:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9504783103E20DBCE886298661464A9D2A5536A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801672   (14867) от 12.06.2025
-
-VA - Motivation Mix 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eminem - Lose Yourself (5:26)
-02. JAY-Z, Alicia Keys - Empire State Of Mind (4:36)
-03. Coldplay - A Sky Full of Stars (4:27)
-04. Macklemore, Ryan Lewis, Ray Dalton - Can't Hold Us (feat. Ray Dalton) (4:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B983085694F08ABFB0EE5832AC0D693AC7BE2D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801690   (14836) от 12.06.2025
-
-VA - National Pop Dance Music Vol.107 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14836.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Munyon - February Songs (04:47)
- 002. Alec Benjamin - Lead Me To Water (02:45)
- 003. Massimo Di Cataldo - Michela (04:41)
- 004. Calvin Harris - Miracle (03:07)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0FBD9001645B05A6CE22D7B31B6C9A40CD1E4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

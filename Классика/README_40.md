@@ -1,32 +1,3 @@
-###  Публикация: 1420940   (321546) от 03.11.2020
-
-VA - Pop Classics Volume 1-3 (1990) 3 СD [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1
-01. Symphonic Rock Orchestra - Here, There And Anywhere (2:38)
-02. Symphonic Rock Orchestra - Hey Jude (4:32)
-03. Royal Philharmonic Orchestra - I Got Plenty O' Nuttin' (5:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE75A260926063A5C1050F352E38CC1C965BD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181789   (321193) от 08.11.2017
 
 Sueye Park - Paganini: 24 Caprices (2017) [FLAC|Lossless|tracks] <Classical>
@@ -755,6 +726,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B075595C08145DBF31D5EF7F03C7335F471957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959998   (309258) от 27.11.2015
+
+Моцарт - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленькая ночная серенада: Allegro
+02. Симфония №40: Molto allegro
+03. Женитьба Фигаро: Увертюра
+04. Турецкий марш(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806817332AD436E3A08684508F6D18D85234567D
 ```
 
 https://mybot314.ru/tekegram_catalog/

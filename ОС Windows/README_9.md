@@ -1,3 +1,32 @@
+###  Публикация: 988733   (920161) от 20.02.2016
+
+Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920161.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W10.tib,
+записанный на ноутбуке Dell Inspiron 3542-7807 с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367150   (918221) от 14.03.2020
 
 Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11) [Ru]
@@ -655,32 +684,6 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84686FA7977BF2410A1D8E0C77E9DFDB931E274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997366   (874586) от 16.03.2016
-
-Microsoft Windows 10 Professional 10.0.10586 Version 1511 (Updated Feb 2016) - Оригинальные образы от Microsoft VLSC [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C03493513E5F614FC91BC0EF903BF6DC5BC385
 ```
 
 https://mybot314.ru/tekegram_catalog/

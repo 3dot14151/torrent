@@ -1,3 +1,32 @@
+###  Публикация: 1546336   (604288) от 25.04.2022
+
+Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саблезубый тигр - японская Heavy Metal группа из Саппоро основана в 1981 году гитаристом Акихито Киношита.01. Revenged On You 06:25
+02. Believe In Yourself 04:52
+03. Motive Of The Lie 05:26
+04. Kutsujyoku 04:33(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148194   (604213) от 05.07.2017
 
 One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
@@ -230,6 +259,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244184   (520828) от 07.08.2011
+
+Jun Togawa - 12 альбомов (1984-2008) [FLAC|Lossless]<Japanese,new wave,noise rock,punk rock,avant-pop,synth-pop,experimental,post-punk>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_520828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ヒス
+ 2. 本能の少女
+ 3. ラヴ・バズーカ
+ 4. シャルロット・セクサロイドの憂鬱
+ 5. 思春期病
+ 6. 少年A
+ 7. いじめ
+ 8. それいけ!ロリータ危機一髪
+ 9. あたしもうぢき駄目になる
+ 10. 赤い花の満開の下1984-2008Жанр: Japanese,new wave,noise rock,punk rock,avant-pop,synth-pop,experimental,post-punkПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561801   (513620) от 06.07.2022
 
 coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Modern Rock>
@@ -281,6 +345,41 @@ Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFBCE0756EC0C3B84D150BAD73A021C5A051EC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376251   (511322) от 16.08.2011
+
+Yoshii Kazuya - 2 albums (2007-2009) [FLAC|Lossless]<J rock,rock'n'roll>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ビルマニア
+ 2. フロリダ
+ 3. ウォーキングマン
+ 4. ノーパン
+ 5. ヘヴンリー
+ 6. 魔法使いジェニー
+ 7. SNOW
+ 8. ONE DAY
+ 9. ルビー
+ 10. またチャンダラ2007-2009Жанр: JRock,rock'n'rollПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,93 +772,6 @@ Takahiro Matsumoto/TMG (Tak Matsumoto Group) - 3 albums(2002-2004) [FLAC|lossles
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173161   (368064) от 04.11.2011
-
-RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1- NAKED
- 2- STILL GROWING FLOWER
- 3- 道なき未知へ
- 4- シロイハナ
- 5- IF I AIN’T GOT YOU
- 6- melt away2007-2008Жанр: Jrock,metalcore,alternative metalПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415996   (367336) от 16.10.2020
-
-Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watch Me Burn [00:03:29]
-02. Disobey [00:03:12]Жанр: MetalcoreПродолжительность: 9 CD, 03:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031853C7A07A98C23ECE18311D8068F5432BB540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577965   (350174) от 21.09.2022
-
-Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350174.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Kuroi Inori
-2.	Kuroi Kage
-3.	Shoujahitsumetsu
-4.	Shikabane(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C8AC0E2AD0D825186144CB2CE43594FA554648
 ```
 
 https://mybot314.ru/tekegram_catalog/

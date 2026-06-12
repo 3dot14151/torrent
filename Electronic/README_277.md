@@ -1,3 +1,61 @@
+###  Публикация: 1310159   (548878) от 22.06.2019
+
+CJ Burnett - Moonlit City (2017) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, Outrun, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Side Drive (3:19)
+02. Moonlit City (4:55)
+03. Race Through Time (4:45)
+04. Twilight Dreamer (4:04)(   Читать дальше...   )Жанр: Retrowave, Synthwave, Outrun, DreamwaveПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B122DF05744F3A30B9E73A2012F37CF129DF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310012   (548841) от 22.06.2019
+
+VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548841.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.  Airbeat Inc.  -  Run With You (Airbeat One Anthem 2019)
+02.  Martin Garrix feat. Bonn  -  No Sleep(   Читать дальше...   )Жанр: House, Trance, Electronic, DanceПродолжительность: 03:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78332F88B979DF2E85E903529768126BD5D27B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238055   (548835) от 27.07.2018
 
 Onmutu Mechanicks - Nocturne (2010) Echocord [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno>
@@ -687,64 +745,6 @@ Armin van Buuren - Old Skool (2016) Mini Album [MP3|320 Kbps] <Trance, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9772F76B29BEBBDF14F1AC0B5F22E482257A39A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916447   (547273) от 01.09.2016
-
-Random Walkers - No.Real.$.K. (2015) [FLAC|Lossless|WEB-DL]<Techno, Tribal, Industrial, Minimal, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmutation (07:12)
- 02. Ariadnes Thread (07:10)
- 03. The Sleep Of Reason (06:54)
- 04. Distant Ophelia (06:36)(   Читать дальше...   )Жанр: Techno, Tribal, Industrial, Minimal, ExperimentalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E143324FD4EC0A4D4300D79528724BFB6CD4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048176   (547240) от 01.09.2016
-
-VA - Vintage Cafe - Lounge & Jazz Blends (Special Selection) Vol. 7 (2016) [FLAC|Lossless|tracks] <Lounge,Jazz,Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Anakelly - Why Does It Always Rain on Me? [04:21]
-02 The Cooltrane Quartet - A Sky Full of Stars [04:20]
-03 Flora Martinez - Happy [03:28]
-04 Eve St. Jones - I Only Want to Be with You [03:48](   Читать дальше...   )Жанр: Lounge,Jazz,DowntempoПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DAEF3DCD95B12EA395DB4DC607F4278B19B243
 ```
 
 https://mybot314.ru/tekegram_catalog/

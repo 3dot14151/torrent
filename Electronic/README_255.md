@@ -1,3 +1,145 @@
+###  Публикация: 914828   (592381) от 05.07.2015
+
+VA - Integration With Nature (2015) [MP3|320 кб/с]<Ambient, Psybient, PsyChill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airform - Mechanical Forest (Spherical Mix) 07:37
+02. Peres - Hypersphere 06:49
+03. StereOMantra - True Experiences 08:11
+04. Chronos - Cultural Legacy 08:06(   Читать дальше...   )Жанр: Ambient, Psybient, PsyChillПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECAAE4444CE8C4A2D6FFD1F43AEACB50085D48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915147   (592352) от 05.07.2015
+
+Ambassadeurs - Patterns (2015) [MP3|320 кб/с]<Electronic, Chillstep, Indie>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson 04:56
+02. Looking at You (feat. C Duncan) 04:06
+03. Forever 04:42
+04. No More 03:12(   Читать дальше...   )Жанр: Electronic, Chillstep, IndieПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CFB4B9A098C098F8208E2DBB163B28DCD8EEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343289   (592210) от 05.07.2015
+
+Hol Baumann - Discography (2004-2013) [MP3|320 kbps]<Psychill, Downtempo, Ambient, Dub, Glitch, IDM, Trip Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psychill, Downtempo, Ambient, Dub, Glitch, IDM, Trip Hop |Продолжительность: 06:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA853F5EA0E9B22F67269489A0AB7D056A8A3EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550447   (592155) от 11.05.2022
+
+VA - Synth City Compilation, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System96 - Conjure (3:04)
+02. Let Em Riot - Collection (3:07)
+03. Starfarer - Spaceport (4:20)
+04. Lucy In Disguise - Odyssey (3:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F067510BC328113454269CED2385ADF0E99C666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915974   (591908) от 06.07.2015
+
+Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
+02. Landscape [07:06]
+03. Odyssey [06:52]
+04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550793   (591236) от 13.05.2022
 
 VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -601,148 +743,6 @@ Berlin - 11 Albums, 5 Compilations (1980-2020) [MP3|320 кб/с] <New Wave, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:866A83EDCD3E41C0C5F12F9E7F7FC822909E9071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916697   (590486) от 09.07.2015
-
-VA - Poel (Entspannungs Musik Zum Seele Baumeln Lassen) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Ohmer - Mare Nubium [04:57]
-02. Vladimir Sterzer - City of Dreams (Soft Version) [04:14]
-03. Rocco Muller - Media Nation [09:22]
-04. Tibetan Bells - 6° Chakra [06:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4330BAC6ABB4FC190A2F114563F75408C5D862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916281   (590397) от 09.07.2015
-
-FKA twigs - LP1 (2014) Japanese Edition [MP3|320 кб/с]<Alternative R&B, Trip Hop, Dreampop, Experimental Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preface
-02. Lights On
-03. Two Weeks
-04. Hours(   Читать дальше...   )Жанр: Alternative R&B, Trip Hop, Dreampop, Experimental ElectronicПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289CF9EAD7FBC453213BDB21CF3075252340B31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788929   (590396) от 09.07.2015
-
-Stefan Torto (Stefanos Tortopoglou) - Discography 7 Releases (2011-2015) [MP3|320 кб/с]<Psybient, Psychill, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psybient, Downtempo, Ambient, Progressive Trance |Продолжительность: 05:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8455E2B2EA0B59397764D250EF8BDA3105197B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916796   (590385) от 09.07.2015
-
-VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance, Balearic Trance >
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Aisling Jarvis - Call Me Home (Magic Island Mix) (6:20)
-02. Brian Laruso & John James Renfrow - We Used to Know (Original Mix) (5:06)
-03. Rogier Dulac - On the Beach (MI6 Edit) (4:25)
-04. Othon - Japan Suite (Brian Laruso's MI6 Edit) (5:18)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic TranceПродолжительность: 05:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916691   (590363) от 09.07.2015
-
-VA - Cafe del Mar XXI (2015) [MP3|320 кб/с]<Chill House, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinobe - Slip Into Something More Comfortable (Played Live Mix) [04:46]
-02. Nev Cottee - If I Could Tell You [07:04]
-03. Nautic - Freedom of the Floor (Open Space Remix) [06:06]
-04. Atlantic Ocean - Waterfall (2 Slow 2 Lounge Mix) [05:40](   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 04:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687070710BDFC7290FC676AA0EC626C0C7598C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1834239   (248584) от 02.11.2025
+
+Звуковые библиотеки - Producer Loops - Alliant Audio - Neo Soul Essentials Vol 2 [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alliant Audio с гордостью представляет Neo Soul Essentials Vol. 2! Коллекция сэмплов, представляющих всеми любимую эпоху. Это сочетание неосоула и хип-хопа, вдохновлённое такими музыкантами, как J Dilla, Pete Rock и многими другими!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA57A6E1BA2E1B0EBF0785C0328D9278C72EA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540121   (245613) от 28.03.2022
 
 Звуковые библиотеки - SOUNDPUNCH Ultimate Suite [WAV]
@@ -657,32 +683,6 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27DE6E350BBED2847E83060FD345FA912BDF61AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831134   (212533) от 28.10.2025
-
-Звуковые библиотеки - Boom Bap Labs - The Attic - Moonrise [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот новый пакет содержит 25 royalte free сэмплов. Эта коллекция вдохновлена ​​богатой японской культурой. Здесь вы найдёте сочетание прекрасного джаза, традиционной музыки, психоделического вокала, таинственных вибраций и тревожной колыбельной на 78rpm.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1849824   (1053856) от 24.01.2026
+
+VA - Trance Pathways #01 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Anderson - Progressive Love (Extended Mix) [6:14]
+02. Max Van Couver - Branch Of Fate (Original Mix) [6:53]
+03. Urrrrrr - Overture Of Future (Original Mix) [8:28]
+04. Makoom - Runway (Intro Mix) [5:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9546D081AEFC87BE29D80BA37F0B533B38387473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849771   (1053629) от 24.01.2026
+
+VA - Dream Dance Vol. 97 - The Annual (Extended Versions) (2026) [MP3|320 Kbps] <Trance, Electronic, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Clementine Douglas - Blessings (Extended Mix) [5:31]
+02. Armin van Buuren & SACHA - Set Me Free (Rising Star Extended Remix) [6:02]
+03. XiJaro & Pitch with Youssri - The Reason (Extended Mix) [7:54]
+04. Van Der Karsten - One Unity (Extended Mix) [3:31](   Читать дальше...   )Жанр: Trance, Electronic, DanceПродолжительность: 06:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E04A7076FA512DF34EC7CECFEF66619417DF7EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849392   (1053515) от 22.01.2026
+
+VA - Melodically Trance 03 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caira - Karma (Jamie Knowles Remix) [6:37]
+02. Brittø - Grey (Original Mix) [4:59]
+03. Dmitry Kostyuchenko - Praha (Jeef B Remix) [6:17]
+04. Focusing - Hyperborea (Original Mix) [9:58](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFED917A57A098AE46F3AF901801BBD1A263133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848676   (1052926) от 18.01.2026
 
 VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F775A9719755D0FD4E6F29112E5DF2B0EE886B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842829   (1048792) от 17.12.2025
-
-VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Beat Projekt & Rollerbabe - Voice In The Sky (Original Mix) [5:42]
-02. Roman Sand - Aquarius (Original Mix) [6:03]
-03. Invisible Signs & Higher Instincts - Eternal Travellers (Original Mix) [8:11]
-04. Semper T. - Fall Mood (Original Mix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842246   (1048594) от 15.12.2025
-
-VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MARTZ Moreno - Heavenly Glory (Original Mix) [4:15]
-02. Sublitrance - Eternal Love (SouthDreamer Remix) [6:44]
-03. Duezher - Above The Cloud (Original Mix) [7:04]
-04. Transcending - Confidence (Original Mix) [7:55](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841830   (1048432) от 13.12.2025
-
-VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048432.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
-002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
-003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
-004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03692DA5E342E15716FB7C95F12AE3DE8A0F03D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

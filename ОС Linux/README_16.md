@@ -1,3 +1,31 @@
+###  Публикация: 731871   (295400) от 08.12.2013
+
+PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен релиз PCLinuxOS 2013.12 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя.
+
+В релизе PCLinuxOS 2013.12:  KDE 4.11.3;   ядро 3.4.70-pclos1; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847733   (293797) от 06.12.2014
 
 Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
@@ -668,32 +696,6 @@ SUSE Linux Enterprise Desktop Server 15
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423081   (228765) от 16.11.2020
-
-SUSE Linux Enterprise Desktop Server Workstation 15.1
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228765.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP1. Пакеты SUSE 15 SP1 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.1. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
 ```
 
 https://mybot314.ru/tekegram_catalog/

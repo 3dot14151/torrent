@@ -1,3 +1,420 @@
+###  Публикация: 1074049   (340082) от 18.11.2016
+
+SYU - You Play Hard (2016) [MP3|320 Kbps] <Instrumental Neoclassical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spearhead 05:42
+02. Hold Your Tongue 04:11
+03. Civamallosso 03:50
+04. Blind Obedience 04:00(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71589036C0020051A5801DB7BB785D19BB41D337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257917   (338946) от 15.11.2010
+
+Jang Yun-jeong - 6 album’s (2004-2008) [FLAC|Lossless]<Korean, trot, k-pop,k-dance, ballad, DJ's,female vocalists>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_338946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 1:
+01 . 첫사랑
+02 . 어머나
+03 . 꽃
+04 . 짠짜라
+05 . 이따,이따요
+06 . 콩깍지
+07 . 어부바
+08 . 편지 (Feat. Sg워너비 채동하)
+09 . 사랑이 떠나네요(   Читать дальше...)Жанр: Korean, trot, k-pop, k-dance,ballad, DJ’s,female vocalistsПродолжительность: 01:09:18+00:50:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580708   (337919) от 27.11.2012
+
+VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337919.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Yu Die
+(4:25) 02. Ren Xiao Yao
+(4:57) 03. Tie Chuang
+(4:30) 04. Peng You
+(4:36) 05. My Heart Will Go On
+(3:39) 06. Nu Ren Hua
+(4:29) 07. Wo Bu Xiang Shuo
+(4:07) 08. Mei Hua San Nong
+(5:08) 09. Ming Ming Zhi Dao Xiang Si Ku
+(4:25) 10. Shang Xin Tai Ping YangЖанр: Instrumental, EthnicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59E5D1F77E1A753C1C3D93B7B8040DFDB1D2419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581148   (337437) от 27.11.2012
+
+Meisa Kuroki - 4 альбома, 8 синглов (2008-2012) [MP3|320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337437.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-PopПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579478   (336413) от 27.09.2022
+
+The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074821   (335764) от 20.11.2016
+
+Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go 04:14
+02. Dark Desire 04:20
+03. 1000 Eyes 04:36
+04. Face To Face 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BE294BEC1DA9C3124C4249247C5E8C1E939402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074863   (335763) от 20.11.2016
+
+Loudness - Buddha Rock 1997-1999 (2016) 35th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghetto Machine 05:04
+02. Slave 03:17
+03. Evil Ecstacy 04:10
+04. San Francisco 04:09(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65289CE1CF19E1B0A62781DECA6164DC6F73FCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181268   (335066) от 06.11.2017
+
+Daisy×Daisy — 6 альбомов + 5 синглов (2008-2014) [MP3|320 kbps] <JPop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(2013.03.20) Daisy×Daisy - Dangerous×Dizzy×Daisy
+(2013.11.27) Daisy×Daisy - TWINKLE BOX ~Daisy×Daisy BEST~
+(2014.08.27) Daisy×Daisy - REACTIVATIONЖанр: JPopПродолжительность: 00:08:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F06806D05382554A06E6C4FE054D8820851770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579647   (334530) от 28.09.2022
+
+Arclipse - City of Haze (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World's begins (01:01)
+02 - The Haze (03:59)
+03 - Awake (04:00)
+04 - sub space (04:19)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F01F2DB25721112D3F4FF35131FD227DF8F88E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258834   (334234) от 31.10.2018
+
+Pure Wrath - Sempiternal Wisdom (2018) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Homeland
+2. Warrior's Path
+3. Grief Of Our Father
+4. Lautan Darah(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E4B9066F71C3A125CA94B88C70A2F7E67FCA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259905   (328630) от 22.11.2010
+
+VA - The Chinese Musician Series (Ensemble) (41 CD) (2006) [MP3|320 kbps]<Traditional>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TraditionalПродолжительность: 44:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F6070FCCC7BC28719EFA69D247E6DBFCEDDBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314532   (328616) от 23.11.2011
+
+Ryuu-UNIT - 4 singles (2010-2011) [FLAC|Lossless]<J pop,hip-hop,female/male voice>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_328616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONE SIDE LOVE
+ 2. JUST YOU
+ 3. もっと (motto)
+ 4. DOKI×2
+ 5. ONE SIDE LOVE (Instrumental)
+ 6. JUST YOU (Instrumental)
+ 7. もっと (Instrumental)
+ 8. DOKI×2 (Instrumental)2010-2011Жанр: J pop,hip-hop,female/male voiceПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842170   (328327) от 18.11.2014
+
+Einherjar Records - 2 альбома (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2009.08.15 (ERCD-0001) Prologue (C76)
+2009.12.30 (ERCD-0002) Ex. (C77)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2E1859A51427075BD6805EC0EA8A1BBE53E19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842177   (328256) от 18.11.2014
+
+Finality Blast - Sorrow Halation (2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <Power Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328256.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:56] 01. かおり - Sorrow Halation
+[04:33] 02. かおり - 絶望の歌姫
+[04:26] 03. かおり - MoonCHILD
+[04:45] 04. かおり - dis courteous
+[04:28] 05. かおり - Knife Edge Syndrome
+[06:05] 06. かおり - Humming bird
+[06:16] 07. かおり - Pargation
+[04:32] 08. かおり - 邪姫眼
+[05:00] 09. かおり - Spiritμal (   Читать дальше...   )Тип издания: DoujinЖанр: Power MetalФормат: Touhou VocalПродолжительность: 00:00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F5CD84A7E0C31BB0FC09D84B364F97854A541D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842174   (328233) от 18.11.2014
 
 False&Trues - 4 альбома (2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|Lossless] <J-Pop>
@@ -357,413 +774,6 @@ Wu Judy Chin-tai - 3 albums (1999-2001) [MP3|320 kbps]<New age, Nature sounds>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960083   (307571) от 28.11.2015
-
-HARDCORE TANO*C - 31 альбом (2004-2015) /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2014.12.30 (TCPLUS-0014) SPEED BALL EVOLUTION (C87)
-2015.04.26 (TCPLUS-0015) Irregular Nation (M3-35)
-2015.08.16 (TANOCD-0019) HARDCORE SYNDROME 9 (C88)Тип издания: DoujinЖанр: Hardcore, Techno, ElectronicПродолжительность: 01:14:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28626BF34A43053AC693673964E9F194E46F2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960495   (307560) от 28.11.2015
-
-Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebus [FLAC|image + .cue]<Rock, Prog Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamaebeth (0:47)
-02. Sora To Kumo (5:24)
-03. Omatsuri (11:21)
-04. Ishoku-Sokuhatsu (12:23)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1B3A8AEC543EC8B3634FF7784AB36E8AE1AA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524900   (306635) от 28.11.2015
-
-EXIT TRANCE PRESENTS (EXIT TUNES) - 442 альбома (2003-2015) [MP3|128-320 кб/с]<J-Pop, Ost, J-Trance, Vocaloid>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: J-Pop, Ost, J-Trance, VocaloidПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6DB7E1C3DE4AADC251AAD743EB78491D47F28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961360   (300798) от 01.12.2015
-
-PSY - The 7th Album (2015) [MP3|320 кб/с]<K-Pop, Dance, Hip-Hop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Jockey
- 02. I Remember You (feat. Zion.T)
- 03. Napal Baji
- 04. Daddy (feat. CL)(   Читать дальше...   )Жанр: K-Pop, Dance, Hip-HopПродолжительность: 00:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFA75361A7C1006CEAC3D78CB68C07DEED9A0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078783   (297805) от 02.12.2016
-
-Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha
-02. Omega
-03. Hatred
-04. Metro(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9128C9A472A401B56B75FD740D6E911BF5B32D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 267910   (297770) от 09.12.2010
-
-COBRA - 2 album's (1996-2000) [FLAC|Lossless]<C rock,blues rock,girls band>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.YUAN
-02.忘记我
-03.影子
-04.周末
-05.迷途的羔羊
-06.床
-07.日子
-08.瘾
-09.等待
-10.无所谓(   Читать дальше...)Жанр: C rock,blues rock,girls bandПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962126   (296978) от 03.12.2015
-
-Tennenjemini - 18 альбомов (2009-2015) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.12.30 (CY-0013) Toho Warfare：RED BERYL (C83)
-2013.08.12 (CY-0014) Touhou ssaw -all days- (C84)
-2015.08.14 (CY-0023) Toho Warfare：RED FLAME (C88)Тип издания: DoujinЖанр: J-Pop, J-Metal, ElectronicФормат: Touhou VocalПродолжительность: 00:10:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F04647BFE0FC19F033CC4DA12197A27D059769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962122   (296977) от 03.12.2015
-
-Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.12.30 (IOY-0016) Wadatsumi (C85)
-2014.12.29 (IOY-0019) Shigo Risutora ni au — God never knows, but you know me (C87)
-2015.08.14 (IOY-0020) Toho Warfare：BLACK SPARK (C88)Тип издания: DoujinЖанр: J-Pop, J-Metal, ElectronicФормат: Touhou VocalПродолжительность: 00:10:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28219604430450051D8DCDB3367C6C0D45E344F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334356   (296729) от 28.10.2019
-
-Cosmic Invention - Cosmorama (1981) Reissue CD, 1994, Victor [MP3|320 Kbps] <Electronic, J-Pop, Disco>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Fighting (4:15)
-02. 愛Love Come On (3:16)
-03. ちょっとホントあとはウソ (3:48)
-04. ゆでたまごちゃん (3:54)(   Читать дальше...   )Жанр: Electronic, J-Pop, DiscoПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AF7489B59FD18FC1D71125B76D8999CBDD64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962476   (295058) от 04.12.2015
-
-KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.08.11 (KAED-0007) Takenawa Uta vol.2 (C82)
-2012.12.31 (KAED-0008) Takenawa Uta Ex Alc.0% (C83)
-2013.12.30 (KAED-0010) Old navy never die. (kancolle) (C85)Тип издания: DoujinЖанр: J-PopПродолжительность: 00:04:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DCABBAA2D9383F3DC78400CC15B84D1680B6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962116   (295027) от 04.12.2015
-
-programYMG - 2 альбома (2009-2010) /Doujin/ [FLAC|tracks] <J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.12.12 (IOH-0008) Scramble!
-2010.05.05 (IOH-0009) Megane Holic (M3-25)Тип издания: DoujinЖанр: J-Pop, ElectronicПродолжительность: 00:01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229C75EFE83F489C691DD8F5D18517C77DA06061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962112   (294937) от 04.12.2015
-
-ALBATROSICKS - 9 альбомов (2007-2014) /Doujin/ [FLAC|tracks] <J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2010.12.30 (IO-5011) MERGE THE STRAWBERRY! (C79)
-2014.08.17 (IO-5101) DEKKAINO (C86)
-2014.12.30 (IO-5102) CHICCHAINO (C87)Тип издания: DoujinЖанр: J-Pop, ElectronicПродолжительность: 00:05:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418BCE4B08A1D94C53C3DD713C1AA4997C72C7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962141   (294602) от 04.12.2015
-
-IOSYS - 105 альбомов (2004-2015) Anime, Game, Touhou Vocal, Vocaloid /Doujin/ [FLAC|tracks] <J-Pop, J-Rock, J-Metal, Electronic, Instrumental>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2015.05.10 (IO-0284) #TOHO_SEAWAVES (Reitaisai 12)
-2015.05.10 (IO-0286) ROCKIN'ON TOUHOU VOL.4 (Reitaisai 12
-2015.10.18 (IO-0291) PUNK IT! TOUHOU!3 -IOSYS HITS PUNK COVERS-Тип издания: DoujinЖанр: J-Pop, J-Rock, J-Metal, Electronic, InstrumentalФормат: Anime, Game, Touhou VocalПродолжительность: 03:11:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E7CE40453E1A89DE26D4C7536A50416AAA9149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962113   (294366) от 04.12.2015
-
-ARM's Armageddon Records - 2 альбома (2011-2012) Touhou Instrumental, Vocal /Doujin/ [FLAC|tracks] <Electronic, J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.12.30 (ARM-0001) infinity (C81)
-2012.05.27 (ARM-0002) distant (Reitaisai 9)Тип издания: DoujinЖанр: Electronic, J-PopФормат: Touhou Instrumental, VocalПродолжительность: 00:01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D948E0BEDDA097D50B862E7763EFD26087A71848
 ```
 
 https://mybot314.ru/tekegram_catalog/

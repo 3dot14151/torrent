@@ -1,119 +1,3 @@
-###  Публикация: 1537667   (666766) от 17.03.2022
-
-VA - Eargasm Chill Out, Vol. 2 (An Obsession of Erotic Lounge) (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pianochocolate - Lilac (4:12)
-02. Lemongrass - Spacetime (3:16)
-03. Michael e - Aha (5:16)
-04. 351 Lake Shore Drive - Spanish Lullaby (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F19F2FEC1AC562D0FF5288758363353FD6D4CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537553   (666764) от 17.03.2022
-
-VA - This Is Chillout Jazz, Vol. 4 (Cool Jazzy Sounds in a Lounge Mood) (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jestofunk - Straight to you (6:04)
-02. LTJ XPerience - And I Love Him (Remix) (5:47)
-03. Papik, Wendy D. Lewis - Sunny (3:47)
-04. D'Andy, Melania - Yesterday (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E7A31729C86BC4E83DD1D539F6CDB5A81D99AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537121   (666759) от 17.03.2022
-
-VA - Sunrise Avenue, Vol. 3 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralf Harris - Mad About (Original Mix) (3:35)
-02. Sheldon Correira - Vanity Experia (New York Sunset Mix) (3:36)
-03. Xavier Salo - Every Day (Original Mix) (5:06)
-04. Tim Washington - White Passion (Original Mix) (3:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF280590B6F46A91634ABF86698CE214F633D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537557   (666757) от 17.03.2022
-
-Chillhop Guitar - Soothing Vacation (2022) [AAC|~344 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny Monsters (6:26)
-02. A Castle made of Ice (6:34)
-03. Shell Hunting (5:59)
-04. Origami (5:50)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB752BEB2F3F57762AB7F2283C39224FF29E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537672   (666755) от 17.03.2022
 
 VA - Eargasm Chill Out, Vol. 4 (An Obsession of Erotic Lounge) (2015) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
@@ -727,6 +611,117 @@ Lemongrass - Flow (2022) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16811FA8902B74E7641328583976734DC3DA7734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537905   (665505) от 18.03.2022
+
+VA - Female Vocal Trance 2022 (2022) [AAC|~331 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings, Sarah Russell - Change The World (3:09)
+02. Myde, Hanna Finsen - My Heart Stood Still (3:19)
+03. Ronski Speed, Elara - I'll Be There (3:35)
+04. Temple One, Katty Heath - In Everything I See (3:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CC4BE00C05B6222710A4C866FFBD20CDCCB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137962   (665361) от 28.05.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейАктеры: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 01:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A997ADE1DE871E0B24F346D3FC3B581F6A44BB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901209   (665354) от 24.05.2015
+
+Поклонник / The Boy Next Door (2015) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
+
+Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B9D3BF5464708F447D9BDECE7B81205184014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901151   (665292) от 24.05.2015
+
+Поклонник / The Boy Next Door (2015) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об учительнице литературы Клэр Петерсон. Клэр знает о том, что муж изменяет ей, но тянет с разводом.
+
+Однажды, в дом по соседству въезжает харизматичный 19-летний красавчик Ной, который начинает оказывать Клэр повышенное внимание. Поддавшись слабости, Клэр проводит с ним ночь. Но она и не подозревала, что в скором времени влечение Ноя к ней перерастет (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse ProductionsЖанр: триллерРежиссер: Роб КоэнАктеры: Дженнифер Лопес, Райан Гузман, Иэн Нельсон, Джон Корбетт, Кристин Ченоуэт, Лекси Аткинс, Хилл Харпер, Джек Уоллес, Адам Хикс, Франсуа Чау, Бэйли Чейз, Кент АвенидоПеревод: ДублированныйОзвучка / Автор перевода: (BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9B8073961074B3BAD85B3A10DC7ACF6AD3AD15
 ```
 
 https://mybot314.ru/tekegram_catalog/

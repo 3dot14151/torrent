@@ -251,6 +251,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389547   (451421) от 20.09.2011
+
+Yes - Symphonic Live (2011) [ 1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_451421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Yes 22 ноября 2001 года в сопровождении European Festival Orchestra под управлением Wilhelm Keitel.1. Overture
+2. Close To The Edge
+3. Long Distance Runaround
+4. Don't Go
+5. In the Presence Of
+6. Gates of Delirium
+7. Steve Howe Guitar Solo: Lute Concerto In D Major, 2nd Movement
+8. Mood For A Day
+9. Starship Trooper
+10. Magnification(   Читать дальше...   )Жанр: Музыка,  progressive rockРежиссер: Aubrey PowellПродолжительность: 02:47:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942985   (451185) от 02.10.2015
 
 Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
@@ -697,35 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDDDBE6F395698E71505AB3EDC4F6577E533F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249616   (430966) от 25.09.2018
-
-Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 19.05.2018 во время фестиваля Rock Hard в Гельзенкирхене.01. The Wild And The Young
-02. Wildest Dreams
-03. Only The Strong Will Survive
-04. Mystica(   Читать дальше...   )Телекомпания: WDRЖанр: Heavy MetalПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9582B38D953291AA5897367BF77557F04F971D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -56,41 +56,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 362553   (571382) от 13.07.2011
-
-VA - New Russian Electro Vol.11 (06.07.2011) [MP3|320 kbps]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 23-45 - Друг Без Друга (DJ Noiz & DJ Maxtal Remix) (6:03)
- 02. Antitela - Бери Свое (AD Men's Remix) (5:21)
- 03. Aruba Ice & Denis Kenzo - В небеса (DJ XM Electro Remix) (4:37)
- 04. Cooler & Long - Маруся (DJ Solovey Remix) (5:43)
- 05. Cooler & Long - Маруся (Greysound Remix) (5:31)
- 06. Dan Balan & Вера Брежнева - Лепесками Слёз (Ночное Движение Club Mix (4:51)
- 07. De Maar - Мачо (DJ Pomeha & DJ Simex Club Remix) (4:10)
- 08. Dj Boyko & Sound Shocking - Москва Не Питер (DJ Shevtsov Remix) (6:05)
- 09. Dj Boyko & Sound Shocking - Москва Не Питер (Original Mix) (7:07)
- 10. DJ Smash - Можно Без Слов (DJ Melloffon Remix) (5:24)(   Читать дальше...)Жанр: Electro House, HouseПродолжительность: 05:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68E80FFCBD9F6DE3C774C39197D61681FE961DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526723   (571278) от 29.07.2012
 
 Lolita Jolie - Non Non Non (2012) [MP3|320 кб/с]<Electro, House>
@@ -759,6 +724,35 @@ VA - Ibiza Summer House Sessions Vol.3 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417C3FB47BF1D2C0A69276A8F9A0CF9213AA32BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045212   (561830) от 22.08.2016
+
+VA - Melodic Progressive House Vol.07 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Oh & Jennifer Yun  -  We Chase The Sun (Talamanca Remix)  8:08
+02. RNX & Robert Nickson ft. Paul Mads  -  Whatever (Original Mix)  5:32
+03. Nigel Good  -  This Is Us (Original Mix)  7:50
+04. Lian July & Eli  -  Surrender (LTN Vocal Remix)  5:53(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811D1A691E700936F695BF27120F84AE86DB95D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

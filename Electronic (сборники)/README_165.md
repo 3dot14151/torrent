@@ -1,3 +1,38 @@
+###  Публикация: 579848   (346262) от 24.11.2012
+
+VA - A State Of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Oakenfold - Full Moon Party (Thomas Datt Remix)
+002. Within Temptation - Sinead (Alex M.O.R.P.H. Extended Vocal Mix)
+003. Serge Devant feat. Emma Hewitt - Take Me With You
+004. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+005. Progressiver - Searching For The Truth (Original Mix)
+006. Rafael Frost - Channel 4 (Original Mix)
+007. Snatt & Vix - At The End Of The Day (Original Mix)
+008. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
+009. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
+010. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8593B3BA61A70051F544EBD5EA2C51E6226594F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580183   (346258) от 24.11.2012
 
 VA - Whisper of Consciousness Volume 32 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
@@ -741,35 +776,6 @@ VA - Creative Music Box 5 (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass/Drumstep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA96D95C6EDE99EA9EA092252B3027AFE0B10B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179980   (342798) от 03.11.2017
-
-VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrmpo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342798.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Custom 7 - Breath Unwind
-002. James Butler - Dinner in Milano
-003. Miper - Hide (Original Mix)
-004. Alexander S. Karlov - Sex With Yoga Girl(   Читать дальше...   )Жанр: Ambient, DowntrmpoПродолжительность: 11:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

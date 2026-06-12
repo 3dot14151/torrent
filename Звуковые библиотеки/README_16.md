@@ -1,3 +1,29 @@
+###  Публикация: 1331858   (320638) от 17.10.2019
+
+Soniccouture - EP73 Deconstructed [Kontakt, MIDI]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320638.jpg" />
+</div>
+
+
+###  Подробнее
+
+EP73 Deconstructed предлагает звучание раритетного электропиано Rhodes Stage 73, подвергшегося особому «препарированию», что позволило высветить новые звуковые нюансы этого инструмента. Включены также MIDI партииФормат: Kontakt: NICNT, NKC, NKI, NKR, NKX, NKM; MIDI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93081294D39496B731C81BA425F88A4D0DDFA0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421873   (315066) от 06.11.2020
 
 Звуковые библиотеки - FCPX Full Access - Master SFX Bundle (Includes ALL SFX Packs) [AIFF]
@@ -648,35 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B89226A60CEAC751514140EF932362BEC76DBF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733411   (286789) от 12.12.2013
-
-AudioJungle Pack NEXT [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник треков от AudioJungle для озвучивания видео-проектов.
-
-MP3 - 320 Kbps 44kHz
-WAV - 1411 kbps 44kHz(   Читать дальше...   )Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F6EE0F85F09A4F03972582612ABC1674DE27E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

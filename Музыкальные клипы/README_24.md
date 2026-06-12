@@ -1,3 +1,110 @@
+###  Публикация: 551839   (451408) от 25.09.2012
+
+Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9C9E62A2AA1B1AA402B0CCCE0588F40F1728A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942906   (451364) от 02.10.2015
+
+VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
+03. R. City - Locked Away ft. Adam Levine  (4:25)
+04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
+05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551914   (448413) от 26.09.2012
+
+Cinnamon Chasers (2009-2011) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B412144D340C5E69A01ECA5EA823799774CABE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552162   (448163) от 26.09.2012
+
+Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 390809   (446661) от 22.09.2011
 
 Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
@@ -453,6 +560,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554288   (436371) от 01.10.2012
+
+Status Quo -The Greatest Hits (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех почитателей творчества легендарной группы01. Caroline
+02. Down Down
+03. Paper Plane
+04. Big Fat Mama
+05. Roll Over Lay Down
+06. Don't Waste My Time
+07. Little Lady
+08. Mystery Song
+09. Rain
+10. Break The Rules(   Читать дальше...   )Жанр: Музыка Rock, Rock n RollПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB4F181421773BF3A88D0E6615711BE8D8F151A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554388   (436234) от 01.10.2012
+
+Сборник клипов - VA - Various Music part. 34 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9BBA44F6335D5AB86A5B7EEDE5A427073CAEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554261   (435838) от 01.10.2012
 
 Smokie  Greatest Hits 1975-1979 (2011) DVDRip
@@ -552,169 +720,6 @@ W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555652   (431781) от 03.10.2012
-
-Cinnamon Chasers (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F75757E3218E6ACEECF271D1C665150BFD1E683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946086   (429167) от 12.10.2015
-
-Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eminem представляет новый видеоклип под названием «Phenomenal», который является саундтреком к фильму «Левша».Жанр: Rap & Hip-HopПродолжительность: 00.07.21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901746427F55731F57413156BA7C50AEADAD081B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946524   (427054) от 13.10.2015
-
-VA - Осенний марафон № 197 / Видеоклипы (Дискотека с Размахом) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (13.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adam Lambert - Another Lonely Night (Official Video) (00:03:30)
-02. Becky G - Break A Sweat (Official Video) (00:03:32)
-03. Carlos Baute - Perdimos El Control (Official Video) (00:03:34)
-04. Dj Layla ft. Sianna - I Need Love (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, SoulПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72411455E2166BABBAD5AB0AB6344D6D717279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409166   (425381) от 26.09.2020
-
-Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадолго до своей смерти Долорес О'Риордан собиралась записать новую версию "Zombie" вместе с группой Bad Wolves.
-В память о ней, Bad Wolves выпустили этот кавер, вся прибыль от которого была отдана детям певицы.Производство: © 2018 Eleven Seven Music GroupЖанр: Rock, AlternativeРежиссер: Уэйн ИшамАктеры: Томми Векст, Док Койл, Джон Беклин и другиеПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC5F5F4B9E44A1CD21F8F4F1B718296F536CE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323451   (425095) от 09.09.2019
-
-Артур Пирожков - Алкоголичка (2019) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно Александр Ревва, больше известный под творческим псевдонимом Артур Пирожков, выпустил новый хит «Алкоголичка», который за 10 дней собрал больше 20 миллионов просмотров в YouTube.Жанр: PopПродолжительность: 00:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEC8F76A0534998771DFE9EAC25CA8EE77FD057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946297   (424800) от 14.10.2015
-
-VA - Осенний марафон № 196 / Видеоклипы (Коктейль Танцевальных Хитов) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (09.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ami - Camina (Official Video) (00;03:11)
-02. Amure - Tango In The Sky (Official Video) (00:07:19)
-03. Eros Ramazzotti ft. Ani Lorak - Piu Che Puoi (Live @ New Wave 2015) (00:05:09)
-04. Ferreck Dawn - Jolene (Lyric Video) (00:03:15)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, DubstepПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D323B48B623151F2B06F78E0E2536FD818847A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

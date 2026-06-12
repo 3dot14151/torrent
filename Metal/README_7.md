@@ -1,32 +1,3 @@
-###  Публикация: 1474691   (1012884) от 03.06.2021
-
-Van Canto - To The Power Of Eight (2021) [MP3|320 Kbps] <Power A Capella>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To the Power of Eight
-2. Dead by the Night
-3. Faith Focus Finish
-4. Falling Down(   Читать дальше...   )Жанр: Power A CapellaПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2840C35199FA6639607BEC9BB51B9547F2A61269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474741   (1012745) от 04.06.2021
 
 Blazon Rite - Endless Halls Of Golden Totem (2021) [MP3|320 Kbps] <Heavy Metal>
@@ -744,6 +715,35 @@ Goya - Gotta Outbreak Your Ass (2021) [MP3|320 Kbps] <Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10CD1C717F5CD5F6EE5E4BDE4E9A4BE373F4DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484072   (1006409) от 17.07.2021
+
+Times Of Grace - 2 Albums (2011-2021) [MP3|320 Kbps] <Alt. Metal, Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burden of Belief [00:05:39]
+02. Mend You [00:04:16]
+03. Rescue [00:03:42]
+04. Far From Heavenless [00:06:00](   Читать дальше...   )Жанр: Alt. Metal, Melodic MetalcoreПродолжительность: 2CD, 01:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AF81E7F888A8CDE6D6204F39A13A1E1F0F96BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1295042   (622376) от 11.04.2019
+
+VA - Country Forever (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622376.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.Dolly Parton - 9 To 5
+02.Tammy Wynette - Stand By Your Man(   Читать дальше...   )Жанр: CountryПродолжительность: 03:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219679   (621686) от 20.07.2010
+
+Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621686.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:12) 01. Hematite
+(6:32) 02. Citrine
+(6:09) 03. Amber
+(7:10) 04. Rose Quartz
+(6:33) 05. Adventurine
+(6:11) 06. Aquamarine
+(5:55) 07. Celestite
+(6:40) 08. Amethyst
+(6:33) 09. Clear Quartz
+(6:05) 10. Onyx(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145511   (621548) от 25.06.2017
+
+Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Native American, Chillout, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andean Winds
+02. Dance Of Fire
+03. Maldito Licor
+04. The Sun Of The Inka's(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036338   (621078) от 20.07.2016
+
+Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boys Are Back In Town
+02. The Richest Fool Alive
+03. Daniel Prayed
+04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 803307   (621019) от 09.07.2014
 
 Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
@@ -635,128 +757,6 @@ Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panfl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F0A6F06132FD59381CC8372670A1C676BE56E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230194   (617387) от 11.06.2018
-
-Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Prologue (3:35)
-2 - Stay in Your Tower and Watch (1:55)
-3 - Something's Wrong (0:56)
-4 - Beartooth Point (1:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036623   (617269) от 22.07.2016
-
-Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Tender
-02. You Don't Have To Say You Love Me
-03. Danna Boy
-04. The Twelth Of Never(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F74A2934459D13E161320F549C6668020144522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523559   (617210) от 16.07.2012
-
-VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320 кб/с]<Native American, Ethno, Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gran Canyon 2:43
-02. Mother Earth Round Dance 2:16
-03. Mojave 8:12
-04. Sacajawe Peak 4:15
-05. Beowawe 5:05
-06. Yellowstone 2:54
-07. Delta Seven 5:29
-08. Firedance 3:37
-09. Explora 4:10
-10. Song Of The Navajo 8:45(   Читать дальше...   )Жанр: Native American, Ethno, AmbientПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29A5BC77910879CAD767512ABF128E797A195AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230269   (617195) от 11.06.2018
-
-BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless (03:13)
-02. Angel of War (04:42)
-03. Path to Queensgarden (05:36)
-04. Riverdel (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
 ```
 
 https://mybot314.ru/tekegram_catalog/

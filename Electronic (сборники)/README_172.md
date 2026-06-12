@@ -1,3 +1,32 @@
+###  Публикация: 1421969   (315428) от 06.11.2020
+
+VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rezwan Khan - Slow Jam
+002. Piazza Grande - Mondana
+003. Lvgsh - Tunnel Vision
+004. Brussels Pony Club - Warrior(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182654   (315108) от 11.11.2017
 
 VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
@@ -744,32 +773,6 @@ VA - Record Super Chart 661 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600CD14D73EB16FE3AA31332C5652B57F9A54A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584132   (310653) от 03.12.2012
-
-VA - Битва DJ: Dинамит vs. Woofer (2004) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310653.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: HouseПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6089EBD9F84012B3FFBFCB764C2E34D47AAE1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

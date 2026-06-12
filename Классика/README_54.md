@@ -1,32 +1,3 @@
-###  Публикация: 1740058   (45980) от 22.08.2024
-
-Андрей Чуловский - J.S. Bach/И. С. Бах - Органная Музыка (1998) Unoficial Release [APE|Lossless|image + .cue] <Classical, Organ>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдия (фантазия) и фуга соль минор BWV 542
-02. Маленький гармонический лабиринт BWV 591
-03. Хоральная обработка (Господи, отвори врата Вечности)  BWV 617
-04. Библейская песнь (Из глубокой бездны взываю к Тебе) BWV 745(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E8CCF9C28A80817155EACC79587250C78E43DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745639   (45446) от 27.08.2024
 
 VA - Piano and Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -743,6 +714,35 @@ VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01E6D5D919676B605674294E199248A72FF9C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768558   (33058) от 25.12.2024
+
+VA - Classical Music Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+02. Oclassica Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12C4E05E54AC8035AE7BB3A38BE8132193D5FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

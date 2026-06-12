@@ -1,3 +1,32 @@
+###  Публикация: 1298999   (601603) от 29.04.2019
+
+Painstatic - The Unknown: 1 Year Edition (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Message [04:18]
+02. The Guiding [05:40]
+03. Triggering The Youth [05:33]
+04. Pain Song [05:28](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E5B091CAA050F0D5CC6E987DBCE6BC1A115914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300261   (593427) от 05.05.2019
 
 The Chemical Brothers - No Geography (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Electronic, Big Beat, Techno>
@@ -705,35 +734,6 @@ Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5D0465326B700722ACB13E78EB9FF1301F4A811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950474   (369577) от 26.10.2015
-
-Nero - Between II Worlds (2015) [FLAC|tracks+.cue]<Dubstep, Electro House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circles (4:31)
- 02. The Thrill (3:30)
- 03. It Comes and It Goes (4:02)
- 04. Two Minds (3:34)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C39B7E26406699CA4055A252AD2FB818A948F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1324136   (427332) от 08.09.2019
-
-Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ensemble for Piano and Violin No. 4 in H Major, Op. 5: IV. Moderato
-2. Ensemble for Piano and Violin No. 5 in D Minor, Op. 6: IV. Moderato
-3. Ensemble for Piano and Violin No. 6 in F Minor, Op. 7: IV. Andande con molto
-4. Ensemble for Piano and Violin No. 7 in D Minor, Op. 8: IV. Andante(   Читать дальше...   )Жанр: Modern classical, ensemble, pianoПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ADB8484E92DCFA641F38A84097C806001EB168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249928   (426974) от 27.09.2018
 
 The New London Chorale - The Young Beethoven (1990) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
@@ -742,6 +713,35 @@ Octet for winds in E flat major, Op. 103
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6278B68E38988A4A6F6AEF2AA68AB2835B13574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252406   (409177) от 05.10.2018
+
+After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Figure One.               Written-By – Rossini
+2.	Carmencita.             Written-By – Bizet
+3.	Joy.                          Written-By – JS Bach
+4.	Freeze.                     Written-By – Rossini(   Читать дальше...   )Жанр: Neo-Classical, Pop, ClassicalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD71B8CF7E13C5623D237DA7242DC38F825E2AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

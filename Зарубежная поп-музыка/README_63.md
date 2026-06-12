@@ -1,3 +1,90 @@
+###  Публикация: 961699   (293523) от 05.12.2015
+
+Petra Janu - 12 Famous And Awarded Movie songs (1985) [MP3|192 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way We Were - Vladimir Popelka, Marvin Hamlisch, Tanecni orchestr Cs. rozhlasu [02:42]
+02. Raindrops Keep Fallin' On My Head - Burt Bacharach, Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:32]
+03. The Shadow Of Your Smile - Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:33]
+04. Moon River - Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:15](   Читать дальше...   )Жанр: PopПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E326ECCEEBD8702F41ABBD36C7DBEA76E6A8E1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262631   (293496) от 16.11.2018
+
+VA - NOW That’s What I Call Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293496.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+
+01. George Michael/Aretha Franklin - I Knew You Were Waiting (For Me)
+02. Bill Medley/Jennifer Warnes - (I've Had) The Time Of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B3EF4D797D1235216B60FC6902B8599153040A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262968   (291567) от 17.11.2018
+
+Bernie Paul - Lucky (1987) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky (3:44)
+02. Fox On The Run (4:29)
+03. Right To Live (3:35)
+04. In Dreams (3:47)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA2F3397760A5C127B6D96AFE17D049F007AF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185635   (291415) от 22.11.2017
 
 VA - The Hit Factory: Ultimate Collection (2017) 3CD [MP3|320 Kbps] <Pop>
@@ -655,93 +742,6 @@ Melanie Martinez - Cry Baby (2015) Deluxe Edition [OGG|473-549 кб/с]<Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492E98A4388C04949BCF55D4586DABDA49F5AF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335867   (284583) от 04.11.2019
-
-Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mascherata (3:14)
-02. Orfeo Negro (4:34)
-03. Les Feuilles Mortes (4:35)
-04. More (Theme From Mondo Cane) (4:45)(   Читать дальше...   )Жанр: Funk Soul, Disco, ChansonПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F968848C4EB0689F3BB302DF672ECD752FE6783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263981   (284499) от 21.11.2018
-
-VA - NOW That’s What I Call A Party 2019 (2018) [MP3|320 Kbps] <Electropop, Synthpop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Dua Lipa - One Kiss
-02. Sigala - Just Got Paid (feat. French Montana)
-03. Shakira Feat. Wyclef Jean - Hips Don't Lie
-04. Camila Cabello feat. Young Thug - Havana(   Читать дальше...   )Жанр: Electropop, Synthpop, EurodanceПродолжительность: 02:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382DC189E05DC09AB136642FD1E6C2D081D73DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081416   (284454) от 09.12.2016
-
-VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Castle in the Snow (Bentley Grey Remix)
-02. Röyksopp - Here She Comes Again (Dj Antonio Remix)
-03. Lost Frequencies - Reality (feat. Janieck Devy)
-04. Willy William - Ego (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4688AC9BECF58A151F032E961D357072029F8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1351032   (1002765) от 08.01.2020
+
+Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.G. Noise - Delphi (XiJaro & Pitch Remix)
+02. Talla 2XLC & Maria Nayler - Love Waits
+03. Driftmoon & Susana - Because of You
+04. Darren Porter - Whiplash (Alessandra Roncone Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEF5271D678FECA127816284D12739DFC133C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350985   (1002757) от 08.01.2020
+
+Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at The O2, London (2019-12-14) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intro: Rob Dougan – Clubbed to Death
+01. Fatboy Slim - Right Here Right Now
+02. Armand Van Helden feat. Duane Harden- You Don't Know Me
+03. The Bucketheads - The Bomb!(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA98F49946374176AA615CF94B46EE5CD332EE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488729   (1001191) от 14.08.2021
+
+VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - It Gets Better
+02. Steve Angello - Teasing Mr. Charlie w/Jay Robinson - Free Again (Axwell Cut)
+03. Buy Now - For Sale (Swedish House Mafia Remode)
+04. Steve Angello & Sebastian Ingrosso - 555(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973558   (975748) от 12.01.2016
 
 Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
@@ -658,93 +745,6 @@ Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0371A637151EC03CC87BB88739F3D01D724AE479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496891   (869931) от 19.09.2021
-
-Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiffer - Memento
-02. Charlotte de Witte - Ensemble
-03. Vinicius Honorio - Erasure
-04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469279   (867398) от 20.03.2016
-
-Martin Grey - Solitudes Episode 001 - 127 (2009-2016)[MP3|320 кб/с]<Chillout, Ambient>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1 - Martin Grey:
-01. Simon Le Grec feat. Denise Guttenbach - There Must Be A Reason (Original Mix)
-02. Tim Deluxe - Surya (Reprise)
-03. Owen Ear - Inside(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Dark Ambient, Easy Listening, Psy Chill, LoungeПродолжительность: 284:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C987E35F4811A823925DD4BA3B1CAD99796C139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497313   (864946) от 22.09.2021
-
-Trance Wax - Live @ Atlantis Ibiza, Spain (2021-09-16) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
-02. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix)
-03. ID - ID
-04. Above & Beyond - Far From In Love (Trance Wax Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851852A93D8E28F10EAC337053D9D711A31973E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

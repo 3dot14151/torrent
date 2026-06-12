@@ -1,3 +1,87 @@
+###  Публикация: 935060   (500199) от 07.09.2015
+
+Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500199.jpg" />
+</div>
+
+
+###  Подробнее
+
+The MDNA Tour — девятый концертный тур американской певицы Мадонны в поддержку её двенадцатого студийного альбома MDNA. Сразу после выпуска MDNA в интервью для Vogue Italia, Мадонна сказала, что хочет двигаться. Было решено создать самый масштабный тур в ее карьере, включающий в себя около 90 дат. Первоначально планировалось провести концерты в США, после чего отправится (   Читать дальше...   )01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Жанр: PopРежиссер: Дэнни ТуллПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFF70C07AD20465628A277753B341A0AD28090D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934954   (500193) от 07.09.2015
+
+Осенний марафон № 187 / Сборник видеоклипов (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем прерванную линию клипов. Раз уж наступила осень - пусть будет осенний сборник из зажигительных рок'н'рольных хитов.1. Against The Current - Talk (Official Video) (00:03:14)
+2. Animal ДжаZ - Дальше (Official Video) (00:04:50)
+3. Bill Ryder-Jones - Two To Birkenhead (Official Video) (00:04:23)
+4. Bring Me The Horizon - Throne (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Indie, Rock, Punk, AlternativeПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A24B680FCE62837142A3887003DE8AF9D4EA8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541603   (499513) от 02.09.2012
+
+Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D859BDAC18A73B9D349E7A5BFA14801DCFBCEFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542092   (499180) от 02.09.2012
 
 Полковник и Однополчане - Два Солнца (2011) DVD9
@@ -636,87 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:950ECE49EAA7ED6F56810A63A02FF4A8ADF2DDFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543823   (492997) от 06.09.2012
-
-Tarja Turunen - Act 1 (2012) DVD9+DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492997.jpg" />
-</div>
-
-
-###  Подробнее
-
-‘Act I‘ представляет собой концертный диск, запечатлевшим выступления экс-вокалистки NIGHTWISH в Аргентинском Teatro El Círculo, проходивших 30 и 31 марта соответственно. Обе концертных программы различны, за исключением 5 композиций, 3 из которых TARJA исполняла ранее в составе предыдущей группы («Nemo», «The Phantom Of The Opera» и «Over The Hills And Far Away»).Жанр: Symphonic MetalФормат: DVD videoПродолжительность: 03:13:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053139   (492240) от 20.09.2016
-
-Шекспириана (1988) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме «Шекспириана» труппа бродячих артистов показывает три трагедии Уильяма Шекспира: «Отелло», «Ромео и Джульетта» и «Гамлет» языком хореографии. «Павана Мавра» (1985) - жемчужина танца модерн, танцевальная композиция изумительной красоты и шекспировского накала страстей. Гениальная хореография Хосе Лимона предельно абстрактным языком танца завораживает, гипнотизирует, (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: Фильм-балет, драмаРежиссер: Феликс СлидовкерАктеры: Габриэлла Комлева, Светлана Смирнова, Никита Долгушин, Властилин Гарапес, Андрес Уильямс, Александр СеменчуковПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05102023132D6E0D1EA43156B0035A0349476F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936944   (492231) от 13.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

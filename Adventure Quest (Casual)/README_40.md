@@ -1,29 +1,3 @@
-###  Публикация: 1060838   (447748) от 10.10.2016
-
-Five Nights at Freddy's: Sister Location (2016) [En] (1.02) Repack Other s
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Five Nights at Freddy’s: Sister Location — это новая часть из популярной серии игр от разработчика Скотта Коутона. В этот раз мы попадем в пиццерию Circus Baby's Pizza World в роли ночного техника, которому предстоит пережить все ужасы этого места, которые ему обеспечат милые, на первый взгляд, аниматроники. Из аниматроников нас ждет модифицированный Freddy Fazbear, (   Читать дальше...   )Тип издания: RepackРазработчик: Scott CawthonЖанр: Adventure (Survival horror), IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5E57E59A45355D1DBF8BCB2A5FEBF18AE605BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409328   (447130) от 16.09.2020
 
 Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 12: Сердца планеты (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -670,6 +644,32 @@ Dark Romance 11: The Ethereal Gardens (2019) [En] (1.0) Unofficial [Collector's 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0298F3C012A37DDF8A62AA0A54CBA5A21C8326F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410624   (433614) от 22.09.2020
+
+Mystery Trackers 18: Fatal Lesson / Охотники за тайнами 18: Роковой урок (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваши учебные годы остались в далеком прошлом, и теперь уже вы сами обучаете кадетов в тренировочном лагере Охотников за тайнами. Вы предвкушаете встречу со старым другом в новом сезоне... однако все пошло не так, как хотелось бы. Таинственный монстр похитил одного из кадетов. Подобное уже произошло 15 лет назад. Что это? Совпадение или чья-то зловещая игра?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82BF8A2BBECA3EAE88605878E62EAAD4AA1352D
 ```
 
 https://mybot314.ru/tekegram_catalog/

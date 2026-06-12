@@ -1,3 +1,102 @@
+###  Публикация: 564122   (402794) от 23.10.2012
+
+Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Elena [03:49]
+02. Maria-La-O [03:27]
+03. La Mer [05:10]
+04. Concierto De Aranjuez [04:33]
+05. One Note Samba [03:54]
+06. Amapola [04:00]
+07. Besame Mucho [04:23]
+08. The Girl From Ipanema [04:25]
+09. It's Now Or Never [03:45]
+10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564144   (402789) от 23.10.2012
+
+Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Quiero Dijiste [02:22]
+02. Angelitos Negros [03:34]
+03. Maria Elena [03:08]
+04. Beguin The Beguine [03:42]
+05. Cuando Sali De Cuba [02:53]
+06. Cielito Lindo [02:38]
+07. Amapola [02:28]
+08. La Flor De La Canela [03:37]
+09. Guadalajara [02:33]
+10. My Way [03:06](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257239   (345182) от 26.10.2018
+
+Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasm 05:53
+02. Oyarsa (ft. Timbre) 06:52
+03. Aurora 02:49
+04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074258   (335562) от 20.11.2016
 
 Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
@@ -698,105 +797,6 @@ https://mybot314.ru/tekegram_catalog/
 02. Саратовские частушки (2:41)
 03. Коробейники (2:44)
 04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618727   (249908) от 12.03.2023
-
-Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop the Clock (3:10)
-02. Norfolk Blues (3:34)
-03. Wasted Youth (3:23)
-04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494113   (249210) от 09.05.2012
-
-Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, Neoclassical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hall Lagan Klar! (05:54)
-02. Den Bergtagna (06:15)
-03. Tichborne's Elegy (05:05)
-04. The Dying Christian to his Soul (04:26)
-05. Der Mensch ist bald vergessen (04:25)
-06. I am the Pillar (05:19)
-07. Min Sangmo (04:38)
-08. Epitaph on a Army of Mercenaries (05:11)
-09. God appears, and God is Light (04:56)
-10. Epigram CLXIII (05:16)(   Читать дальше...   )2005-2010Жанр: Neofolk, Martial Industrial, NeoclassicalПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491700   (246615) от 04.05.2012
-
-David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Day Today (04:38)
-02. I Know (04:04)
-03. Good Day Today (Radio Edit) (04:17)
-04. Good Day Today (Underworld Classic Remix) (08:39)
-05. Good Day Today (Boys Noize Remix) (06:16)
-06. Good Day Today (diskJokke Remix) (08:39)
-07. I Know (Sasha Remix) (08:56)
-08. I Know (Skream's Not So Ravey Remix) (05:05)
-09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
-10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1764624   (101510) от 08.12.2024
+
+Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Album Intro (5:14)
+02. Pulling Me Back (3:46)
+03. Let It Out (4:09)
+04. How to Be a Boss (5:07)(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764705   (101506) от 08.12.2024
 
 Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
@@ -723,35 +752,6 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8237F9567556C6B30C1942A1A4A237A5068F2E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751215   (42607) от 23.09.2024
-
-VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nokiaa, Molly McPhaul – Loaf (2:26)
-02. Ezzy – As Long as it's in the Right Direction (1:49)
-03. Psalm Trees, less.people – Verao (3:52)
-04. Leavv – Over the Hills (2:24)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

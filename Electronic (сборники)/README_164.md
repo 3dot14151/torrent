@@ -1,3 +1,32 @@
+###  Публикация: 1072766   (349992) от 14.11.2016
+
+VA - Urban Loudness Friends Styles (2016) [MP3|320 Kbps] <Dancehall, Dance, Electro, Halloween>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Little Mix - Shout Out To My Ex (Clean) 04:06
+002. Michael Jackson - Thriller (Discotech Remix) (Clean) (Short Edit) 02:19
+003. Nine Inch Nails - Reptile (Remix) (Clean) 05:53
+004. Nine Inch Nails - Reptile (Intro Dirty) 06:22(   Читать дальше...   )Жанр: Dancehall, Dance, Electro, HalloweenПродолжительность: 10:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF489914D887D4C8DC130E5F14CA6B758D63DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072550   (349981) от 14.11.2016
 
 VA - Deep House Collection Vol.96 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -740,41 +769,6 @@ VA - New Blood Of Dubstep Vol. 3 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1581C147C13858EFFA06A3DD346D79BA722159F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579848   (346262) от 24.11.2012
-
-VA - A State Of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Oakenfold - Full Moon Party (Thomas Datt Remix)
-002. Within Temptation - Sinead (Alex M.O.R.P.H. Extended Vocal Mix)
-003. Serge Devant feat. Emma Hewitt - Take Me With You
-004. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-005. Progressiver - Searching For The Truth (Original Mix)
-006. Rafael Frost - Channel 4 (Original Mix)
-007. Snatt & Vix - At The End Of The Day (Original Mix)
-008. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
-009. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
-010. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8593B3BA61A70051F544EBD5EA2C51E6226594F
 ```
 
 https://mybot314.ru/tekegram_catalog/

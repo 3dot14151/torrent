@@ -1,3 +1,90 @@
+###  Публикация: 920510   (578782) от 23.07.2015
+
+VA - Songs Sunny Italy (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riccardo Folgi - Storie Di Tutti i Giorni 03:53
+02. Toto Cutugno - Autre chanson 03:36
+03. Adriano Celentano - Il Ragazzo della via Gluck 04:15
+04. Claudia Mori & Adriano Celentano - Non Succedera Piu 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6BCF7152937B4AE7CC050869C0287972C44006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920741   (578770) от 23.07.2015
+
+VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году уже были на трекере два диска NRJ (см. ссылку внизу раздачи). Теперь к лету подоспело ещё два свежих. Один из них представляю Вашему вниманию.CD1:
+01. Major Lazer Feat. MO DJ Snake - Lean On  (2:57)
+02. Kygo Feat. Conrad - Firestone  (3:24)
+03. Black M - Foutue Melodie  (3:45)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC93371FF8CE22AF4D47DA381A10AD8BD2321444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666180   (578742) от 23.07.2015
+
+Tamar Kaprelian - 3 альбома и 1 сингл (2009-2015) Дискография [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Until You Run [03:07]
+02. Yours To Keep [03:19]
+03. Summer, Highland Falls [03:02]
+04. Wanna Go There With You [03:23](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7E03142F7C8416F91DA54B2CF0EEA69EF99D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811784   (578453) от 10.08.2014
 
 Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
@@ -691,95 +778,6 @@ Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554239   (575756) от 31.05.2022
-
-Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|Lossless|tracks] <Pop, Rock, Synth-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1956 Cannes Film Festival [00:01:55]
-02. "I Am Ingmar Bergman [00:03:09]
-03. Limo Driver (Welcome to Hollywood) [00:03:08]
-04. "Here He Is Now" [00:01:18](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921414   (575382) от 25.07.2015
-
-Alcazar - Disco Defenders (2015) [MP3|320 кб/с]<Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Guns (Go For It)
-02. Feel 4 YouЖанр: Europop, DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A684172F704631D3251B013A66BACFB6E28E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812314   (574962) от 12.08.2014
-
-Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esatto ! 3:44
-02. C'e' Da Spostare Una Macchina 3:45
-03. Il Lupo 4:33
-04. Universal Love (Speaker's Corner) 4:31
-05. Taxi 4:20
-06. Son Contento 4:26
-07. Maionese 4:09
-08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

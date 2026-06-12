@@ -1,3 +1,29 @@
+###  Публикация: 1045403   (559113) от 23.08.2016
+
+Шаблоны - Freak Show - Flyer Template + Facebook Cover [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 851х315 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1A65A406435BC8D5E42AB267D14BF3D0186CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045389   (559111) от 23.08.2016
 
 Шаблоны - Fassion Passion V5 PSD Flyer Template + Facebook Cover [PSD]
@@ -652,35 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9A21155D6C468A8534527B35FDB3623F54F755E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695320   (544464) от 31.08.2013
-
-Шаблоны - 3D Текст-эффекты / 3D Text-Effects [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544464.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Текст-эффекты для Adobe Photoshop
-
-При затруднениях в использовании, смотрим папочку "Tutorials & Instructions"
-(   Читать дальше...   )Формат: PSDРазрешение файлов: 2000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```
 
 https://mybot314.ru/tekegram_catalog/

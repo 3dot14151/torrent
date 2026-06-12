@@ -1,3 +1,119 @@
+###  Публикация: 920201   (577346) от 24.07.2015
+
+VA - Шансон на лето Часть 6 (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Гвоздика - Я Живу Или Существую
+002. Эдуард Тюсов - Хмурые Года
+003. Ира Ежова - Без Меня
+004. Сборная Союза - Подвенечная(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE8836E7B963660D622456BB962CF0E95645A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361450   (577312) от 10.07.2011
+
+VA - 100ня взрывных хитов Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268B64DEF391925B294A5217222BCE5C3B759627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920843   (577225) от 24.07.2015
+
+VA - Славянский Меч - Пятый Удар! Часть 1 - 3 (2015) [MP3|190 - 320 кб/с]<Folk Metal, Rock, Acoustic, Pagan, Black>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аркона - Восстание Рода (2005) (RUS) (05:27)
+02. Калевала - Улетай На Крыльях Ветра (2010) (RUS) (04:25)
+03. Грай - Песнь о Земле Родной (2011) (RUS) (05:13)
+04. Дорога Водана - Страшная Сказка (2006) (RUS) (03:07)(   Читать дальше...   )Жанр: Folk Metal, Rock, Acoustic, Pagan, BlackПродолжительность: 06:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A394491F0AFB61A0DECFED7CA1431D633DF55C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361219   (577203) от 10.07.2011
+
+VA - Жаркое лето новинок (2011) [MP3|256 kbps]<Pop, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577203.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Исполнитель: VA
+Альбом: Жаркое лето новинок
+Год выхода: 2011
+Жанр: Pop, ClubПродолжительность: 06:46:04Кодек: MP3
+Битрейт: 192-320 Кбит/c
+Тип битрейта: VBR  24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0834FB05BEF6AF9074364E169835AD2A77978371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921174   (577168) от 24.07.2015
 
 VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
@@ -632,122 +748,6 @@ VA - Empire Records - Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6A75BCCD1FD670B70AABB3F4CA9943790C3014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151179   (576039) от 17.07.2017
-
-VA - Green Area: Beauty Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Marga Sol - Amoralea (Original Mix)  5:58
-002.  Chambre 19 - La Pluie D'ete (Original Mix)  5:59
-003.  Paulsen & Stryczek - Havana Postcard (Original Mix)  3:04
-004.  Martin Schmid - It Is So Close (Club Mix)  8:26(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AA68FB31E1C33DA6335B60137774E9AAD9C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151115   (576031) от 17.07.2017
-
-VA - Cosmotronica & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Sуthwаve, Deep Hоuse, Dаrksуnth, Retrоwаve>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Martello - Look At Me (feat. Backster) (Original Mix)  5:04
-02.  Platinum Monkey - Heavenly Garden (Original Mix)  5:56
-03.  Noir Deco - Prey At The Disco  4:01
-04.  Thomas Hayden, Mr. Saccardo (Ft. Elly Ray) - Burn (Victor Iks  Remix)  5:25(   Читать дальше...   )Жанр: Sуthwаve, Deep Hоuse, Dаrksуnth, RetrоwаveПродолжительность: 06:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2557E250DD2D701517CA827810D4B540736FBE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151093   (576023) от 17.07.2017
-
-VA - Beatport Top 100 Trance June (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren, Josh Cumbee - Sunny Days feat. Josh Cumbee (Extended Club Mix) 06:31
-002. Thomas Datt - The Love Frequency (Extended Mix) 09:13
-003. Gareth Emery ft. Christina Novelli - Concrete Angel (ReOrder Extended Remix) 05:59
-004. Chris Schweizer - Atom (Extended Mix) 05:55(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D1000FAF656CCA68EDB7D447F8C480F2A43985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233179   (576019) от 02.07.2018
-
-Andru Donalds - the voice of the Enigma - Snowin’ Under My Skin (1999) [MP3|320 Kbps] <Disco, Hip-Hop, Энигматик>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — Simple Obsession
-02 — Waiting For The Hurricane
-03 — All Out Of Love
-04 — Just For One Day(   Читать дальше...   )Жанр: Disco, Hip-Hop, ЭнигматикПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42583C73DC62AE956B148AC99ED3CFEF375CE005
 ```
 
 https://mybot314.ru/tekegram_catalog/

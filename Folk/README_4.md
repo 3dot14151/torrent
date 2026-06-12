@@ -1,3 +1,64 @@
+###  Публикация: 365218   (559889) от 19.07.2011
+
+Hossam Ramzy - Zeina (1996) [MP3|320 kbps]<egypt ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559889.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:53] 01.  Zeina (Delightfully Pleasant Lady)
+[07:33] 02.  Set Elhabayib ya Habiba (Lady of all the Beloved)
+[10:51] 03.  Khai Khai (Brother oh Brother)
+[06:55] 04.  Olli Amallak Eih Albi (Tell me, what did my heart ever do to you?)
+[07:17] 05.  Mawkib Ennoour (The Procession of Enlightment)
+[04:57] 06.  Aziza
+[05:35] 07.  Layali Ramadan (Ramadan Evenings)Жанр: egypt ethnic musicПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F1817BE6F994E598987AFC3DD38D99A5FBC425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304124   (559644) от 28.05.2019
+
+VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559644.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Travis Tritt – Start the Car (04:29)
+2. Cowboy Troy – Hook ‘Em Horns (Single Version) (02:49)
+3. Tamra Rosanes – On the Road Again (03:12)
+4. Michael Ray – Drivin’ All Night (03:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045262   (558036) от 24.08.2016
 
 Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
@@ -408,6 +469,160 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369633   (526804) от 30.07.2011
+
+Munir Bashir - Discorgaphy (12 albums, 1987-2007) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987-2007Жанр: arabian traditional music, flamenco, oudПродолжительность: 12:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E914E4EFF1A85B63A80239C323680BBCA3BF7B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369569   (526326) от 31.07.2011
+
+VA Gnawa - Mali - Ceremonies rituelles des Dogon (1994) [MP3|320 kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526326.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:09] 01. Gomboy - Tambours de lutte
+[06:07] 02. Sendi ni - Chant de circoncision
+[13:29] 03. Na ba - Chants de mariage
+[10:17] 04. Badiu ni - Chants de funerailles des musiciens
+[12:46] 05. Ya go - Chants de finerailles des musiciens
+[09:22] 06. Bulu - Fete des samailles
+[10:44] 07. Pelu nu - Chants satyriques des jeunes filles1994Жанр: gnawa, african musicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0F2B102B52434F64A0FB901DB6E06D6488407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369564   (526324) от 31.07.2011
+
+VA Gnawa - Night Spirit Masters (1990) [MP3|128 kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526324.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01.  Baba L'Rouami
+[05:14] 02.  Mimoun Mamrba
+[02:59] 03.  Tramin
+[06:28] 04.  Chabako
+[04:13] 05.  Moulay Brahim
+[04:09] 06.  Toura Toura Tour Kelilah
+[06:01] 07.  Baniya
+[04:50] 08.  Jillala
+[02:15] 09.  Said Fafy Drum Solo
+[03:14] 10.  Toura Toura Tour Kelilah(   Читать дальше...   )1990Жанр: gnawa, african musicПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2580F2E7236B990CA8B4CECD88C07338777E0724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369576   (526315) от 31.07.2011
+
+VA Gnawa - Gbaya Music - Songs For Reflection (1995) [MP3|~241kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526315.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:16] 01.  Garafi
+[03:25] 02.  Naa-zambara
+[04:27] 03.  Naa-koro
+[03:51] 04.  Dai-te
+[04:02] 05.  Yaa-kuri
+[04:36] 06.  Ndio
+[11:40] 07.  Mbodomon (1)
+[01:49] 08.  Mbodomon (2)
+[03:28] 09.  Kenge
+[03:17] 10.  Gima-biro(   Читать дальше...   )1994Жанр: gnawa, african musicПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11DD4962AEBA3C9C1D7946C5824A805778870C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369822   (526234) от 31.07.2011
+
+Omar Bashir - Discorgaphy (10 albums, 1997-2006) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1997-2006Жанр: arabian traditional music, flamenco, oudПродолжительность: 08:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24CC67C53C9351B17CB8C0E5904D2FA30DF65AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157258   (525820) от 10.08.2017
 
 Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
@@ -546,227 +761,6 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537163   (510491) от 22.08.2012
-
-Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste (05:26)
-02. Brhama-Vishnu-Shiva (05:29)
-03. Dance Of The Elephant God (04:54)
-04. Lotus Lovers (04:57)
-05. Transcendental Consciousness (05:13)
-06. Valley Of Flowers (05:58)
-07. Silsila (06:38)
-08. Om Shanti (04:10)
-09. Transcendental Consciousness (Walter A. Remix) (03:44)
-10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932471   (508231) от 30.08.2015
-
-Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, Celtic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Untied Knot | The Fall | Mile Marbhaisg Air A' Ghaol
-02. The Scorpian | The Devil's Breath Hornpipe
-03. Samhla Reel | Scolpaig
-04. Somebody's Welcome To Somewhere(   Читать дальше...   )Жанр: World, Folk Rock, Celtic FusionПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933750   (505363) от 02.09.2015
-
-Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eternal Return
-02. The Cave Of Swimmers
-03. Burana
-04. Salamender(   Читать дальше...   )Жанр: Ethnic, Neo-FolkПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538340   (503601) от 29.08.2012
-
-Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - If I Fell                                                          [02:27]
- 02. - Winding Road                                               [03:45]
- 03. - When I'm 64                                                 [02:38]
- 04. - Yesterday                                                      [02:02]
- 05. - And I Love Her                                              [02:36]
- 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
- 07. - Here, There And Everywhere                         [02:33]
- 08. - The Fool On The Hill                                       [02:53]
- 09. - Michelle                                                          [03:04]
- 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543054   (496086) от 05.09.2012
-
-WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Twist Again (3:04)
-02. Peppermint Twist (3:20)
-03. Blackbird (2:18)
-04. Jailhouse Rock (2:32)
-05. For You (3:17)
-06. Hello, Mary Lou (3:29)
-07. Heart of the Country (2:39)
-08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
-09. Baby Boy (3:12)
-10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937730   (487329) от 15.09.2015
-
-Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
-02. Сумецкая
-03. Дворник
-04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055717   (485992) от 23.09.2016
-
-Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Time In Years   (03:52)
-02. Six Pack of Beer and a Pack of Cigarettes   (03:59)
-03. Boomtown   (04:55)
-04. Nobody's Girl But Mine   (05:19)(   Читать дальше...   )Жанр: Country Blues, AmericanaПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F9715A8F06D3C78B61F5858C718C86C0DA583F
 ```
 
 https://mybot314.ru/tekegram_catalog/

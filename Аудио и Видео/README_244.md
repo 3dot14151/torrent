@@ -1,116 +1,3 @@
-###  Публикация: 1424795   (226095) от 18.11.2020
-
-VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Monkeys (Original Mix) (4:51)
-02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
-03. Elton Dumont - All Night Long (Original Mix) (3:16)
-04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513193   (226077) от 28.11.2021
-
-VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Micronaut - WidelensЖанр: Deep House, Tech HouseПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DDA004593F5C87306ED830FD7B70D9C16B8F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513203   (226069) от 28.11.2021
-
-VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.R.A.L.I - Star (6:53)
-02. Goda Brother - Return (6:54)
-03. MAAND - Lanus (8:16)
-04. Gonzalo Sacc, Franco Leonardini - Living for Today (8:28)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BACBC42F388AA1B10EF63354AC2133CD72DA3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424806   (226068) от 18.11.2020
-
-Dabro - Юность (2020) [AAC|~301 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая луна (2:48)
-02. Она не такая (3:29)
-03. Все за одного (3:25)
-04. Почему так происходит (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7746A0F5357E8A3599B19D4254D616F570526642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424775   (226060) от 18.11.2020
 
 Fourplay - Best of Fourplay (2020 Remastered) (2020) [AAC|~360 Kbps] <Jazz>
@@ -727,6 +614,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF434A226B5EE77F21AC34B5C5EE8080A80AC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342274   (225184) от 01.12.2019
+
+Следи за дорогой / Adopt a Highway (2019) WEB-DL [1080p] (MVO) ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассел вышел на свободу, отсидев 20 лет в тюрьме. Он пытается приспособиться к жизни, работая в закусочной и проживая в маленькой убогой квартире. Однажды ночью в мусорном баке он находит младенца и решает заботиться о нем.Производство: США / Divide/Conquer, Blumhouse Productions, Under the InfluenceЖанр: ДрамаРежиссер: Логан Маршалл-ГринАктеры: Итэн Хоук, Крис Салливан, Кристофер Хейердал, Илэйн Хендрикс, Энн-Мари Джонсон, Бетти Гэбриел, Мо, Нат Муни, Дон Норвуд, Милона Джексон, Крис Уильямс, Дайан Маршалл-Грин, Джереми Харрис, Хорхе Диас, Лони ЛавПеревод: Любительский двухголосый (Voice Project Studio)
+Присутствует ненормативная лексика!Субтитры: Русские (FOCS), английскиеПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0DC1D42FCC29F0F9DDC2E85D6EE94F5568E2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342156   (225060) от 01.12.2019
+
+Иные / Freaks (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уединенном домике одного из районов Лос-Анджелеса живут маленькая девочка и ее заботливый отец. Вполне нормальная семья, если не считать, что девочка одним взглядом может поднять в воздух тяжеленный шкаф, а у отца всегда наготове снятый с предохранителя пистолет. Каждый день, уходя из дома, папа запирает дочь, и категорически запрещает открывать дверь. Ей нельзя (   Читать дальше...   )Производство: Канада, США, Amazing, Bloomgarden Films, My Way EntertainmentЖанр: Фантастика, триллер, драма, детективРежиссер: Зак Липовски, Адам Б. СтейнАктеры: Эмиль Хирш, Брюс Дерн, Грейс Пак, Аманда Крю, Лекси Колкер, Ава Телек, Мишель Харрисон, Мэтти Финочио, Алекс Паунович, АрДжей ФезерстонхоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B38C03520CE539FF5609EDA0115EAC97BC5013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268859   (225001) от 12.12.2018
+
+Джимини Глик в Ля-ля-вуде / Jiminy Glick in Lalawood (2004) WEB-DL [1080p] ATV [DVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимини начал свою карьеру как обозреватель развлекательных мероприятий на телевизионной станции в Бьютте, штат Монтана. Когда он впервые приезжает с женой и детьми на кинофестиваль в Торонто, то полон решимости найти свою славу. Но никто не хочет уделять ему внимание, поскольку никто его не знает. Но все меняется, когда он начинает выдавать себя за звезду жанра (   Читать дальше...   )Производство: Канада, США / Brillstein-Grey Entertainment, Dolshor Productions, Gold Circle Films, La La Wood ProductionsЖанр: Комедия, ДетективРежиссер: Вадим ЖанАктеры: Мартин Шорт, Джен Хукс, Линда Карделлини, Джанин Гарофало, Джон Майкл Хиггинс, Элизабет Перкинс, Ларри Джо Кэмпбелл, Мо Коллинз, ДеРэй Дэвис, Карлос ДжекоттПеревод: Профессиональный двухголосыйСубтитры: Английские (Full, SDH)Продолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A440B7A95F6429318A4BE0213E2F3EF9C50A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425075   (224522) от 19.11.2020
+
+VA - Urban Orange Music 1: Downtempo Experience (2020) [AAC|~311 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eivissarts - Minor Mind (Original Mix) (5:28)
+02. Marga Sol - On the Porch (Original Mix) (5:05)
+03. Roberto Bronco - Come Together (Original Mix) (4:47)
+04. Chillson, Marc Hartman - Like the River Flows (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D402BA50F46011484EA4CB55C342DF2DAD688D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_208732.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_208730.jpg" />
 </div>
 
 

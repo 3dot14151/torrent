@@ -1,3 +1,32 @@
+###  Публикация: 953306   (348993) от 04.11.2015
+
+VA - Google Play хит-парад (October 2015) (2015) [MP3|320 кб/с]<Pop, Rock, Electronic, Dance,  Rap, Hip-hop, Alternative, Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Феликс Яен - Ain't Nobody (Loves Me Better)
+02. Lost Frequencies - Are You With Me (Radio Edit)
+03. Sia - Chandelier
+04. OneRepublic - Counting Stars(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Dance,  Rap, Hip-hop, Alternative, MetalПродолжительность: 05:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F59D81608D8E6A834BBE88CAD40E66EB53CFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953581   (348991) от 04.11.2015
 
 VA - Цунами любви (Попсовая 100-ка хитов) (2015) [MP3|192-256 кб/с]<Pop>
@@ -737,35 +766,6 @@ VA - Twelve Nights: Smooth Jazz Collection (2018) [MP3|320 Kbps] <Smooth Jazz, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4418416CDACDD64274E4BE9F47A30EAC24CC524E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257130   (347371) от 25.10.2018
-
-VA - When Night Meets House (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aqua Sin Gas - Follow Me
-002. Felon Ft. Notelle - Ive Been Hoping
-003. Mor Avrahami - Kumei (Original Club Mix)
-004. Nicola Fasano - Finally(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA53CDA022A898DA5D9AA3DCC587B9A1AE819F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

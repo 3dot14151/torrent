@@ -1,3 +1,148 @@
+###  Публикация: 1865337   (1065280) от 15.04.2026
+
+Abi Z - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop, Dance, RnB, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shake it Up
+02 - Oops, Did I Do That
+03 - Boom Boom
+04 - No Trust(   Читать дальше...   )Жанр: Pop, Dance, RnB, OtherПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA091C0B05EDB57BA638C0F1A568EA9AD0122C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864712   (1065118) от 
+
+VA - No Name Compilation Simply listen music Part 87 Other (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dakota Lane - Midnight Heartbeat
+02 - Сергей Грищук - Летняя  Колыбель
+03 - Sergey Chekalin - Frost and Sun
+04 - Smtve - Nothing Left Inside(   Читать дальше...   )Жанр: OtherПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB3765A8374CC2BB591E5A36CD42FFFEDEC02E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864966   (1064951) от 12.04.2026
+
+VA - No Name Compilation Simply listen music Part 88 Other (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lovrite - Love Me Slow
+02 - Nezon - Notte Lenta
+03 - Dj Calma - Hold Me Closer 2
+04 - Lovrite - Fake Love(   Читать дальше...   )Жанр: OtherПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B02544A6511B725EBF0C09A33C2D1B6BF38E13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865060   (1064891) от 13.04.2026
+
+VA - Music News For Forum vol.166 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Lopez - Pleasure Is Mine (04:19)
+ 002. Almarie & Мария Альварес - DNK (02:59)
+ 003. ASAVVI & MARO & SAVI - Не поняла (01:55)
+ 004. Склад СК - На ноль (02:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF906F8FD6D79E458E0D0E28503E8E4FE0D6098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864379   (1064698) от 
+
+Ai - No Name Compilation Simply listen music Part 86 Other (2026) [MP3|320 Kbps] <Other, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Девочка Которая Поет - Я Верю В Судьбу
+02 - В. Высоцкий - Баллада О Любви (Cover)
+03 - Девочка Которая Поет - У Моря Ночью  (Летнее Танго)
+04 - В. Высоцкий - Беда ( Я Несу Свою Беду) (Cover)(   Читать дальше...   )Жанр: Other, CoversПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F4556D84CE1A46B9FF60C574D5976A3E2B9C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862110   (1064214) от 29.03.2026
 
 Abi Z - Favorites Collection (2026) [MP3|320 Kbps] <Pop, Dance, RnB, Other>
@@ -600,151 +745,6 @@ ONE1 - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17393014E6560837B405A5F92B3C11C53FF0A6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859461   (1061157) от 16.03.2026
-
-VA - No name compilation part 74 Other (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dndm - My Heart Wants You
-02 - Adex - Last Seen
-03 - Dj Calma - Office Romance
-04 - A-Sultan - Neon Heart(   Читать дальше...   )Жанр: OtherПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C8648567A36FFA47943925EF8CDA3F18A54A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859454   (1061156) от 16.03.2026
-
-VA - No name compilation part 73 Other (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Lava - You Are My Angel
-02 - Dj Polkovnik - Beyond the Horizon
-03 - Aurora Night - My Horizon
-04 - Danekoo1 - Hold Me(   Читать дальше...   )Жанр: OtherПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7F87D47546103C95A4C5D5663839EAB13FEC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859453   (1061155) от 16.03.2026
-
-VA - No Name Compilation Part 72 Remixes (2026) [MP3|320 Kbps] <Other, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abba - The Winner Takes it All (Instrumental Cover Danekoo1)
-02 - Era - Ameno ( Music for Soul Cover)
-03 - Alizee - Moi Lolita (Reyvi Cover)
-04 - Pet Shop Boys - Heart (Voyage Cover)(   Читать дальше...   )Жанр: Other, RemixesПродолжительность: 00:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17FA97BD2E6FFA5D7AA0B7AB1DFFCD0555BDB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859450   (1061154) от 16.03.2026
-
-VA - No name compilation part 71 Other (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сергей Грищук - Дыхание  Леса
-02 - Dynave - Be Happy, My Love
-03 - Smtve - Echo of Heartbeat
-04 - Dynave - I Will Never Love Again(   Читать дальше...   )Жанр: OtherПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978A3BE24DEA76FE957DB819622A26173FA45FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859448   (1061153) от 16.03.2026
-
-Music for Soul - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Love This
-02 - Italo Song
-03 - Suspended Moments
-04 - Beauty Girl(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, OtherПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079D8ADBC8A6E76223F5E6476D184AD7837C36A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

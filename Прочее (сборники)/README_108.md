@@ -1,3 +1,153 @@
+###  Публикация: 1565041   (496578) от 22.07.2022
+
+VA - Euro-Shturm From Ovvod7 & tiv44 (001-055 CD) (2020-2022) [MP3|320 Kbps] <Eurodance, Euro House, Eurobeat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496578.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Euro-Shturm From Ovvod7 & tiv44 - CD - 0001
+
+01. Shanana - Wigwam ( Radio Edit )
+02. Ororo - Ode To My Family ( Happy Time Mix )(   Читать дальше...   )Жанр: Eurodance, Euro House, EurobeatПродолжительность: 71:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F755A043DBA00FE3EE7FBB2BB29654936DD4B45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565014   (496571) от 22.07.2022
+
+VA - ВИА - Вся Наша Жизнь от Ovvod7 (001-055 CD) (2021-2022) [MP3|192-320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496571.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - ВИА - Вся Наша Жизнь от Ovvod7 - 001
+
+01. ВИА «Честь Имею» - Улыбнись Весне
+02. ВИА «Курьер» - Дорога(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 65:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C638D703B1E063AB976D5401BA305BFAEE7B29F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562472   (496566) от 22.07.2022
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.29 (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mr.Da-Nos - Ohlala
+002. Little Mix - Is Your Love Enough
+003. Jason Derulo feat. French Montana - Tip Toe
+004. Элджей - Минимал(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D3956A6FFC412E8A88438433CC451F008293C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543649   (496436) от 05.09.2012
+
+VA - Русский Avto Club Сентябрь (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пашуля - Ты и я (Fidel Wicked Radio DFM)
+02. Nikita - 20-12 (DJ Sergey Fisun Remix)
+03. Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
+04. Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
+05. Quest pistols - Ты так красива (DJ Vengerov Remix)
+06. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix)
+07. Вика Гранд - Я Не Боюсь (Movskii & Karasev Remix)
+08. Тамерлан и Алена Омаргалиева - Hey Yo (DJ Amor Remix)
+09. Герои - Мое маленькое глупое сердце (Orehov Lite Remix)
+10. Настя Любимова - Что такое любовь (DJ Solovey Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37055D8463BC0280ABEE1C6E238E6BDF0420160C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817975   (496359) от 10.09.2014
+
+VA - Billboard Hot 100 (06-09-2014) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496359.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 на неделю раньше, поэтому не удивляйтесь, что сегодня у них на календаре 6 сентября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
+С 2003 года в параде учитывается не только популярность синглов, но и ротация (   Читать дальше...   )01. Taylor Swift - Shake It Off  (3:39)
+02. Nicki Minaj - AnacondaЖанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BAD3A50D9FA26D5BC1E18B5631136245831532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543415   (496323) от 05.09.2012
 
 VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 кб/с]<Club>
@@ -648,166 +798,6 @@ VA - My Favourite Hits of 1979 (15CD) (2015) [MP3|320 кб/с]<Pop, Synth-Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13591F564A533CFA178A0B53379FE0E40D17DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544078   (491589) от 07.09.2012
-
-VA - Самый самый клубный сборник Vol 1-2 (2012) [MP3|192-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1
-01. Ёлка - Цепи-Ленты (DJ Noiz & DJ Maxtal Radio Remix)
- 02. Мохито - Быть рядом (Mexx Beat Radio Remix)
- 03. Братья Грим - Аллилуйя (Aksioma Project Remix)
- 04. G-Nise и Алексей Кабанов - Я Погибаю Без Тебя (Radio Edit)
- 05. Братья Грим - Парашюты (Andry Makarov remix)
- 06. Gaudi feat. Катя Баженова - Я Не Знаю (DJ Noiz Remix)
- 07. Андрей Леницкий - Достала любовь (Mexx Beat Remix)
- 08. CENTR - Дорог Город (DJ Vengerov Radio Edit Remix)
- 09. DJ Fisun ft. MC Скайвокер - Хорошие песни (fresh rmx)(   Читать дальше...   )Жанр: ClubПродолжительность: 08:05:37
-01 Quest pistols - Ты так красива (DJ Vengerov Remix)
- 02 Igor Garnier & Kizami feat. Minja - Welcome To Belgrade
- 03 Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
- 04 Gracias - 40k Volts (Lenno Remix)
- 05 Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
- 06 Gabry Ponte feat. Pitbull, Sophia Del Carmen - Beat On My Drum (Tacabro Remix)
- 07 Nikita - 20-12 (DJ Sergey Fisun Remix)
- 08 Dean - Radmina (Andeeno Damassy Remix)
- 09 Пашуля - Ты и я (Fidel Wicked Radio DFM)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362167EDE073A76E2A28F96FECBBE8722F072A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158555   (491262) от 16.08.2017
-
-VA - Дискотека VerClub (2017) [MP3|320 Kbps] <Mash Up, Remixed, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Руки Вверх - Капают слезы (DJ Shulis aka Sergey Remix) (DJ Mikola Cover)  4:49
-002.  Натали - Давай Со Мной За Звёздами (DJ X Project Remix 2015)  3:16
-003.  Иван Дорн - Ты Всегда В Плюсе (DJ Bars Club Mix 2015)  5:37
-004.  Moyyo - Пить и Танцевать (DJ Solovey Remix)  3:46(   Читать дальше...   )Жанр: Mash Up, Remixed, DanceПродолжительность: 08:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA26FAFC95327F90F7FBADC5627319E52743A56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158507   (491261) от 16.08.2017
-
-VA - Зайцев.Нет: Лучшие Новинки Августа (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila with Philippe El Sisi & Omar Sherif feat. Karim Youssef - The Chronicles (Extended Mix)  8:34
-02.  P!nk - What About Us  4:32
-03.  Dan Balan feat. Вера Брежнева - Наше лето  3:47
-04.  Альбина - Не со мной  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36664B18AF38FAD808AC41B1F78A5BC88FBE7C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565573   (490335) от 25.07.2022
-
-VA - В машине с музыкой Vol.290 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Door  - Смотри В Глаза (03:16) 2022
-02. Madison Beer  - I Have Never Felt More Alive (03:21) 2022
-03. Группа Журавли  - Баю Бай (03:21) 2022
-04. Лисицын  - Карамельный Мир (02:29) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA21B241FD394E46F7F1AFC5C2B3320151A72246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565831   (490329) от 25.07.2022
-
-VA - Music News vol.205 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490329.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bakhtin - Королева (02:17)
- 002. Amirchik - Эта Любовь (02:23)
- 003. Ampris feat. Nik Taylor & Lulux - Backstreet Boy (02:13)
- 004. Anais - 44 (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E55F87734E71479EAF127018431DEE22D946F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

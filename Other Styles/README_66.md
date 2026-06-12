@@ -1,3 +1,118 @@
+###  Публикация: 1026039   (706136) от 14.06.2016
+
+Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Island [00:10:29]
+02. Sparkling Light [00:20:26]
+03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025857   (705873) от 14.06.2016
+
+Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La femme dargent 07:06
+02. Cherry Blossom Girl 03:39
+03. Kelly Watch The Stars 03:45
+04. Playground Love (with Gordon Tracks) 03:32(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78750FDF6ADD70BEF84BDF6D5AB67C5E4AF0E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026102   (705868) от 14.06.2016
+
+Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfield Opening (00:46)
+02. As Close to Hell (03:31)
+03. Conjuring 2 (00:46)
+04. It Isn’t Real (00:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0472ED1DC3B12614CE9EAFD1D6F974423AEF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401958   (705614) от 12.08.2020
+
+VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit - Om Ha Hung (07:16)
+02. Foundations - Deep Loneliness (09:55)
+03. Power Shui - Bombay Nights (04:14)
+04. Spirit - Balayogi Pahi Mam (03:41)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D967AFC749FE622D8C3D0E9515BAB153BA9538AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533098   (705331) от 24.02.2022
 
 Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -629,122 +744,6 @@ Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132428   (700454) от 09.05.2017
-
-VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Gordon - The Experiment (01:36)
-02. Mick Gordon - Everything Is Going to Be Okay (02:29)
-03. Mick Gordon - Typhon Voices (01:54)
-04. Mick Gordon - The Phantoms (03:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132489   (700450) от 09.05.2017
-
-The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bluegrass,  Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (2:17)
-02. Achilles (2:25)
-03. The Recap (4:15)
-04. In Hell I'll Be In Good Company (4:03)(   Читать дальше...   )Жанр: Bluegrass,  Folk, World, & CountryПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7EE63FE8E747A2D56BCC0809B92D70C9C30A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131769   (700442) от 09.05.2017
-
-Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Comes a King (00:43)
-02. King Arthur: Legend of the Sword (02:52)
-03. Growing Up Londinium (02:42)
-04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA1980BF19B0AF240635CBD64B0BFEF1F16F5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179508   (700434) от 21.04.2018
-
-VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Бурляев & Дмитрий Носков - Accident [03:40]
-02. Иван Бурляев & Дмитрий Носков - Connection's Lost [04:32]
-03. Иван Бурляев & Дмитрий Носков - Trainings [02:50]
-04. Иван Бурляев & Дмитрий Носков - Families & Take Off [04:39](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240E0E5AE8D3D725341F572EC76EA1FA196B11FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

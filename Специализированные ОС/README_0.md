@@ -1,30 +1,3 @@
-###  Публикация: 1394300   (764277) от 04.07.2020
-
-OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Openmediavault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит службы, такие как SSH, (S) FTP, SMB / CIFS, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
-OpenMediaVault в первую очередь предназначен для использования в домашних условиях или небольших (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394413   (764212) от 04.07.2020
 
 pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
@@ -695,6 +668,34 @@ Parted Magic — готовое решение для работы с разде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65EF8FF83787C2EA979409702F68AFD586D09063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413184   (409331) от 03.10.2020
+
+OPNSense 20.7-OpenSSL 20.7 [amd64] 1xCD, 3xIMG
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект OPNsense - форк дистрибутива для создания межсетевых экранов pfSense.
+
+OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall and routing platform. OPNsense includes most of the features available in expensive commercial firewalls, and more in many cases. It brings the rich feature set of commercial offerings with the benefits of (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
 ```
 
 https://mybot314.ru/tekegram_catalog/

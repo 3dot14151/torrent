@@ -1,555 +1,25 @@
-###  Публикация: 1444968   (1034018) от 04.02.2021
+###  Публикация: 1444729   (1034214) от 03.02.2021
 
-Pull Down The Sun - Of Valleys And Mountains (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Sludge Metal, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aka (1:31)
-02. Whare Ra (5:13)
-03. Of Valleys And Mountains (4:30)
-04. Turehu (5:10)(   Читать дальше...   )Жанр: Progressive Metal, Sludge Metal, Post MetalПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5707290D1A052408CC51638CA3613A8179C5B634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445164   (1034017) от 04.02.2021
-
-Беатрикс Поттер | Страна детства. Как сороконожка ходила в гости (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается сборник детских ярко иллюстрированных сказок. Для чтения взрослыми детям. Для самостоятельного чтения рекомендуется детям с 7 лет.Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF1D0B1CB030E938423D2DEAC1D7861842E7E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445134   (1034016) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Extravabaseza - Far Away (Original Mix) (06:26)
-02. Mystific - Letters For Okamura (Original Mix) (05:24)
-03. MSdoS - La Boutique (Original Mix) (06:21)
-04. The Magget - Conveyor Belt (Sonicblast Remix) (03:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BD97F37E6DA989CC6E5681AC1332C6D5C2E4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445145   (1034015) от 04.02.2021
-
-Андрей Кутерницкий | Золотая змея (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой пастух по имени Элли пас овец среди гор и камней и неожиданно услышал в своей голове голос, раздающийся неизвестно откуда с призывом о помощи. Оглядевшись, он заметил на земле придавленную камнем змею необычного золотого цвета. Превозмогая страх, ведь такая змея была олицетворением смерти, он убрал камень. В благодарность за спасение, змея наделила Элли даром (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A38B12EF321E13D7E60ADF7FE8BABEFCC1E5B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445148   (1034014) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Defense - Early Morning Sun (Original Mix) (06:34)
-02. nCamargo - Evenness (Original Mix) (05:21)
-03. Soulful Nature - Still Love U (Original Mix) (05:03)
-04. Fishy - World Keeps Turning (Original Mix) (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04B71E573B4E76B67DE3806BB2405E6B0179F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445156   (1034013) от 04.02.2021
-
-Михаил Колодочкин | Мужчинам до 16 – об автомобиле (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга в доступной для юного читателя форме объясняет для чего понадобилась мультиплексная проводка, что отличает антирадар от радар-детектора, что измеряют в лошадиных силах, а так же многие другие авто- мобильные понятия и термины. Эта книга написана для тех, кому интересно познавать, мечтать и стремиться создать что-то новое.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BD73BD03A828BD8BF81E218BFED284471B9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445126   (1034012) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bronski - Something (Original Mix) (05:23)
-02. Phase 2 - Glissando (Original Mix) (06:01)
-03. Guillotine - Where You Are (Original Mix) (04:29)
-04. Rolfey - Soul Mate (Original Mix) (05:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB30B3F9420F6ED825D69F4CEB1F3C653DB70231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445076   (1034011) от 04.02.2021
-
-Альберт Иванов | Приключения Хомы и Суслика (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу Альберта Иванова «Приключения Хомы и Суслика. Сказки» вошли сказки о Хитрой Вороне, о Хоме и Суслике и другие истории. Этих сказочных героев можно увидеть на экране, ведь по большинству сказок были сняты мультфильмы: «Приключения Хомы», «Раз – горох, два – горох», «Погоня», «Хитрая Ворона», «Крылья, ноги и хвосты», «Клетка», «Страшная история», «Удивительные (   Читать дальше...   )Жанр: Сказки, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7A2204052AEA0865A9ADC9FEE1C3ACE69C7326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445111   (1034010) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joakim Carley, Reece Lemonius - Warrior (Still A Fighter) (Original Mix) (03:41)
-02. Peyo - Ceremony (Original Mix) (05:47)
-03. Dan Guidance, Marvel Cinema - Sumerians (Original Mix) (06:38)
-04. Nectar - Time To (Original Mix) (05:25)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C637053100252822A65567E705F98962CBCF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445137   (1034009) от 04.02.2021
-
-Vered Dekel - Make Way For Love (2004) [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Day I'll Fly Away - 05:43
-2. It Never Entered My Mind - 03:58
-3. Landslide - 05:32
-4. To Dance - 05:57(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3730D7410132217FC2BEF50D0DB2EC624A397690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445157   (1034008) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 15 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Illusion - Imperia (Original Mix) (05:25)
-02. Geoff Keating - Born Again (Original Mix) (04:44)
-03. Horidark - This Craft (Original Mix) (03:27)
-04. Midst - Touch The Sky (Original Mix) (04:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC99CA27F23E16489A5A9CA6C117C5EDDB8C20BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444955   (1034007) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Groove - Shine Through (Original Mix) (05:40)
-02. Al Menos - Could Be, Can Be (Original Mix) (07:28)
-03. Ha-Zb - Inside Us (Original Mix) (04:59)
-04. Madcap - Existence (Original Mix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F9F17485036EA7C2AEB7A89753C07FDC292365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444991   (1034006) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Ransome, SynthForce - On The Seafront (Original Mix) (06:21)
-02. Liquid Waves - I Don't Know Why (Original Mix) (05:24)
-03. Shiva, mr porter - She Walks In The Fire (Revolver & Leona Remix) (05:17)
-04. Abstract Illusion - Never Gonna Stop (Original Mix) (05:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7247A464AAFE3A77574CAA6D2C9EBAACE4E2B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445028   (1034005) от 04.02.2021
-
-Wig Wam - Never Say Die (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Crusade (Intro, Instrumental)
-02. Never Say Die
-03. Hypnotized
-04. Shadowx Of Eternity(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55632C852E97885DBCCFE87AE5351CDCC2CC359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445023   (1034004) от 04.02.2021
-
-Google Chrome 88.0.4324.146 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:951439A6FE5D65E2DF7DB88E1867FB47C49FE357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445063   (1034003) от 04.02.2021
-
-Big Sur Cache Cleaner 16.1.2 [En]
+MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4 - macOS 11.0.1Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C322FEE24ED92EBE2C840F2A8CAA6C8F4FC8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445000   (1034002) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemptive - Within Nature (Original Mix) (07:52)
-02. Payback - Love So Blind (Original Mix) (05:44)
-03. CHILL COLLECTIVE - L.S.D (Original Mix) (05:16)
-04. Critical Event, Azuto - Changes (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B442A4A402F0D0F79365001C846D9A2B29D8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445153   (1034001) от 04.02.2021
-
-Петр Волцит | Большая энциклопедия юного эколога (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы все – немножко экологи. Ведь каждому хочется видеть на улицах зелёные деревья, жуков и бабочек, слышать пение птиц и с волнением ждать, когда зацветёт посаженный под окнами куст сирени. Всех нас тревожит будущее природы: останется ли наша планета такой же зелёной и живой, как сейчас? Но, чтобы в полной мере наслаждаться общением с природой, чтобы грамотно охранять (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F913D7CBFD4DAE29CCF515BC59030EEB728FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445001   (1034000) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physics - Far Away (Original Mix) (06:18)
-02. Audioholic - Northside Funk (Original Mix) (05:52)
-03. Tony Future - Chinas (Original Mix) (06:40)
-04. Afferent - Close To You (Original Mix) (04:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3EEE9CA47D878751DE62E66EB3C15C70361DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444748   (1033999) от 04.02.2021
-
-Фонд Иоанна Чудотворца (изд.) | Не печальтесь, не падайте духом, я с вами. [Свидетельства о помощи и почитании Иоанна Чудотворца] (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иоанн Чудотворец, к сожалению, ещё не все знают это удивительное имя. Но те, кто узнал, однажды обратившись к нему, уже не расстаются с этим дивным небесным помощником и верным другом.
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
 
-Наша книга посвящена: Великому чудотворцу XX века; его помощи людям; почитанию святого в различных уголках нашей прекрасной планеты; созданию музея Иоанна Чудотворца в России.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3C2F22B26D63158B3425CC5C81F1781F46122D
+magnet:?xt=urn:btih:58ED2B25CADFA60E02143FE78AA5AE4BD4EBAFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445081   (1033998) от 04.02.2021
+###  Публикация: 1444788   (1034213) от 03.02.2021
 
-Everdawn - Cleopatra (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+VA - Quantum Motion (2021) [MP3|320 Kbps] <Synth Space, Electronic>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghost Shadow Requiem (05:42)
- 02. Stranded in Bangalore (03:26)
- 03. Cleopatra (05:37)
- 04. Your Majesty Sadness (04:55)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:48:06
+С музыкой лонгплея "Quantum Motion" мы с Вами отправимся в фантастическое путешествие по просторам нашей необъятной галактике. Так что пристёгиваемся, одеваем наушники и полетели!001. Kalax - Let Go (feat. Anton Vic)
+002. Stilz - Hyperspace Drifter
+003. Julian Wassermann - Komet
+004. Ugo Benso - Houmework(   Читать дальше...   )Жанр: Synth Space, ElectronicПродолжительность: 09:25:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B8DDFB3ED6C165EF317A468ADF985548EFA2DA9
+magnet:?xt=urn:btih:C52CD90E3597AAEED126A618A77FEE1D5CB58B14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445192   (1033997) от 04.02.2021
+###  Публикация: 1444787   (1034212) от 03.02.2021
 
-Насколько безумен был король Георг? / How Mad Was King George? (2004) DVB
+VA - International Pop Party (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 
->>Документалистика и Телепередачи
->>История
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме мы выясним, правда ли психическая болезнь английского короля Георга III объясняется наследственностью? Георг III правил Великобританией целых 60 лет. Но фактически монарх отошел от дел гораздо раньше, когда после очередного приступа недуга потерял слух и зрение. А до этого за монархом не раз замечали неподобающие поступки: он бредил, буйствовал, ругался (   Читать дальше...   )Производство: ИспанияЖанр: Документально-постановочный, биография, историяРежиссер: Клер УэллиПеревод: Двуголосый закадровый, профессиональный (ТПО "Ред Медиа")Субтитры: отсутствуютПродолжительность: 00:48:23
+Абсолютно все треки микса "International Pop Party" просто напичканы отличным танцевальным настроем, чьи мелодии призывают вас самозабвенно пуститься в музыкальное путешествие по самым разнообразным странам и послушать что поют и танцуют их жители.001. The Boyz - Checkmate
+002. DJ Di Granati - Du Bist Engel
+003. Dua Lipa - Levitating
+004. The Whiskey Gingers - Change Your Mind(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:00:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B8030CD61BA0303E528334D1253CB04FC802C2
+magnet:?xt=urn:btih:D335A8E2B018AFEF6B5B44DCA765924681DFF895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +85,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445128   (1033996) от 04.02.2021
+###  Публикация: 1444757   (1034211) от 03.02.2021
 
-Роско Арбакл. Своя дорога Мейбл / Mabel's Wilful Way (1915) DVDRip
+Тайны Фрэнки Дрейк / Расследования Фрэнки Дрейк / Frankie Drake Mysteries (2018) BDRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) VIP Serial HD
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал расскажет о Фрэнки Дрейк - первой в городе женщине, ставшей частным детективом, действующей в канадском городе Торонто в 20-е годы прошлого века. Фрэнки, обладая всеми качествами, присущими хорошему детективу, вместе со своей помощницей Труди берётся за расследование самых сложных и запутанных дел - даже таких, где, казалось бы, нет никаких улик.Производство: Канада / Shaftesbury Films, Canada Media Fund (CMF), Independent Production FundЖанр: драма, криминал, детективРежиссер: Руба Надда, Садс Сазерленд, Элинор ЛиндоАктеры: Лорен Ли Смит, Шантель Райли, Ребекка Лиддьярд, Шаррон Мэтьюз, Грэйс Линн Кунг, Венди Крюсон, Энтони Лемке, Ромэйн Вейт, Карен Робинсон, Эммануэль КабонгоПеревод: Многоголосый профессиональный (VIP Serial HD)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5462D4E052CD5CF0E55FB120ADAD29687B957A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444794   (1034210) от 03.02.2021
+
+VA - Beatport Deep House: Electro Sound Pack #237 (2021) [MP3|320 Kbps] <Deep House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушателя ждёт не на один час погружение в море размеренной и мелодичной музыки в стиле Deep House. Специфичная для восприятия на слух, эта музыка способна вызвать довольно противоречивые настроения. Однако, именно она, наиболее выразительно преподносит слушателю для изучения немаленький пласт электронной музыки.001. Maxriven - Astronomia
+002. Mark Silengton - Away From Home
+003. Arthem - Happy And Sweet
+004. Omid 16b - Hope(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 09:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D337A6080B5F1824E3494D6C100734BD84591B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444899   (1034209) от 03.02.2021
+
+Полидор хочет покончить с собой / Polidor vuol suicidarsi (1912) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мейбл сбежала от родителей в парке, и пустилась на поиски приключений. Тут она знакомится с Фатти...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Мэйбл Норманд, Роско Арбакл, Эдгар Кеннеди, Элис Девенпорт, Глен Кэвендер, Джо Бордо, Фрэнк Долан, Бобби Данн, Билли ГилбертПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:13:42
+Кредиторы наседают на Полидора, грозят тюрьмой и пожизненным заключением. Полидор решает покинуть этот мир... Но как настоящему неудачнику ему это не удаётся...Производство: ИталияЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:08:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A10324FD4F6141C7E6558ACA5F4F4625C39835DB
+magnet:?xt=urn:btih:91315B033542FFC856AFB033F36F890920365277
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,26 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445195   (1033995) от 04.02.2021
+###  Публикация: 1444866   (1034208) от 03.02.2021
 
-Участь быть царём / Le Destin d'etre roi (The Destiny to Be a King) (2009) DVB
+M. A. 3 - M. A. 3 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 
->>Документалистика и Телепередачи
->>История
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм о царе Болгарии (1943-1946) и премьер-министре этой страны (2001-2005) Симеоне Борисове Саксен-Кобург-Готском – царствовавшем под именем Симеон II (в возрасте 6-9 лет).
-Симеон умел молчать, притворяться и быть незаметным: давным-давно, еще в Александрии, при дворе египетского короля Фарука, юный Симеон дал себе слово ни в чем не походить на фантазера-деда и (   Читать дальше...   )Производство: Франция, Канада, БолгарияЖанр: Документальный, биография, историяРежиссер: Николай ТомовПеревод: Двуголосый закадровый, профессиональный (ТПО "Ред Медиа")Субтитры: отсутствуютПродолжительность: 00:52:29
+01. Bee Gee's Mania (Medley) (13:40)
+02. If You Wanna Dance (5:15)
+03. Music (4:13)
+04. When Will I See You Again (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3EB48ED7FC7B56A6C1E7FAE5EEAEE8E4221AB23
+magnet:?xt=urn:btih:22BC22B5D4DC672BC97376133CEA228302E41C2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445132   (1033994) от 04.02.2021
+###  Публикация: 1444924   (1034207) от 03.02.2021
 
-Национальный лес Дикси / Dixie National Forest (2018) WEBRip [H.264/2160p]
+Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Национальный лес Дикси, расположенный в суровом юго-западном углу штата Юта, занимает почти 2 миллиона акров потрясающих видов и бесконечных пейзажей. Присоединяйтесь к нам, и мы отправим вас в визуальное путешествие через альпийские озера и осиновые леса к огромным красным пустыням и ослепительным образованиям из песка и камня.Производство: СШАЖанр: Документальный, видовойРежиссер: Братья ПаттисПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:58
+01. Hurt (4:33)
+ 02. Let Go (4:05)
+ 03. In Loving Memory (3:55)
+ 04. Everything Will Be Okay (4:54)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:25:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:333D926CBB35C7A3F8D7FC4A6CBFEA6A3A3DCCF8
+magnet:?xt=urn:btih:B8B125C04A44FB54DFF0C95D4AFF5F913EF81B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +224,486 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445026   (1033993) от 04.02.2021
+###  Публикация: 1444833   (1034206) от 03.02.2021
 
-Opera 74.0.3911.75 Portable by Cento8 [Ru/En]
+Annie Lennox - Songs Of Mass Destruction (2007) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Road [3:47]
+ 02. Love is Blind [4:19]
+ 03. Smithereens [5:17]
+ 04. Ghosts in My Machine [3:31](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3801A3E3E8B69D861A0148AD0A57749440807DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444909   (1034205) от 03.02.2021
+
+Джеймс Хэдли Чейз | Стив Хармс. Двойная подтасовка (2020) [MP3, Александр Хошабаев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Гудьер – один из лучших страховых агентов города. Уж если кто и знает свое дело, то это он. Гудьер умеет выстроить договор таким образом, чтобы компания в итоге не потеряла денег при наступлении «не совсем» страхового случая. Именно он и заключал договор с начинающей актрисой Сьюзен Джеллер. И в нем была просто масса пунктов, по которым компания освобождается (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDE7ACB33375A7FF8FBB9044FF5B0F7613D6C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444954   (1034204) от 03.02.2021
+
+FreeFileSync 11.6 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EBB7DB9F9C16B185655A6347E3BD7E8E8A7B425
+magnet:?xt=urn:btih:98520E4ACB8952AA030EDFF4EAF13DB42839B07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444766   (1034203) от 03.02.2021
+
+VA - New Italo Disco Music Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - My Heart Belongs To You (Extended Version) (6:33)
+02. Chito - The Long Tomorrow (Maxi Version) (6:46)
+03. D. White - No Connect (Extended Version) (7:04)
+04. Lenroy - Give Me A Night (Extended Version) (6:09)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCBCBEA2F74E9C4D70024BE7B6D377CF65330A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444849   (1034202) от 03.02.2021
+
+VA - Prog Metal Rock Compilation (2021) 2xCD [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034202.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Maestrick - Origami (05:36)
+ 02. Pyramid Theorem - Closer to the End (07:11)
+ 03. Glasswork - Blackspot (06:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444782   (1034201) от 03.02.2021
+
+VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на праздник настоящей Рок музыки! Ценители качественного звука и мастерского исполнения, радуйтесь! Здесь все по-настоящему! «Thе Jаdеd Hеаrts», «Nеurоtiс Fiсtiоn», «Stаnd Atlаntiс», «Hаllоwееn In Hеll», «Sodom» и многие другие мастера современной рок-сцены громоздят сумасшедшие аккорды и рифы, а также виртуозно исполняют свои партии!001. Maggie Cassidy - S.A.D
+002. Billy Nomates - Modern Hart
+003. Outloved - Hurt Me
+004. Division Of Laura Lee - Sit Up Straight(   Читать дальше...   )Жанр: RockПродолжительность: 11:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757CA35AA69DEBBEF62EE4A19229D4874A81C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444791   (1034200) от 03.02.2021
+
+Google Chrome 88.0.4324.146 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA50CEEDFF12EF8B870750A911014977640A484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444759   (1034199) от 03.02.2021
+
+Тайны Фрэнки Дрейк / Расследования Фрэнки Дрейк / Frankie Drake Mysteries (2019) BDRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) VIP Serial HD
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал расскажет о Фрэнки Дрейк - первой в городе женщине, ставшей частным детективом, действующей в канадском городе Торонто в 20-е годы прошлого века. Фрэнки, обладая всеми качествами, присущими хорошему детективу, вместе со своей помощницей Труди берётся за расследование самых сложных и запутанных дел - даже таких, где, казалось бы, нет никаких улик.Производство: Канада / Shaftesbury Films, Canada Media Fund (CMF), Independent Production FundЖанр: драма, криминал, детективРежиссер: Руба Надда, Садс Сазерленд, Элинор ЛиндоАктеры: Лорен Ли Смит, Шантель Райли, Ребекка Лиддьярд, Шаррон Мэтьюз, Грэйс Линн Кунг, Венди Крюсон, Энтони Лемке, Ромэйн Вейт, Карен Робинсон, Эммануэль КабонгоПеревод: Многоголосый профессиональный (VIP Serial HD)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390A0E35E66F691B451A9B6BD3F041295CD59E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444851   (1034198) от 03.02.2021
+
+Pale Moon 29.0.0 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF468EEB28BAEFA73C0A18CA87ACC27A2F63C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444930   (1034197) от 03.02.2021
+
+Воображаемая реальность / Valley of the Gods (2019) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034197.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме пересекаются три истории. Первая, архаичная легенда индейцев Навахо, рассказывает о их земле и богах, которые в виде скальных памятников населяют долину, называемую Долиной богов. Вторая - это история о самом богатом человеке, Уэсе Тауросе, который экспериментирует на себе возможности, которые дают неограниченные деньги. Переживший личную трагедию, Таурос (   Читать дальше...   )Производство: Польша, Люксембург, США / Royal Road Entertainment, Angelus Silesius, Domino FilmЖанр: Фантастика, триллер, драма, приключенияРежиссер: Лех МаевскиАктеры: Джош Хартнетт, Джон Малкович, Беренис Марло, Кир Дуллеа, Джон Рис-Дэвис, Джейми Рэй Ньюман, Джозеф Раннингфокс, Стивен Скайлер, Джон А. Лоренц, Оуи РэйПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 02:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73B7898C4BBCCCE49B0EF4B10F8BE1DD1F46575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444763   (1034196) от 03.02.2021
+
+IcoFX 3.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034196.jpg" />
+</div>
+
+
+###  Подробнее
+
+IcoFX - программа для создания и редактирования иконок и курсоров с поддержкой прозрачности. Поддерживает статические и анимированные курсоры. Легко может создать логотип для вашего сайта или блога. Вы можете легко конвертировать ваши любимые изображения в иконки или курсоры. Поддерживаемые форматы изображений: BMP, PNG, JPG, JPG2000, TIF и GIF. С помощью этой программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D8EB254E7449B2E12B94F6FF31E0EA29CF2B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444799   (1034195) от 03.02.2021
+
+AppCleaner 3.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перенести программу в Корзину недостаточно для того, чтобы удалить ее с компьютера. Разбросанные по разным папкам служебные данные, которые были нужны удаленному приложению, все равно останутся на месте. Убрать этот «мусор» позволит утилита AppCleaner.
+Конечно, это не единственное средство так называемой чистой деинсталляции программ. Как и другие аналогичные утилиты, (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 02.02.2021Разработчик: FreeMacSoftПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7147E69A5AEDE15C9FEE8058B0219E36F88D393B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444864   (1034194) от 03.02.2021
+
+Allavsoft Video Downloader Converter 3.23.3.7702 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D717F67EA38865CD9BB98296E267B8A05E8D6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437556   (1034193) от 03.02.2021
+
+Победа / Victory (1919) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аксель Хайст живёт затворником на одном из островов, ныне пренадлежащих Индонезии. Прибыв на Яву, с целью уладить дела, связанные с закрытием его фирмы, он поселился в отеле, где знакомится с девушкой из женского оркестра, развлекавшего здешнюю публику. Её настойчиво преследуют хозяин гостиницы Шомберг и дирижёр Дзанджакомо и всячески третирует жена последнего. Из (   Читать дальше...   )Производство: США, Maurice Tourneur ProductionsЖанр: Приключения, мелодрама, немое киноРежиссер: Морис ТурнерАктеры: Джек Холт, Сина Оуэн, Уоллес Бири, Бен Дили, Лон Чейни, Булл Монтана, Уильям Бэйли, Бетти Баутон, Джордж Николс, Рут РеникЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FB9F30E74FEC6B1CC33129689C6F05217AB934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444933   (1034192) от 03.02.2021
+
+Воображаемая реальность / Valley of the Gods (2019) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме пересекаются три истории. Первая, архаичная легенда индейцев Навахо, рассказывает о их земле и богах, которые в виде скальных памятников населяют долину, называемую Долиной богов. Вторая - это история о самом богатом человеке, Уэсе Тауросе, который экспериментирует на себе возможности, которые дают неограниченные деньги. Переживший личную трагедию, Таурос (   Читать дальше...   )Производство: Польша, Люксембург, США / Royal Road Entertainment, Angelus Silesius, Domino FilmЖанр: Фантастика, триллер, драма, приключенияРежиссер: Лех МаевскиАктеры: Джош Хартнетт, Джон Малкович, Беренис Марло, Кир Дуллеа, Джон Рис-Дэвис, Джейми Рэй Ньюман, Джозеф Раннингфокс, Стивен Скайлер, Джон А. Лоренц, Оуи РэйПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 02:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAED5E50769AD10DD9FBBA32A138B8576540CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444850   (1034191) от 03.02.2021
+
+Engineering Tools : Mechanical v206 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для машиностроения - это универсальное приложение для всех нужд машиностроения, оно содержит различные важные инструменты для машиностроения.
+
+Цель этого программного обеспечения - предоставить студентам и специалистам инженерных специальностей инженерные решения.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 4 ноября 2020 г.Разработчик: TOLANПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444786   (1034190) от 03.02.2021
+
+VA - Big Rap Review (2021) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем, без исключения, любителям правильной музыки предлагаем сборник современных лучших исполнителей в стиле репа и хип хопа. Слушайте музыку сборника в машине или дома и поднимайте настроение на весь трудовой день себе и друзьям.001. Capolow - Next Episode
+002. MC Eiht - You The One
+003. Kota The Friend - B.Q.E
+004. Bsuavee - World To Me World To You(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C66A9E521B3F7F4DB7583FFC5AF3AD2B3F65F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444893   (1034189) от 03.02.2021
+
+Adobe InCopy 2021 16.1.0.20 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+Adobe InCopy позволяет авторам и редакторам текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80419A1CA25FC5E539B7EEA0DA67F70E33E682F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1821113   (29148) от 30.09.2025
+
+NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29148.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
+Запись концерта, прошедшего 13.01.2024г.1. Intro
+2. Enigma
+3. 雷霆 -RAITEI-
+4. RISE(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA6925135D5254884C9F19FF7D0DFB8496BBE6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776408   (28975) от 01.02.2025
 
 Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265/2160p] [50 fps, Upscale AI]
@@ -693,35 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794000   (18093) от 16.05.2025
-
-Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках тура "Sheffield Tour" 25 октября 2000 года во дворце спорта «Лужники». На разогреве тогда выступал DJ Balloon, который также выходил на сцену во время исполнения Hyper Hyper.01. MC's missing
-02. Watch out
-03. Space cowboy
-04. I'm your pusher(   Читать дальше...   )Производство: РоссияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

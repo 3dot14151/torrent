@@ -1,32 +1,3 @@
-###  Публикация: 1594741   (176696) от 03.12.2022
-
-C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (Room 69-Mix)  4:55
-02. I Can Loose My Heart Tonight (Extended Club Remix)  5:53
-03. 'Cause You Are Young (Maxi-Version)  4:55
-04. Are You Man Enough (Long Version - Muscle Mix)  6:03(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595859   (174551) от 07.12.2022
 
 Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
@@ -740,6 +711,35 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12DAA98AF3999FA0B7A19F11695C4DA2F1E9D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516203   (166881) от 10.12.2021
+
+Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girls (6:16)
+02. Boogie Wonderland (6:25)
+03. Ring My Bell (6:40)
+04. H.A.P.P.Y. Radio (6:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE713301E71A194BBEDA11695403F50F186221C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

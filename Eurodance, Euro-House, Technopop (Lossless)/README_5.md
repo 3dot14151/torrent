@@ -1,3 +1,32 @@
+###  Публикация: 1272627   (141733) от 28.12.2018
+
+C.C. Catch - Greatest Hits (2018) Ear Music [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Cause You Are Young (3:30)
+ 02. Heaven And Hell (3:39)
+ 03. Heartbreak Hotel (3:36)
+ 04. I Can Lose My Heart Tonight (3:50)(   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F42F7770E7CCDC237F6C5707648C5DD783B889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679402   (137495) от 25.11.2023
 
 Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
@@ -699,33 +728,6 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E33FD5408B9C787E4CB02AEE8EB7E60404B27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756245   (39674) от 21.10.2024
-
-One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man Sound - It's My Life (Extended Mix) (3:59)
-02. One Man Sound - It's My Life (Radio Edit) (3:19)Жанр: Dance, EurodanceПродолжительность: 00:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B26822944CD5BF76139CB48CB66F6AE0AC74169
 ```
 
 https://mybot314.ru/tekegram_catalog/

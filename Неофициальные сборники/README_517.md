@@ -1,3 +1,73 @@
+###  Публикация: 581805   (315814) от 01.12.2012
+
+VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friction – Led Astray
+02. Nero – Must Be The Feeling (Delta Heavy Remix)
+03. Adventure Club – Do I See Color
+04. Jamburglar – Give (LabRat Remix)
+05. Fork'n'Knife vs. Jason Derulo - Don't Wanna Go Home (Remix)
+06. Dubba Jonny - Next (Original Mix)
+07. Kaskade – Raining (feat. Adam K & Sunsun) (Twitch Reload)
+08. Labrat - Vortex
+09. Foxes - Youth (Adventure Club Dubstep Remix)
+10. Paul Thomas – Buzz Killington (Funkagenda Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D4067C3280C4D321166A4EEBCD532F3D9AA1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583070   (315690) от 01.12.2012
+
+ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance / vocal house / club house / house>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   02-DJ PitkiN -   Bright Autumn Mix 12 (ICON Celentano)
+   03-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   04-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   05-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   06-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   07-DJ PitkiN- Bright Autumn Mix 12 (ICON Celentano)
+   08-DJ PitkiN  - Bright Autumn Mix 12 (ICON Celentano)
+   09-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   10-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)(   Читать дальше...   )Жанр: progressive dance / vocal house / club house / houseПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075948   (315667) от 24.11.2016
 
 VA - Sentimental Rock Blues Story (2016) [MP3|192-320 Kbps] <Rock Blues>
@@ -686,70 +756,6 @@ VA - Музыкальный Плен от Europa Plus (2016) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657381220C1AE6E28E8BBD61B8E3DFD4B5B2BB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332315   (314193) от 20.10.2019
-
-VA - Record Super Chart 609 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
-2.C-BooL - Catch You (3:13)
-3.Tones and I - Dance Monkey (Remix) (3:32)
-4.Slider & Magnit - Morze (3:10)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AE101BB249A57FF9E8ABE0686D01F8971CFC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583518   (314178) от 02.12.2012
-
-PRODUCTION DEEJAYS - WORKIN BOOTLEGS VOL 1 (2012) [MP3|320 кб/с]<house / club house / vocal house / electro house / progressive / mash-up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Axwell vs. Freza - I Found You (Gumanev & Estatic Courage Reboot)
-   02 Black Eyed Peas vs. Slava Dmitriev - Shut Up (Matuya & Estatic Courage Reboot)
-    03 Everything But The Girl vs Muziknack - Missing (Estatic Courage Reboot)
-   04 Gadjo vs Juanmy.R - So Many Times (Gumanev & Estatic Courage Bouncy Bootleg)
-    05 Jennifer Lopez vs Rescue - Play (Gumanev & Estatic Courage Reboot)
-   06 Miami Mash Up vs Marty Fame - Wheres Your Head At (Gumanev & Estatic Courage Reboot)
-   07 Nirvana vs D. Ramirez - Smells Like Teen Spirit (Dj Stuff Rockin Bootleg)
-   08 Jerry Ropero vs Eric Prydz - Fuck U (Matuya Reboot)
-   09 Nicky Romero vs Fedde Le Grand - Put Your Hands Up For Detroit (Kolya & Matuya Reboot)
-   10 Axwell vs LaForte - Watch The Sunrise (Gumanev & Estatic Courage Bigroom Bootleg)Жанр: house / club house / vocal house / electro house / progressive / mash-upПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15FF4DF3342F60C27F556EEB0DEA3555D556DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1756281   (39792) от 20.10.2024
+
+VA - Deep House Female Vocal (2024) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39792.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. INNERVERSE - Reverie (3:43)
+002. LO - Over The Edge (2:19)
+003. LUDVIC - Dance Again (2:46)
+004. Rommii - Deep End (2:28)(   Читать дальше...   )Жанр: HouseПродолжительность: 10:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7412B1D26B5C0F6908E911FC16FBD505E9C216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756559   (39691) от 21.10.2024
+
+VA - Music News For Forum vol.034 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maria Jane Smith - Adrian (03:38)
+ 002. Ян Марти - Мимо сердца (03:15)
+ 003. Alexander Oscar - Sadan Det Er (02:48)
+ 004. Юрий Евстифеев - Грешник (05:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF8A1870869BB4C9B538DE4B51654243B21B3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756432   (39667) от 21.10.2024
+
+VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
+02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
+03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
+04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756526   (39592) от 22.10.2024
 
 VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
@@ -658,93 +745,6 @@ VA - Blues And Rock Blues Fusion (2024) [MP3|320 Kbps] <Blues, Rock Folk, Rock B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254F486A16F816A3CAAF8E4E48F70DA966223FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758109   (38684) от 31.10.2024
-
-VA - Tropical Sound Scapes (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jano De Rhodos - Midiendo El Cielo (4:19)
-002. Kieloval - Delicate Fragrance (4:29)
-003. Dj. Juliano Bgm - Close To Your Body (3:38)
-004. Exquisite Frame - Marigold (4:28)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EE796AAC40659B17882081DA81A3738FFE5D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758260   (38580) от 01.11.2024
-
-VA - Compilation part 128 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mannonov - Move
-02. Hamidshax - Dark Light
-03. Hayit Murat - Que Pasa
-04. Akmalov & a Sultan - Barcelona(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD80768E944EF20ADDAEEDF4F02E1241293F2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758415   (38543) от 02.11.2024
-
-VA - Disco Inferno 70s 80s (2024) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chic - Le Freak (Edit) [03:36]
-002. Earth, Wind & Fire - September [03:35]
-003. Michael Jackson - Don't Stop 'Til You Get Enough (2003 Edit) [03:56]
-004. ABBA - Dancing Queen [03:51](   Читать дальше...   )Жанр: DiscoПродолжительность: 11:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

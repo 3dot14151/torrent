@@ -1,3 +1,59 @@
+###  Публикация: 1698747   (118272) от 10.02.2024
+
+Emin - Now or Never (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer-Songwriter>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And I Love You So
+02. In the Ghetto
+03. Don’t Be Cruel
+04. Love Me Tender (feat. Nicole Scherzinger)(   Читать дальше...   )Жанр: Pop, Singer-SongwriterПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7638C15D1FFAA37801039D50C9BF21AC78C6115C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698961   (118123) от 11.02.2024
+
+Женя Любич - Невзначай (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118123.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Невзначай
+2. 149 лайковЖанр: PopПродолжительность: 00:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F7E07DA729370BBDAAB9550471005C610BCEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699033   (118109) от 11.02.2024
 
 Людмила Соколова - Ботинки из Китая (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -661,64 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722546   (109678) от 12.05.2024
-
-Банда Андрюха - Пожарная Команда (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шоу Начинается!
- 02. Гори, Гори, Ясно!
- 03. До Утра!
- 40. Ё-Моё! А.Чижов Против Мата!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724872   (109062) от 23.05.2024
-
-FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Святые нулевые - Edición de la Revolución [00:02:53]
-02. Катя – Cathedral Edition [00:02:50]
-03. Грешница - Edición de la Revolución [00:02:32]
-04. Пропала в караоке - Edición de la Revolución [00:03:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD061E1A140BEBD442FF61F8D6DE50D2382BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 950104   (372066) от 25.10.2015
+
+Гарик Сукачёв - Избранное (3CD) (1986-2013) (2015) [MP3|320 кб/с]<Rock & Roll, Ska, Folk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я обожаю jazz (03:25)
+02. Бродяга (03:50)
+03. Гады (04:17)
+04. Playboy (04:51)(   Читать дальше...   )Жанр: Rock & Roll, Ska, Folk RockПродолжительность: 03:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457633E68D565352D5AC3C5D4EA4E61A60DACA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176433   (371939) от 21.10.2017
 
 VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -723,35 +752,6 @@ VA - Nonstop Night Live Party: Progressive House (2018) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9C3DC3B9BB6429136DE6920B0445C9ED062D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575156   (370585) от 12.09.2022
-
-VA - Blues Saxaphone (2022) 3CD [MP3|320 Kbps] <Jazz, Blues, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sil Austin - Slow Walk [02:40]
-02. Ben Webster,Coleman Hawkins - Blues for Yolande [06:49]
-03. Greg Piccolo & The Texas All-Stars - The Hammer [02:49]
-04. Hank Crawford - Mr. Blues [06:05](   Читать дальше...   )Жанр: Jazz, Blues, Easy ListeningПродолжительность: 15:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D2C074E7929D4095046856DC994AF1031BF15A
 ```
 
 https://mybot314.ru/tekegram_catalog/

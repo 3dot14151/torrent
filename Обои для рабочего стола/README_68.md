@@ -1,3 +1,29 @@
+###  Публикация: 959971   (312261) от 26.11.2015
+
+Обои - Best Wallpapers Mixed 184 2560x1600 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественные обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7104045EF6677B06384D9F5D714C1426D9FFF53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260716   (309999) от 08.11.2018
 
 Обои - Desktop Wallpapers Full HD. Part (302) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3E3A0AB804D666A2311C43316BFEB6BBD84639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261067   (307450) от 09.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (315) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A0C9E7AD4494E5DBAD65532E6CCEFDBF2B302D
 ```
 
 https://mybot314.ru/tekegram_catalog/

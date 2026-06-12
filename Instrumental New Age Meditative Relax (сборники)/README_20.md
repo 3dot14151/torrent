@@ -1,3 +1,90 @@
+###  Публикация: 1727383   (54079) от 07.06.2024
+
+VA - The Mysterious music of the World (2024) vol.2 [MP3|320 Kbps] <Enigmatic, New Age, Electro>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mea Culpa, Saint Vincent - Love and Desire [04:16]
+002. David Thomas - Natural Treasure [02:53]
+003. Audioslave - Shadow on the Sun [05:43]
+004. The Nexion-Project - Forces of Nature [04:32](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 12:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6B1E6EA918C661A3106358E31DDF860EB1B662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728496   (53922) от 08.06.2024
+
+VA - Compilation Easy Listening part 85 (2024) [MP3|320 Kbps] <Instrumental, Easy Listening, Sax, Trumpet, Clarinet>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sil Austin - I'm in the Mood for Love
+02. Sil Austin - This Guy's in Love With You
+03. The Royal Grand Orchestra - Harlem Nocturne
+04. Sil Austin - The Lonely One(   Читать дальше...   )Жанр: Instrumental, Easy Listening, Sax, Trumpet, ClarinetПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D711C8E629C57C3551D37C2D82F5BBCAA18E666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729117   (53772) от 10.06.2024
+
+Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Gods And Heroes) [01:32]
+02. Tor-Cheney-Nahana (Winter Ceremony) (Love To Infinity Survival Mix) [07:26]
+03. Looking Far North [04:19]
+04. Dela Dela [04:42](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 02:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DF23DB14A09991205DE2BDEBDEDE469AA322E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733235   (51497) от 30.06.2024
 
 VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
@@ -658,93 +745,6 @@ Secret Garden - Compilation (2025) [MP3|320 Kbps] <Easy Listening, Instrumental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41E2FFB018A1869193F6B30498D258ECC68A6D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815729   (4975) от 31.08.2025
-
-Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Не Забуду Тебя.
-02 - Дежавю.
-03 - Всему Свое Время.
-04 - Красота В Глазах Смотрящего.(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE11E762F331A99D2199AA7B5A3D79B7B8755761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816042   (4653) от 02.09.2025
-
-Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Простые Места
- 02 - Память Сердца
- 03 - Пионы
- 04 - Деревенский День(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3403E8545922B31C407E99A7F28AC503C31ACB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817153   (3605) от 09.09.2025
-
-York Patrick - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy Listening, Instrumental, Spanish Guitar, AI>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Julia My Sweetest Sin
- 02 - The Piano Girl
- 03 - All I Have is Yours
- 04 - Sunday With You(   Читать дальше...   )Жанр: Electronic, Easy Listening, Instrumental, Spanish Guitar, AIПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B20263537C81C9282B0218438CC5861F0595B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

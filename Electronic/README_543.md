@@ -1,3 +1,235 @@
+###  Публикация: 1770502   (32293) от 01.01.2025
+
+Schwarz & Funk - Topas Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dambes
+02. aves of Bondi (Extended Version) (feat. Melon Monkey Club, Eivissarts)
+03. Riding on the Shore (feat. Mighty H, Eivissarts)
+04. Limelights(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794D71D987732799C184D91ACC6E3BEFF30A77AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770519   (32290) от 01.01.2025
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amandi - Space Hunter (5:33)
+02. Digital Galaxy - Wind Of Phaeton (5:33)
+03. Laserlight feat. NeoSpace - Flying To The Stars (6:09)
+04. Ray Orion - Synapse (6:05)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E74C80C9E92ED53E0EBD5C57EF4A45C7CD3595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770871   (32084) от 03.01.2025
+
+VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J-Break & SluG (FL) - Got It Bad (04:20)
+02. Wicked Wes - ICON (03:22)
+03. Dj Bodyrock & Dj Pulse (USA) - Tension (05:39)
+04. Jim Funk - I Got The Music (Broken Mix) (05:45)(   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770867   (32072) от 03.01.2025
+
+VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kazal - That One Moment (Extended Mix) [7:08]
+02. Super Luminal - Memory (Extended Mix) [7:26]
+03. D.A.R.E - Tranquility (LEZAMAboy Trance Remix) [7:53]
+04. Vibe Therapy - The Last Goodbye (Extended Mix) [8:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641720   (32050) от 04.01.2025
+
+Schiller - Sonne (Chill Out Edition) (22 Mar 2013) [MP3|320 кб/с]<Electronic, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonne (5:17)
+2. Mitternacht (8:38)
+3. Energy (with Tim Brownlow) (6:45)
+4. Lichtermeer (5:37)(   Читать дальше...   )Жанр: Electronic, ChilloutПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E19FCA6BC975D88481CA9B106057AAD3C1C27D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586207   (32048) от 04.01.2025
+
+Aes Dana - Pollen (Dec-07-2012) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Progressive Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jetlag Corporation
+02. Borderline
+03. Conditioned (Album Edit)
+04. Tree.Some(   Читать дальше...   )Жанр: Downtempo, Ambient, IDM, Progressive TranceПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51591E894C9ED683486D9372036F103E705EEA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961384   (32020) от 04.01.2025
+
+Blank & Jones - Chilltronica №5 (2015) [MP3|320 кб/с]<Chillout, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Interstellar (Marc-George Infinite Reprise Mix) (4:37)
+02. Troels Hammer - Azur (1:58)
+03. Marc-George - World of Life (5:18)
+04. Blank & Jones - White Light (7:31)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE792DA0512865BEDD61B352167D7C522AFCDDCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865310   (32018) от 04.01.2025
+
+Marcus Koch - Chillscapes Vol.1 (2014) [MP3|320 кб/с] <Downtempo, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Fields (03:34)
+  02. Sundowner (04:50)
+  03. Moon Safari (07:07)
+  04. Dark Heart (04:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7E725A5C9BEAD5580FCABD120A67C09973B189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 884195   (32017) от 04.01.2025
 
 VA - Milchbar Seaside Season 7 (Compiled By Blank & Jones) (2015) [MP3|320 кб/с]<Chillout, Downtempo, Ambient>
@@ -513,238 +745,6 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419422   (31708) от 07.01.2025
-
-VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Burns & Roman Messer feat. Twin View - Dancing In The Dark (Extended Mix) [6:12]
-02. Key Lean feat. Kyler England - Infinity (Extended Mix) [5:39]
-03. Eximinds - Starlight (Extended Mix) [5:10]
-04. Feel feat. Alexandra Badoi - We Are One (Steve Allen Extended Remix) [5:25](   Читать дальше...   )Жанр: Trance, Vocal-TranceПродолжительность: 01:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4135FB40CEB969BEC4E92A59AB049E6FA47FEE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102759   (31705) от 07.01.2025
-
-VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frainbreeze - Stronger (Radio Edit)  4:11
-02.  Moonlight Tunes - Where Are We Going (feat. 3PM) (Radio Edit)   4:19
-03.  Lucid Blue - Eyes Wide Open (Frainbreeze Remix)  5:55
-04.  Feel & Johnny Norberg - One Dream (Original Mix)  4:58(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA56D0B45E27B37F066E8A13F538C1E6C7C3C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012720   (31703) от 07.01.2025
-
-VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Kenzo & Vika -  What I See (Radio Edit)  3:34
-02. Formal One & Sarah Lynn -  In Winter (Original Mix)  3:09
-03. Philippe El Sisi & Sarah Russell -  Into The Flame (Ram Radio Edit)  2:52
-04. Eranga Ft. Tricia Mcteague -  My Heart Won't Let Me Down (Radio Edit)  3:34(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8DD783009D72D0D1AD70E855A2AE9087B8D61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715430   (31700) от 07.01.2025
-
-VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneface - One Heart - Radio Edit
-02. Venom One - Crashed & Burned - Club Edit
-03. Gal Abutbul - You Have Realised - Radio Edit
-04. DJ Feel - Illuminate - Radio Edit(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA155EE25AF9C9B29DBAACC541476A566DF3D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672757   (31698) от 07.01.2025
-
-VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathy Burton - Heaven - DNS Project Radio Edit (03:31)
-02. Beat Service - Not This Time - Radio Edit (03:56)
-03. Will Holland - Every Heartbeat - Beat Service Edit (04:02)
-04. Johan Vilborg - Never Changing - Nitrous Oxide Radio Edit (03:15)(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90A93100FD05C2CB0415636E83E18BE137CB2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401569   (31668) от 07.01.2025
-
-VA - Vocal Trance Gems - Summer (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic feat. Ellie Lawson - Becoming (Original Mix)
-02. Frainbreeze & Claudiu Adam feat. Yentl - Trust The Water To Settle (Original Mix)
-03. Costa & Hysteria! - Dagger (Original Mix)
-04. C-Systems feat. Hanna Finsen - Time (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B86BC02389C9012A9F174B058E1FBB49309B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416543   (31618) от 08.01.2025
-
-VA - A Decade Of Female Vocal Trance (2010 - 2020) (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Stine Grove - In Euphoria We Rise (Original Mix) [3:29]
-02. Dart Rayne & Yura Moonlight feat. Cathy Burton - Incomplete (Radio Edit) [3:25]
-03. Trance Classics feat. Ellie Lawson - A Day Without Rain (Costa Remix) [3:40]
-04. Nitrous Oxide & Denise Rivera - The Day (Radio Edit) [3:17](   Читать дальше...   )Жанр: Trance, Vocal-TranceПродолжительность: 05:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F1BCD9294B00DD48E6DE024563778DE1F07CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411225   (31602) от 08.01.2025
-
-Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Escape (Original Mix)
-02. Markus Schulz & London Thor feat. Valentino Alessandrini - Feel Alive (Original Mix)
-03. Markus Schulz & Singa - Turn Me Down (Original Mix)
-04. Markus Schulz & Ethan Thompson feat. Soundland - Make It Last Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A4DC841CAF5E9DB43118B8B6DC8CF3C07D82E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

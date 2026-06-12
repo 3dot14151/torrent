@@ -1,3 +1,90 @@
+###  Публикация: 1811126   (16443) от 08.08.2025
+
+VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BluSkay & Esmee Bor Stotijn – Winter Took Over 2025
+02. William Silva & NELLY TGM – I Belong To Heaven (Fan Favorite (650))
+03. Kita-Kei – Golden Plains Under The Blue Sky (Orchestral Uplifting Classic)
+04. Beat Service ft. Ana Criado – An Autumn Tale (Kaimo K Remix) (Fan Favorite (643))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C0E65EFEE4F75EFA20892EDE9E1BD9225D3309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811124   (16442) от 08.08.2025
+
+VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION & EGGSTA – Shattered
+02. Chocolate Puma – Let Your Mind Be Free
+03. Armin van Buuren & JOA – Heavy (Trending Track)
+04. Electrique Boutique – Revelation (Renato Cohen Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4998A2110303CB51A4E20C0A2119E62B9EC16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800827   (15472) от 06.06.2025
+
+VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Richard Bedford – Start A Fire
+02. Raz Nitzan & Maria Nayler – Mystique
+03. MRPHLNDR X Waves On Waves – Grace (Progressive Pick)
+04. Laura van Dam ft. Dan Soleil – Never Feel Alone Again(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E6B67D8809EB4F418F2998179D1F27A7F45972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800833   (15442) от 06.06.2025
 
 VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -657,64 +744,6 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820039   (761) от 26.09.2025
-
-VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten ft. HALIENE – Wherever You Are (Hel:sløwed Reprint)
-02. Arni – Drill
-03. JOA – No Games
-04. Eugenio Tokarev & Goontha – Out Of My Mind(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F35BDB06B8BB52E6C6816A7D2B583C2ED35A523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820040   (742) от 26.09.2025
-
-VA - Ori Uplift - Uplifting Only Episode 659 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADOVE – Lavender Field (Intro Edit)
-02. Illitheas – Solitude
-03. Global Influence – Depth Of My Dreams
-04. DJ Tony Magic & Yuri Melnikov – Message From The Past(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79D41B51CDFF0833BB6221BC37F2BE455940CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

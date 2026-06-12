@@ -1,3 +1,29 @@
+###  Публикация: 617213   (971741) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video)1080i HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве, многоканальное аудио.Жанр: разныйПеревод: ОтсутствуетПродолжительность: ~ 01:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616190   (971675) от 12.02.2013
 
 Romantic Collection (Hits 1983-2001)TVRip
@@ -683,35 +709,6 @@ Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979703   (958192) от 27.01.2016
-
-ABBA – Number Ones (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme! Gimme! Gimme! (A Man After Midnight)
-02. Mamma Mia
-03. Dancing Queen
-04. Super Trouper(   Читать дальше...   )Жанр: Europop, DiscoПеревод: ОтсутствуетПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADE29579240FC3DF27FD1AE1CDBD91E614308AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

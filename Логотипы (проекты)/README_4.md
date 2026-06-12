@@ -1,3 +1,55 @@
+###  Публикация: 1098607   (907977) от 30.01.2017
+
+Проекты - VideoHive - Minimal Logo Reveal - 19282610 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Logo Reveal - простая чистая анимация для раскрытия логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD3D2B4BD948702ED3A609E230FA70CE1AD4C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099068   (906168) от 31.01.2017
+
+Проекты - VideoHive - Colorful Logo - 19310908 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный и красивый проект для демонстрации Вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8CEC547F1949BBB7BF3BB61CD1078B52753BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992001   (903940) от 29.02.2016
 
 Проекты - VideoHive - Vibrant Particles Logo Reveal [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B14B5CF62B59AAC83E599EAC279A8E7C2B7C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494545   (887088) от 08.09.2021
-
-Проекты - VideoHive - Ancient Logo - 33298570 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887088.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ancient Logo» - проект, который можно использовать не только в качестве самостоятельного ролика для показа вашего логотипа, но и как вступительную заставку к вашему видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB492E1FE2F4F8DA66548A3E609914208F9014F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372555   (884660) от 03.04.2020
-
-Проекты - VideoHive - Neon Stroke Logo - 23118199 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neon Stroke Logo - продемонстрируйте свой логотип в изящной неоновой анимации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7231350DB94683C5E979173601FF64F4D3D686AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

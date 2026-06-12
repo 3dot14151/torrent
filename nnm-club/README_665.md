@@ -1,22 +1,22 @@
-###  Публикация: 1850104   (1054289) от 26.01.2026
+###  Публикация: 1851022   (1054823) от 31.01.2026
 
-Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PDF] [EN]
+Илья Глазырин | Let's come together: Эффективная коммуникация внутри команды (2026) [MP3, Илья Глазырин]
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emphasizing the most important physical signs needed to determine an underlying condition or disease, McGee's Evidence-Based Physical Diagnosis, Sixth Edition, offers vital insight and instruction on the fundamental clinical skill of physical diagnosis. Internationally renowned author Dr. Steven McGee clearly shows how to pare down the multiple tests needed to confirm (   Читать дальше...   )Жанр: Медицина, Общая практикаЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+Результативность команды во многом, если не во всем, зависит от качественной коммуникации между ее участниками. Слышат ли коллеги друг друга, готовы ли к конструктивному диалогу, не мешает ли им личная неприязнь, умеют ли взаимодействовать без манипуляций? Как выстроить эффективную коммуникацию внутри команды? Автор дает большой и интересный инструментарий для решения (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПРОПродолжительность: 04:17:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
+magnet:?xt=urn:btih:E4865A645C1320A1067CC1DA0191E9ECA12E3A93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850062   (1054288) от 26.01.2026
+###  Публикация: 1851071   (1054822) от 31.01.2026
 
-Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions for Mastering Data Transformation in Excel and Power BI (2025) [PDF, EPUB] [EN]
+Шрифты - Github - Lilex [OTF, TTF, WOFF2]
 
->>Компьютерная литература
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This comprehensive guide is designed to address the most frequent and challenging issues faced by users of Power Query, a powerful data transformation tool integrated into Excel, Power BI, and Microsoft Azure. By tackling 96 real-world problems with practical, step-by-step solutions, this book is an essential resource for data analysts, Excel enthusiasts, and Power (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Programming, Databases & Big DataЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Lilex — это расширенный шрифт, созданный на основе IBM Plex Mono и предназначенный для разработчиков. Он содержит лигатуры, специальные символы (например, PowerLine), греческие символы и существует в вариативном формате.Формат: OTF, TTF, WOFF2Поддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60D1E57C8C6C71FCB5982CF96C3AB13BDF584E28
+magnet:?xt=urn:btih:90840D606B02C05648244A4D7161B872FC29504B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,27 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850059   (1054287) от 26.01.2026
+###  Публикация: 1851025   (1054821) от 31.01.2026
 
-David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
+Юлия Фишер | Во власти чувств. Как они рождаются и как взять их под контроль (2021) [MP3, Лина Новач]
 
->>Компьютерная литература
->>нет
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-An intuitive guide for professionals wanting to prepare for the future of Microsoft Excel by building Python in Excel skills and unleashing the power of their data.
-
-A hands-on guide to the foundational Python in Excel skills you’ll need to understand and use this powerful analytics tool, Python in Excel Step-by-Step is for current Excel users interested in expanding (   Читать дальше...   )Жанр: Spreadsheet Books, Data Mining, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+Чувства окружающих скрыты от нас, если только люди не решат ими поделиться. А порой мы игнорируем и собственные и очень удивляемся, когда наконец их опознаем. Чувства могут быть настоящей загадкой. А вот эмоции можно измерить. В чем между ними разница и почему она важна для каждого из нас?
+Автор этой книги, доктор медицинских наук и научный журналист, решила разобраться, (   Читать дальше...   )Жанр: Здоровье и медицина, Интересные фактыИздательство: БОМБОРАПродолжительность: 09:31:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:694DAF1CA7123670232BB63A0C28B2259FF4D12A
+magnet:?xt=urn:btih:17B2DE545510F4E4B8C9C7B5A840F94A92643044
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +77,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850207   (1054286) от 26.01.2026
+###  Публикация: 1851020   (1054820) от 31.01.2026
 
-Проекты - VideoHive - Soft Blur Transitions - 61544842 [AEP]
+Дэниел Йон | За секунду до: как мозг конструирует будущее, которое становится настоящим (2026) [MP3, Юрий Кузаков]
 
->>Проекты
->>Элементы (проекты)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои видеопроекты на новый уровень с помощью Soft Blur Transitions — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
+О том, как мозг определяет то, что вы видите, думаете и чувствуете.
+Ваш мозг объясняет мир или галлюцинирует?.. Пока вы думаете, что наблюдаете реальность, разум воображает, какой она могла бы быть, – и подсовывает вам эти «факты». Дэниел Йон, когнитивный психолог, ярко демонстрирует, как на самом деле работает мозг, опираясь на свежие данные нейронаук и экспериментов. (   Читать дальше...   )Жанр: Когнитивная психология,  НейробиологияИздательство: МИФПродолжительность: 10:53:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:893E6861B49527C594DC76A4CAF0976A5C1FCDC7
+magnet:?xt=urn:btih:04CADA7742E4C38FB6D8866A872289E1497C6FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850058   (1054285) от 26.01.2026
+###  Публикация: 1851043   (1054819) от 31.01.2026
 
-М. Руссо, А. Феррари | Подробное руководство по DAX. Бизнес-аналитика с Microsoft Power BI, SQL Server Analysis Services и Excel (2021) [PDF]
+Андрей Курпатов | Лекция «Ходячие мертвецы. Открывая себя заново!» (2026) [MP3, Андрей Курпатов]
 
->>Компьютерная литература
->>нет
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расширенная и дополненная с учетом современных требований и техник, эта книга представляет собой наиболее полное руководство по языку DAX, применяемому в области бизнес-аналитики, моделирования данных и анализа. Эксперты Microsoft BI Марко Руссо и Альберто Феррари излагают как основы, так и отдельные нюансы работы с DAX: от простых табличных функций до продвинутых (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: OCR
+На протяжении столетия психологи находились в неопределенности: одни утопали в загадках бессознательного, другие называли наш разум «черным ящиком», третьи надеялись на призрачную экзистенцию. Однако теперь эта неопределенность развеяна: нейронаука раскрыла тайны «черного ящика» — бессознательное больше не скрыто, а экзистенция признана иллюзией. Теперь стоит задуматься, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 01:32:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D582869850CEDB41A8A89EA999B42F715D6937EE
+magnet:?xt=urn:btih:C09602205A2E90EE442B85C4154772F376E7F7AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849634   (1054284) от 26.01.2026
+###  Публикация: 1851060   (1054818) от 31.01.2026
 
-Анастасия Ватутина | Стылая вода. Круговорот (Часть 3) (2025) [MP3, Юлия Драгунова]
+Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Win Игры
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если бы вам предложили разом избавиться от всего, что причиняет вам боль, вы бы согласились? Стоя на берегу стремительно несущейся реки, Яна раздумывала, правильно ли поступает, соглашаясь принять участие в ритуале. За ее спиной слышался монотонный голос ведьмы, ледяной ветер трепал распущенные волосы, а темные глубины манили и звали, обещая покой и забытье… И как (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: ЛитРесПродолжительность: 06:48:02
+Постройте Великую стену, развивайте свою деревню и оставьте наследие в этом захватывающем симуляторе строительства и управления, действие которого происходит в средневековом Китае! Начните свой путь как скромный житель деревни, которому поручено грандиозное задание - строительство Великой стены. Управляйте своим поселением, назначайте задания NPC и развивайте ключевые (   Читать дальше...   )Тип издания: RepackРазработчик: SolidGamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A75CACCB31E030025C19661C7A2B4CCB70626B3
+magnet:?xt=urn:btih:A6CEEFCA01879820C339713F2571385C7DE46235
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +156,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849633   (1054283) от 26.01.2026
+###  Публикация: 1851075   (1054817) от 31.01.2026
 
-Анастасия Ватутина | Плач-камень. Круговорот (Часть 2) (2025) [MP3, Юлия Драгунова]
+Backcraft - Faster Than You Run (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После событий последних месяцев Яна чувствует, что ей необходим отдых и свежий воздух. Вместе с подругой она отправляется в недавно открывшийся загородный отель с причудливым названием Плач-камень. Никто из них не ожидал, что спонтанный отпуск превратится в самый настоящий кошмар, а Яна окажется подозреваемой в совершении ритуального убийства.Жанр: Детектив, мистика, триллерИздательство: ЛитРесПродолжительность: 07:02:09
+01. Intro 02:15
+02. Catch Me If You Can 05:42
+03. Jumping In The Backcraft House 07:12
+04. The Wheel Of Stone 04:47(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:554D25D12A6A701BA24C0EF77678B4C60349363B
+magnet:?xt=urn:btih:BF5E79343173DD7E6435F159DA637698C17A5DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,432 +185,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850061   (1054282) от 31.01.2026
+###  Публикация: 1851073   (1054816) от 31.01.2026
 
-О. Зверева, В. Сальников | Операционная система Windows: администрирование и настройка рабочей среды пользователя (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие ориентировано на студентов информационных образовательных направлений, но будет также полезно всем, кто использует на своих персональных компьютерах операционную систему Windows. Одной из первых задач в работе на персональной технике – это настройка ее так, чтобы было удобно работать в созданной среде. Кроме описания практических приемов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УМЦ-УПИФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA81DEDEE62B91D38A7279FB77EE67C9BF22C726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850063   (1054281) от 26.01.2026
-
-Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through business intelligence, predictive analytics, and text generation (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the full potential of Power BI with the integration of AI and machine learning techniques using OpenAI
-Key Features
-Take flight with Power BI machine learning and OpenAI using hands-on examples from the FAA airline data
-Unlock the full potential of Power BI for advanced analytics using OpenAI(   Читать дальше...   )Жанр: Computing & Internet Databases, Computing & Internet ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A058BF3DEF5F9568074DBEE7CCBDBD5B5AC7BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850102   (1054280) от 26.01.2026
-
-John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054280.jpg" />
-</div>
-
-
-###  Подробнее
-
-The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850099   (1054279) от 26.01.2026
-
-Lee Ambrosius | AutoCAD & AutoCAD LT All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054279.jpg" />
-</div>
-
-
-###  Подробнее
-
-An easy-to-read and up-to-date collection of resources explaining the most recent versions of AutoCAD and AutoCAD LT
-
-In the brand-new second edition of AutoCAD & AutoCAD LT All-in-One For Dummies, consultant and industry expert with more than 30 years of experience using and extending AutoCAD along with being a 20-year veteran of AutoCAD education, Lee Ambrosius, (   Читать дальше...   )Жанр: Computer Aided Design, 3-D Graphics Software, Business & Home SoftwareЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F164AD5F762D3E464736866B4C24AFDC174EB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850096   (1054278) от 26.01.2026
-
-С.Н. Никифоров | Прикладное программирование. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для помощи студентам при выполнении лабораторных работ в среде Excel и VBA. Комментируются некоторые особенности программирования, приводятся и поясняются варианты программ. Предназначено для студентов всех специальностей.Жанр: Компьютерная литература, ExcelИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734600A2D00DFE6D18101047112A18F4D1D2F1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850095   (1054277) от 26.01.2026
-
-Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the potential of analytics languages for advanced data manipulation and visualization (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seamlessly integrate the Python and R programming languages with spreadsheet-based data analysis to maximize productivity
-
-Book Description
-– Extending Excel with Python and R is a game changer resource written by experts Steven Sanderson, the author of the healthyverse suite of R packages, and David Kun, co-founder of Functional Analytics.(   Читать дальше...   )Жанр: Data Modeling & Design, Data Processing, Computer ScienceЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F40A3C3FA44C75DBC6BA2E4368E727740C3C46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850092   (1054276) от 26.01.2026
-
-Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Embark on a transformative journey into the world of Pester and elevate your PowerShell scripting to new heights of robustness, reliability, and efficiency. This comprehensive beginner's guide provides a hands-on approach to PowerShell testing using Pester, empowering you to enhance your code quality with confidence.
-The book starts with an introduction to Pester, (   Читать дальше...   )Жанр: Microsoft C & C++ Windows Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE324CDB2C9097FD2A13F92DF841B49AE0DD254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850093   (1054275) от 26.01.2026
-
-Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Interactive Interfaces with VBA (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Explore and learn advanced techniques for working with graphical, interactive interfaces that can be built in Access.
-This book starts with best practices and tips to write code using VBA, and covers how to implement them in a real-world scenario. You will learn how to create and use VBA classes. An introduction to the binary code and the "bit vector" technique (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F975C6C919F08B75D274DE2206FCF0C3F17C0A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850094   (1054274) от 26.01.2026
-
-Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Build business intelligence with insight from a professional
-
-Microsoft Power Platform For Dummies covers the essentials you need to know to get started with Microsoft Power Platform, the suite of business intelligence applications designed to make your enterprise work smarter and more efficiently. You'll get a handle on managing and reporting data with Power BI, (   Читать дальше...   )Жанр: Business Intelligence Tools, Microsoft Office Guides, Microsoft ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D49B95C58DC7671BB642E9A3840E585763408B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850091   (1054273) от 26.01.2026
-
-К. Скотт Проктор | Бюджетирование и финансовые расчеты с помощью Microsoft Excel (2013) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой практическое руководство по использованию мощного инструмента (Microsoft Excel) для выполнения любой сложной задачи, например, построения финансовой модели. Кратко и внятно рассказывается об использовании электронных таблиц в финансовом планировании и бизнес-расчётах. Несмотря на быструю смену версий электронных таблиц базовые функции, (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft ExcelИздательство: СмартБукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888492F75AA326B63439B822C431CA4A19B12439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850089   (1054272) от 26.01.2026
-
-Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Create complex scripts in PowerShell and learn how to connect them to cloud services like Azure and Azure AD. This updated version of the book will help you learn PowerShell by providing small “cheat” snippets that you can combine to write efficient and effective scripts.Жанр: Microsoft Programming, Computer HackingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9766ABB2681C26B5E440C98BC315D5DF4CB3176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850087   (1054271) от 01.02.2026
-
-В.Ю. Арьков | Командная строка CMD. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучая операционные системы, важно и понимать теорию, и уметь практически работать на компьютере. Функции любой операционной системы сводятся к понятию управления. Реализация этих функций — это выбор интерфейса пользователя: командная строка, файловый менеджер или оконная система. В курсе ОС мы рассматриваем все три вида интерфейса — практически, но с пониманием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850086   (1054270) от 26.01.2026
-
-Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filled with tips, tricks, and techniques, this easy-to-use book is the perfect resource. You'll find more than 350 recipes for over a dozen topics covering formulas, PivotTables, charts, Power Query, and more. Each recipe poses a particular problem and outlines a solution that you can put to use right away—without having to comb through tutorial pages.
-
-Whether you're (   Читать дальше...   )Жанр: Microsoft Excel Guides, Business Intelligence Tools, Spreadsheet BooksЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577AABC8F56449D4B999EBB0B224C7AC6E25ED11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850078   (1054269) от 26.01.2026
-
-Н. Комолова, А. Клименко | Программирование на VBA в Excel 2019 (2020) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга научит самостоятельно создавать приложения для автоматизации работы в программе Microsoft Office Excel 2019 с использованием макросов и языка программирования Visual Basic for Applications (VBA). Приведена информация о новинках программы, а также сервисах Power по работе с данными. Даны теоретические сведения о программировании, элементах объектной модели Excel, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A19FEFF4886410EF021BAAE64FA366A79F232FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850064   (1054268) от 26.01.2026
-
-Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power Query (M). Mastering complex data transformation with Power Query (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how to use the Power Query M formula language and its functions effectively for better data modeling and impactful business intelligence reports.
-Key Features
-Get comprehensive coverage of fundamental and advanced Power Query concepts
-Gain hands-on experience with practical examples based on real-world problems(   Читать дальше...   )Жанр: Microsoft Excel Guides, Enterprise Applications, Data ProcessingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E971C9FB35A8FF269FD187DEB95FBF42EF7922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850208   (1054267) от 26.01.2026
-
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/1080p]
+Зараза / Cold Storage (2026) Telecine [H.264/1080p] [звук с TS] [AD]
 
 >>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+Паразитический грибок вырывается с самого нижнего уровня бывшей военной базы США, где он был законсервирован правительством десятилетия назад. Повышение температуры под землёй провоцирует размножение этого заразного и быстро мутирующего организма. Он начинает воздействовать на всех обитателей комплекса, контролируя разум и разрушая тело. Тикейк и Наоми работают на (   Читать дальше...   )Производство: Франция, США / StudioCanal, Ciné+, OCS, Bibi Film tvЖанр: ужасы, фантастика, комедияРежиссер: Джонни КэмпбеллАктеры: Джо Кири, Джорджина Кэмпбелл, Лиам Нисон, Лесли Мэнвилл, Сози Бэйкон, Аарон Хеффернан, Эндрю Брук, Роб Коллинз, Даррел Д’Силва, Клер ХолманПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:04Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52BA11D089E2B2DDB6C76B8E05BF59D59A546874
+magnet:?xt=urn:btih:6A24AEBF66F3C12EEC1438E5F76AF82B8C05F110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +211,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850209   (1054266) от 26.01.2026
+###  Публикация: 1851076   (1054815) от 31.01.2026
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/720p]
+Зараза / Cold Storage (2026) Telecine [звук с TS] [AD]
 
 >>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+Паразитический грибок вырывается с самого нижнего уровня бывшей военной базы США, где он был законсервирован правительством десятилетия назад. Повышение температуры под землёй провоцирует размножение этого заразного и быстро мутирующего организма. Он начинает воздействовать на всех обитателей комплекса, контролируя разум и разрушая тело. Тикейк и Наоми работают на (   Читать дальше...   )Производство: Франция, США / StudioCanal, Ciné+, OCS, Bibi Film tvЖанр: ужасы, фантастика, комедияРежиссер: Джонни КэмпбеллАктеры: Джо Кири, Джорджина Кэмпбелл, Лиам Нисон, Лесли Мэнвилл, Сози Бэйкон, Аарон Хеффернан, Эндрю Брук, Роб Коллинз, Даррел Д’Силва, Клер ХолманПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:04Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8830DADF7E622DAEA29E753EE8DC087FAB00212
+magnet:?xt=urn:btih:F9E6A7753724822CB82530AA10E9ECD882F5B912
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +237,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850211   (1054265) от 26.01.2026
+###  Публикация: 1851078   (1054814) от 31.01.2026
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DLRip [H.264]
+Главное - любить / L'important c'est d'aimer (1975) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа «Американская ночь» Кристофера Франка... Серве и Надин познакомились на съёмочной площадке. Он - фотограф, зарабатывающий на хлеб порноснимками. Она - актриса-неудачница. Желая помочь женщине, в которую влюбился с первого взгляда, Серве покупает для неё роль в новом спектакле. Надин оказывается между двумя мужчинами. Её муж был рядом много лет, (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Albina Productions S.a.r.l., Rizzoli Film, TIT Filmproduktion GmbHЖанр: драма, мелодрамаРежиссер: Анджей ЖулавскийАктеры: Роми Шнайдер, Фабио Тести, Жак Дютрон, Клаус Кински, Ги Мэрес, Роже Блен, Клод Дофен, Мишель РобенПеревод: профессиональный многоголосый, профессиональный двухголосый (HTB+), авторский (Леонид Машинский), любительский одноголосый (В. Гирон)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18DE47731A1C945B8BC510858381C1FD45E932C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851079   (1054813) от 31.01.2026
+
+FabFilter - Total Bundle 2026.01.15 VST, VST 3, AAX, CLAP (x64) RePack by Team V.R. [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054813.jpg" />
+</div>
+
+
+###  Подробнее
+
+FabFilter - Total Bundle - это полный пакет всех плагинов от FabFilter, объединяющий эквалайзеры, компрессоры, лимитеры, деэссеры, динамические эквалайзеры, сатурацию, фильтры, реверберации и синтезаторы. Это универсальное решение для звукорежиссёров, продюсеров, микс-инженеров и мастеринговых специалистов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3121956078A1FD5039BD1D92908B085ECDF8ACB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851081   (1054812) от 01.02.2026
+
+Острова / Islands (2025) BDRip [H.264]
 
 >>Горячие новинки
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+Том, ранее известный как профессиональный игрок в теннис, оказывается на тропическом острове, работая тренером в курортном отеле. Его задачей становится подавать мячи гостям отеля. Жизнь Тома начинает меняться, когда он знакомится с одной из посетивших остров семей. Это знакомство обещает стать для него возможностью обрести новый смысл в жизни и вырваться из монотонности (   Читать дальше...   )Производство: Германия / Augenschein Filmproduktion, Deutscher Filmförderfonds (DFFF), Film- und Medienstiftung NRWЖанр: триллер, драма, криминалРежиссер: Ян Оле ГерштерАктеры: Фатима Адум, Джек Фартинг, Стэйси Мартин, Сэм Райли, Дилан Торрелл, Агнес Линдстрём Больмгрен, Бруна Кузи, Рамиро Блас, Пеп Амброс, Ахмед БуланПеревод: Дублированный (UltradoxStudio)Язык озвучки: русский, английскийСубтитры: русские (forced, full - AI), английские, испанскиеПродолжительность: 02:01:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA5A5393B6103F36A43088DC855AA33C8AD5519E
+magnet:?xt=urn:btih:462BCBB7465CF235D94203AA573DF4754BFC6DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,25 +315,374 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850122   (1054264) от 27.01.2026
+###  Публикация: 1851068   (1054811) от 31.01.2026
 
-Восемь / 8 (2025) WEBRip [H.264/1080p] [MVO]
+Amamschool, Анастасия Масленко, Анастасия Моисеенко | Современный художник. Премиум программа (2025) WEB-DL [AD] [RU]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Октавио и Адела рождаются в момент провозглашения Второй Испанской Республики. Их жизни будут пересекаться восемь раз, отражая в непростой любви пары бурную историю всей Испании.Производство: Испания / Latido Films, Eidan Produce, Bilbao Bizkaia Film Commission, Barbazul La Pelicula AIE, Diputación Foral de Bizkaia, Media Gameworks, Morena Films S.L., Radio Televisión Española (RTVE), Movistar+Жанр: драмаРежиссер: Хулио МедемАктеры: Хавьер Рей, Тамар Новас, Лорето Маулеон, Карла Диас, Мария Исаси, Альваро МортеПеревод: Многоголосый (Официальный)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38
+С нашей программой вы всего за 2,5 месяца:
+Создадите полноценное портфолио из 17 востребованных работ. Осваивая наши техники, вы сможете повторить любую картину из Pinterest.
+Поймёте, как зарабатывать на своём творчестве. Найдёте первых заказчиков и сделаете их постоянными. Узнаете, как подавать заявки в известные галереи и участвовать в выставках.
+Станете частью (   Читать дальше...   )Производство: AmamschoolЖанр: видеокурс, обучающий курс, графика, дизайн, рисованиеЯзык озвучки: русскийПродолжительность: 21:46:58Реклама: наложение на видео (плашка спонсоров и QR-код)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17F7A634E8AA2FD28C885C7AABF4BD6B6A40BA4E
+magnet:?xt=urn:btih:2B6F6D75144A81711C17F1F44B18F1B162A0685C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851089   (1054810) от 31.01.2026
+
+Говорящие с ветром / Windtalkers (2002) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [Theatrical Cut] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война. Америка ведет ожесточенные бои с японцами в Тихом океане. Японцы искусно расшифровывают секретные американские радиограммы, что вынуждает американское правительство завербовать несколько сотен индейцев Навахо, чтобы использовать их язык в качестве секретного кода. Морскому пехотинцу Джо Эндерсу дается задание охранять Бена Яхзи, который знает (   Читать дальше...   )Производство: США / Lion Rock Productions, Metro-Goldwyn-MayerЖанр: военный, боевик, драма, историяРежиссер: Джон ВуАктеры: Николас Кейдж, Адам Бич, Петер Стормаре, Ноа Эммерих, Марк Руффало, Брайан Ван Холт, Мартин Хендерсон, Роджер Уилли, Фрэнсис О’Коннор, Кристиан СлэйтерПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6D6DA4DCF0E9AB81F36A65FC1FE4282CCC720D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851091   (1054809) от 31.01.2026
+
+Три короля / Three Kings (1999) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирак, март 1991-го года. Американцы празднуют победу — изгнание войск Саддама Хусейна из Кувейта. В руки трёх солдат и майора спецназа Арчи Гейтса попадает секретная карта, найденная в… заднем проходе одного из иракских воинов. На карте указано место, где спрятано золото Саддама, награбленное в Кувейте.Производство: США, Австралия / Atlas Entertainment, Coast Ridge, Junger Witt Productions, Village Roadshow Pictures, Village-A.M. Partnership, Warner Bros., Witt/Thomas ProductionsЖанр: боевик, драма, комедия, военный, историяРежиссер: Дэвид О. РасселлАктеры: Джордж Клуни, Марк Уолберг, Айс Кьюб, Спайк Джонс, Клифф Кёртис, Нора Данн, Джейми Кеннеди, Саид Тагмауи, Майкелти Уильямсон, Холт МаккэлланиПеревод: Дублированный (BD CEE)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6091A43E07DD9880F1CA36017E22336E95C03826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851096   (1054808) от 31.01.2026
+
+Хулиганы Зелёной улицы / Green Street Hooligans (2005) BDRip [AV1/2160p] [4K, SDR, 10-bit] [MVO] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент факультета журналистики Мэтт Бакнер отчислен из Гарварда за преступление, которого не совершал. Его многообещающая карьера пошла коту под хвост, его будущее туманно. В поисках убежища молодой человек бежит в Лондон к своей замужней сестре Шэннон. Её муж знакомит Мэтта со своим младшим братом Питом. Сдружившись с Питом, Мэтт открывает для себя мир футбола. (   Читать дальше...   )Производство: Великобритания, США / Baker Street, Odd Lot Entertainment, Yank Film FinanceЖанр: драма, криминал, военный, спортРежиссер: Лекси АлександрАктеры: Элайджа Вуд, Чарли Ханнэм, Клэр Форлани, Марк Уоррен, Лео Грегори, Джефф Белл, Киран Бью, Генри Гудман, Кристофер Хехир, Теренс ДжейПеревод: Многоголосый профессиональный (CP Digital, Tycoon-Studio)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E6590D36223F7E1D2F51F22A9FDBC2A0C2C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851094   (1054807) от 31.01.2026
+
+Голова в облаках / Head in the Clouds (2004) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые ирландский парень Гай увидел Гильду Бессе в весьма эксцентрической ситуации, когда учился в университете. Потом они расстались, потом вновь встретились… И судьба не единожды сводила — разводила Гая и Гильду — как в разгульные 1930-е, так и в тревожные предвоенные, и в трагические военные годы. Богатая и избалованная Гильда вела достаточно свободный образ (   Читать дальше...   )Производство: Великобритания, Канада, США / Dakota Films, Movision, Remstar Films, Spice Factory Ltd., Tusk ProductionsЖанр: драма, мелодрама, военныйРежиссер: Джон ДайганАктеры: Шарлиз Терон, Пенелопа Крус, Стюарт Таунсенд, Томас Кречман, Стивен Беркофф, Давид Ла Эй, Карин Ванасс, Гэбриел Хоган, Питер Коккет, Элизабет ШувалидзеПеревод: Дублированный (CPIG)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249F6F992F31027AF1C4816B2A05C6628C9A8FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851093   (1054806) от 31.01.2026
+
+Гордость и предубеждение / Pride & Prejudice (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, конец XVIII века. Родители пятерых сестер Беннет озабочены тем, чтобы удачно выдать дочерей замуж. И потому размеренная жизнь солидного семейства переворачивается вверх дном, когда по соседству появляется молодой джентльмен - мистер Бингли...
+
+Само собой, среди друзей нового соседа оказывается немало утонченных аристократов, которые не прочь поухаживать за (   Читать дальше...   )Производство: Великобритания, Франция, США / Focus Features, Scion Films Limited, Studio Canal, Universal Pictures, Working Title FilmsЖанр: драма, мелодрамаРежиссер: Джо РайтАктеры: Кира Найтли, Мэттью Макфэдиен, Розамунд Пайк, Саймон Вудс, Дональд Сазерленд, Бренда Блетин, Джена Мэлоун, Кэри Маллиган, Талула Райли, Том ХолландерПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3202A0048675C699D78872D5D6177E4CB55ED976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851095   (1054805) от 31.01.2026
+
+Техасская резня бензопилой: Начало / The Texas Chainsaw Massacre: The Beginning (2006) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Theatrical Cut] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья с подружками отправляются в автомобильное путешествие, которое должно стать последним развлечением перед отправкой во Вьетнам. По дороге они попадают в аварию, и тут появляется местный шериф, знакомство с которым становится началом сущего кошмара: ребята оказываются в мрачном доме, где проживает беспощадный убийца по прозвищу Кожаное Лицо.Производство: США / New Line Cinema, Next Entertainment, Platinum Dunes, Texas Chainsaw Productions, Vortex/Henkel/HooperЖанр: ужасыРежиссер: Джонатан ЛибесманАктеры: Джордана Брюстер, Тейлор Хэндли, Диора Бэрд, Мэтт Бомер, Р. Ли Эрми, Эндрю Бринярски, Ли Тергесен, Терренс Эванс, Кэти Ламкин, Мэриетта МэричПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E89C87DEB17768A4DF50B7AA04FFD4215690146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851086   (1054804) от 31.01.2026
+
+Бразилия / Brazil (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм Лоури вполне доволен жизнью. Он работает мелким служащим и согласен мириться с необустроенным бытом вопреки воле матери, входящей в элиту системы. Но внезапно он встречает девушку, которую постоянно видит в своих снах. Чтобы снова встретить её, он решается сменить работу.Производство: Великобритания, США / Embassy International PicturesЖанр: фантастика, драма, комедияРежиссер: Терри ГиллиамАктеры: Джонатан Прайс, Роберт Де Ниро, Кэтрин Хелмонд, Иэн Холм, Боб Хоскинс, Майкл Пэйлин, Иэн Ричардсон, Питер Вон, Ким Грайст, Джим БродбентПеревод: Многоголосый профессиональный (Позитив, ТВ3)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98441105CB1508EF915B7266743F0784D0BBC0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851088   (1054803) от 31.01.2026
+
+Нападение на 13-й участок / Assault on Precinct 13 (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054803.jpg" />
+</div>
+
+
+###  Подробнее
+
+13-й полицейский участок готовится к встрече Нового года. Но снежная буря меняет их планы и разворачивает к ним спецавтобус с преступниками. Полицейские запирают их и возвращаются к празднованию. Однако вскоре вооружённые люди в масках нападают на участок. Полицейские вынуждены объединиться с преступниками, чтобы выжить этой ночью.Производство: Франция, США / Biscayne Pictures, Liaisons Films, Rogue Pictures, Why Not ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Жан-Франсуа РишеАктеры: Итан Хоук, Лоренс Фишбёрн, Гэбриел Бирн, Мария Белло, Дреа де Маттео, Джон Легуизамо, Брайан Деннехи, Джа Рул, Карри Грэм, Аиша ХайндсПеревод: Дублированный (West Video)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A2D7852032BCAC1692580E35ED3B25EC27912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851087   (1054802) от 31.01.2026
+
+Пудра / Powder (1995) WEBRip [AV1/2160p] [4K, SDR, 10-bit] [MVO] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054802.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пудра» - это странное прозвище ученики дают своему новому однокласснику Джереми. Сверстники пугаются его необычной внешности, мертвенно - бледной кожи, испепеляющего взгляда, проникающего в самое сердце собеседника.
+Но вскоре они понимают, что Пудра обладает сверхъестественными способностями, и за белым холодом его лица бушует пламя невероятной энергии. Так кто (   Читать дальше...   )Производство: США / Caravan Pictures, Daniel Grodnik Productions, Hollywood Pictures, Itasca PicturesЖанр: фантастика, фэнтези, драмаРежиссер: Виктор СальваАктеры: Шон Патрик Флэнери, Мэри Стинберген, Джефф Голдблюм, Лэнс Хенриксен, Брэндон Смит, Брэдфорд Татум, Сьюзен Тайррелл, Мисси Крайдер, Рэй Уайз, Эстебан ПауэллПеревод: Многоголосый профессиональный (1 канал), Двухголосый профессиональный (НТВ+)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BCBDEAF95C584A3D6E104F2DD76AF59F8863AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851085   (1054801) от 31.01.2026
+
+Идеальное убийство / A Perfect Murder (1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий бизнесмен Стивен Тэйлор, испытывающий серьезные трудности на работе, грозящие ему разорением, узнает, что жена Эмили, женщина очень богатая, изменяет ему с художником Дэвидом.
+
+Наведя справки, он узнает, что Дэвид вовсе не художник, а брачный аферист с солидным «послужным» списком и рядом отсидок в тюрьме. Встретившись с Дэвидом, Стивен предлагает ему (   Читать дальше...   )Производство: США / Kopelson Entertainment, Warner Bros. PicturesЖанр: триллер, драма, криминалРежиссер: Эндрю ДэвисАктеры: Майкл Дуглас, Гвинет Пэлтроу, Вигго Мортенсен, Дэвид Суше, Сарита Чоудри, Майкл П. Моран, Новелла Нельсон, Констанс Тауэрс, Уилл Лиман, Маив МакГуайрПеревод: Дублированный (Мост-Видео, Варус Видео)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F691A25564604CDB0F3C269EA50B57F11BFD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851092   (1054800) от 31.01.2026
+
+Город воров / The Town (2010) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [Theatrical Cut] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054800.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Бостоне каждый год происходит более 300 ограблений банков. И большинство профессионалов, специализирующихся в этой области, живут в округе под названием Чарльстон общей площадью одна квадратная миля. Даг МакРэй — один из них. В отличие от большинства у Дага был шанс на успех, шанс на то, чтобы не идти по криминальному пути своего отца. Однако вместо этого он стал (   Читать дальше...   )Производство: США, Великобритания / GK Films, Legendary Pictures, Thunder Road, Warner Bros. PicturesЖанр: триллер, драма, криминалРежиссер: Бен АффлекАктеры: Бен Аффлек, Ребекка Холл, Джон Хэмм, Джереми Реннер, Блейк Лайвли, Джордж Кэрролл, Оуэн Бурк, Титус Уэлливер, Пит Постлетуэйт, Крис КуперПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D8A1B89F12B2F47A3005A5567ECA453412C864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851047   (1054799) от 31.01.2026
+
+Тень / The Shadow (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [MVO] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054799.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пребывания в буддийском монастыре, бывший беспощадный правитель огромной наркоимперии, а ныне добропорядочный гражданин, скрыв лицо под маской, борется со злом в самом страшном городе мира - Нью-Йорке. Но вот у него появляется соперник не менее могущественный чем он сам - потомок Чингисхана, стремящийся подчинить себе весь мир...Производство: США / Bregman/Baer Productions, Universal PicturesЖанр: фэнтези, боевик, триллер, криминал, детектив, приключенияРежиссер: Рассел МалкэйАктеры: Алек Болдуин, Джон Лоун, Пенелопа Энн Миллер, Питер Бойл, Иэн МакКеллен, Тим Карри, Джонатан Уинтерс, Саб Симоно, Андре Грегори, Брэйди ЦурутаниПеревод: Многоголосый профессиональный (Twister, Amalgama), авторский (Визгунов, Дохалов, Живов)Язык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A98FB9C75B56C577A4ACAEEDF7AA11816DC886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851101   (1054798) от 31.01.2026
+
+Главная дорога (31.01.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кража машины или законная эвакуация: как и зачем угонять свой автомобиль, если банк его забрал за долги предыдущего владельца.
+Заснеженное авто на морозе: какие ценные советы для водителей можно сделать полезными привычками?
+Скольжение в повороте со стояночным тормозом: технику работы с ручником изучил Костя Цзю.
+Опасный маневр: когда опасный маневр на встречке превращаемся (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D55F165722C74038859C0FAB13E78012513D199
 ```
 
 https://mybot314.ru/tekegram_catalog/

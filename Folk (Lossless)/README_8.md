@@ -1,3 +1,128 @@
+###  Публикация: 536439   (513188) от 19.08.2012
+
+Мельница - Ангелофрения (2012) [FLAC|Lossless]<Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562044   (512509) от 07.07.2022
+
+Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bakeina's Dream (00:04:45)
+02 - Golden Cage (00:04:22)
+03 - Quicksand Blues (00:05:29)
+04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539784   (504400) от 28.08.2012
+
+Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fado Vianinha (Fado Vianinha) [02:31]
+02. Promete, Jura (Fado Sergio) [03:53]
+03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
+04. Mais Uma Lua (Fado Varela) [03:38]
+05. Dona Rosa (Fado Bailarico) [02:16]
+06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
+07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
+08. Rosa Da Madragoa (Fado Seixal) [01:54]
+09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
+10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538889   (504061) от 28.08.2012
+
+Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Опасное лето (04:24)
+02. Далеко (04:13)
+03. Шелкопряд (04:14)
+04. А если бы он (04:01)
+05. Ведьма (04:54)
+06. Кувшин (04:27)
+07. Княже (05:46)
+08. Ветер (04:46)
+09. Шаман (06:15)
+10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318954   (490886) от 08.08.2019
 
 Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
@@ -654,122 +779,6 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167552   (414881) от 21.09.2017
-
-LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Light Up My Life (3:38)
-02 - The Rose (3:34)
-03 - Bridge Over Troubled Waters (4:40)
-04 - I Believe (2:22)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711362   (411196) от 16.10.2013
-
-Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country, Pop Country, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (03:46)
-(Fred Foster / Kris Kristofferson)
-02. If (02:29)
-(David Gates)(   Читать дальше...   )Жанр: Country, Pop Country, Country RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1439190274C92924A5308C9C123CFF3160117107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414035   (406805) от 06.10.2020
-
-Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got Struck By Lightning (3:13)
-02. Hurricane (3:10)
-03. Whisky & Blankets (3:57)
-04. Wires Crossed (5:05)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD76D7B7D6B7E2C46EAC58FE6A44C7D4044F93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169097   (403148) от 27.09.2017
-
-Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Truth Is (3:24)
-02 - Nothin' About Love (2:51)
-03 - Waves (2:55)
-04 - First Kiss (2:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
 ```
 
 https://mybot314.ru/tekegram_catalog/

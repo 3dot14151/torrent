@@ -1,3 +1,32 @@
+###  Публикация: 948865   (379581) от 22.10.2015
+
+VA - Vocal Deep House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faithless - I Can't Get No Sleep (Fabrique Remix) [07:32]
+02. Kosheen - Hide U (Jerome Robins Jungle Funk 3 Year Anniversary Edit) [04:49]
+03. Timbaland Feat. Keri Hilson - The Way I Are (Dj Kapral Remix) [04:38]
+04. Celine Dion - My Heart Will Go On (Dj Fat Maxx Ultimate Deep Re-Edit) [08:40](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D27324A0F59BF17C418BF3F28C83BC4CF8909BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949118   (379576) от 22.10.2015
 
 DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Trance, Techno, House, Dance>
@@ -782,41 +811,6 @@ VA - Record Super Chart 657 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66FA99AE48BAC1F21FD59D5577A7E55D1C822764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572336   (378699) от 11.11.2012
-
-VA - Zabaw'ный рассадник (2012) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Beat aka Dj Ритм Feat. Oops Djs - Мама шила мне штаны ( 2009 ) (02:45)
-2. DJ SLON KATYA - Я не дам ( Original radio edit ) (02:51)
-3. dj stiff - Валера настало твое время (electro mix 2012) (03:42)
-4. Tiffany Macphail Tina Moris - Анарексичка я (03:03)
-5. Афродита - Валера (классный микс) (06:35)
-6. Балаган Лимитед - ах уехал (03:01)
-7. Барбарики - Дружба (02:34)
-8. Виктория Дайнеко и Гарик Харламов - Закалебала (02:52)
-9. Виталий Лаврентьев - Клиническая Смерть(качественней чем было)(03:29)
-10. Владимир Высоцкий - Диалог у телевизора (04:25)Жанр: PopПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F654C2F960E9957A940419E254C81A4BF021707C
 ```
 
 https://mybot314.ru/tekegram_catalog/

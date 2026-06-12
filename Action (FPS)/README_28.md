@@ -1,3 +1,55 @@
+###  Публикация: 1251321   (383313) от 09.10.2018
+
+Wolfenstein (2009) [Ru] (1.2) Rip xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383313.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Вторая мировая война в самом разгаре. На всех фронтах идут кровопролитные бои. Но хотя нацистская армия еще сильна, ее продвижение замедлилось. Немецкое командование ищет способы исправить положение и находит их... в ином измерении.Тип издания: RipРазработчик: Raven SoftwareЖанр: Action, Shooter, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E6412681511D65CBC74FFD1B3B71C4E554E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326811   (382510) от 21.09.2019
+
+Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый уникальный боевик от первого лица от разработчиков "Gears of War" и "Painkiller". Epic Games, People Can Fly и Electronic Arts представляют "Bulletstorm" - первоклассный боевик, в игровом процессе которого реализована концепция "Убивай виртуозно".Тип издания: RipРазработчик: Epic Games, People Can FlyЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A656219467A5878967C4A2986D016BA836666E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122542   (382494) от 21.09.2019
 
 Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fighter Bundle]
@@ -624,58 +676,6 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6201D17BD4E68551CD08FB2D9ADF5C59962D26EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254782   (369755) от 15.10.2018
-
-Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369755.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета Medal of Honor Warfighter, новейшего шутера о «реалистичной» войне, лежат воспоминания бойцов элитного подразделения U.S. Tier 1 Operators, не понаслышке знакомых с военными операциями. Вам предстоит на себе ощутить, каково это — сражаться на поле боя в роли солдата самого дисциплинированного и обученного подразделения в мире.Тип издания: RepackРазработчик: DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C99C34AE9B33FBDD484ED9B9475321110C9D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176913   (367155) от 23.10.2017
-
-Neptune: Arena FPS (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический игровой процесс в стиле арены от первого лица, смешанный с современными и футуристическими элементами, где единственное, что имеет значение - это Ваше умение.Тип издания: LicenseРазработчик: Francesco PellacoЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4D2DCAD8FF7C06A5BA26CB86EBB87A6D8E1690
 ```
 
 https://mybot314.ru/tekegram_catalog/

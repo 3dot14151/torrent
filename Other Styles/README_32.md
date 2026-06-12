@@ -1,3 +1,117 @@
+###  Публикация: 1375242   (866934) от 13.04.2020
+
+Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turning
+02. Sun Dappled
+03. Ripples
+04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221512   (866892) от 01.03.2011
+
+Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866892.jpg" />
+</div>
+
+
+###  Подробнее
+
+(10:33) 01. Part 1
+(08:12) 02. Part 2
+(06:57) 03. Part 3
+(10:50) 04. Part 4
+(03:39) 05. Part 5Жанр: New age, Neoclassical, InstrumentalПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374472   (866847) от 13.04.2020
+
+Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadeness
+02. Mea Culpa
+03. Le Roi Est Mort, Vive Le Roi!
+04. Return To Innocence(   Читать дальше...   )Жанр: Enigmatic, New age, PopПродолжительность: 03:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0147A29BCBBDD8915DFC3D9A9530739C43622AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188876   (866445) от 03.04.2010
+
+VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Relax, MeditativeПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999132   (865724) от 21.03.2016
 
 Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
@@ -626,122 +740,6 @@ Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000484   (855823) от 27.03.2016
-
-Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brushstokes   03:20
-02. West Wind   05:24
-03. Be Still My Soul   03:54
-04. Christmans Hymn   02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109928   (855566) от 01.03.2017
-
-Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ong Namo (00:09:30)
-02. Ra Ma Da Sa (00:09:49)
-03. Living Song (00:05:19)
-04. Aad Such (00:09:00)(   Читать дальше...   )Жанр: New Age, Yoga, MantrasПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109905   (855213) от 01.03.2017
-
-VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iggy Pop - Lust For Life (The Prodigy Remix) [05:01]
- 02. High Contrast - Shotgun Mouthwash [02:54]
- 03. Wolf Alice - Silk [04:06]
- 04. Young Fathers - Get Up [03:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F3C82D45BF7A5B60C6CA8EDFA7EE2983FD61A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376862   (854917) от 20.04.2020
-
-Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtrack, orchestral>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mercury
-2. For the Alliance
-3. Dreamer
-4. Cannonball(   Читать дальше...   )Жанр: dubchestral, soundtrack, orchestralПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB59813B1A062D255FDA24589BF501E29603933
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1526960   (737843) от 26.01.2022
-
-VA - Subway Soundz Best Of 2021 (2022) [AAC|~322 Kbps] <Jump Up, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel Culture - Scanners (3:42)
-02. Tomoyoshi, A to C - Avant Garde (4:03)
-03. Slipz - Hurt (Kendrick Remix) (3:39)
-04. Master Error, Amplify, BlckHry - Think About It (4:24)(   Читать дальше...   )Жанр: Jump Up, Drum & BassПродолжительность: 02:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B23CBD75B89D2EE2D4F1D2FC2B23FB115D68D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526952   (737839) от 26.01.2022
-
-VA - FGX (10th Years Anniversary) (2021) [AAC|~337 Kbps] <Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Sobota - Oscillate (6:30)
-02. Holbrook, Skykeeper - Ursa Minor (6:38)
-03. Stan Kolev - Listen (Extended Mix) (7:07)
-04. Max Freegrant, Miss Monique - Stranger Things (Extended Mix) (6:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEF9A9B10722723C5EB89F23A2C73B42B0401A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526966   (737838) от 26.01.2022
-
-VA - Underground Soundz Best Of 2021 (2022) [AAC|~290 Kbps] <Jump Up, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harley D - Walk With Me (5:09)
-02. Froidy, Kyst Cortez - Trend Setter (4:34)
-03. Klay BBj, Nepo, Clikvork, Noek - Chicken Wingz (4:04)
-04. Rebel Culture - The Gods (3:45)(   Читать дальше...   )Жанр: Jump Up, Drum & BassПродолжительность: 03:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AE039EB0D29356080871926A28578F51B7F31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526788   (737837) от 26.01.2022
-
-VA - Urban Streets, No. 1: Urban Chillout Music (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. sarosa - Elektra Glyde (Instrumental Mix) (3:49)
-02. Martin Hiska - Next Time Soon (6:03)
-03. Gary B - Havana Soul (Original Mix) (4:29)
-04. Roberto Bronco - Diving the Deepest (Original Mix) (6:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376B4565443D6D929388127661E4856273E9F5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526794   (737835) от 26.01.2022
 
 VA - Harmonic Lounge Music (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
@@ -726,6 +610,119 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7A29F7E7D1592FC36EACA21E1008DE25FBF5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527054   (737374) от 27.01.2022
+
+VA - The 90's (2022) [AAC|~335 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Vogue (Edit) (4:50)
+02. Alanis Morissette - Ironic (3:49)
+03. Diddy, 112, Faith Evans - I'll Be Missing You (5:07)
+04. The Goo Goo Dolls - Iris (4:50)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D151BC92B2E1DA5B2A84EA2398B0279E419AE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787139   (737225) от 16.05.2014
+
+Академия вампиров / Vampire Academy (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кому известно, что в Америке, в самом сердце Монтаны, имеется настоящая Академия, где вампиры обучаются высокому искусству магии. И почти никто не знает, что в мире идут кровавые вампирские войны и расе мороев противостоит жестокое племя стригоев, вампиров, переступивших черту закона и не гнушающихся убийством. Даже стены Академии, святая святых науки, не слишком надежная защита от происков темных сил. Юная моройская принцесса Лисса и Роза, ее подруга и верный страж, однажды убеждаются в этом, оказавшись в эпицентре грозных событий.Жанр: Ужасы, фэнтези, боевик, комедия, детективПродюсер: Сьюзен Монтфорд, Дон Мерфи, Дипак НаярВ ролях: Зои Дойч, Люси Фрай, Данила Козловский, Доминик Шервуд, Сара Хайланд, Гэбриел Бирн, Сами Гэйл, Ольга Куриленко, Джоэли Ричардсон, Камерон МонахэнПеревод: Многоголосый (закадровый) (BaibaKo)Язык субтитров: Русский, АнглийскийПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC04698124DBF38DF6E2DAC8B3EFA9A67E87ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527391   (736949) от 28.01.2022
+
+VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minus Blue - Ocean Sky (5:23)
+02. Chambre 41 - Promenade No.2 (6:18)
+03. Twentyeight - Faith (4:28)
+04. The Soulful Sun - Loose It (4:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2B9DAB627F4A21BF97818C24E2058FD8076E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527386   (736948) от 28.01.2022
+
+VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pnfa - Along the Way (6:01)
+02. Ganesha Love Duo - Kalkuttas Theme (4:22)
+03. Mindel - Seeds of Love (4:14)
+04. Martin Sponticcia - Super Connect (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF53E8238694A2E7405DEC313C37EBEB0D9CFA7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

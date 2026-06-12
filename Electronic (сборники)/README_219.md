@@ -1,3 +1,31 @@
+###  Публикация: 1716454   (59503) от 16.04.2024
+
+Pawel Wisniewski - Compilation  version 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Homeland • Relax Music
+ 02.  Autumn • Relax Music
+ 03.  Healing • Relax MusicЖанр: Electronic, Instrumental, RelaxПродолжительность: 03:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0B9D6B5494FEB54063ED89B591500BAD845A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716642   (59500) от 16.04.2024
 
 VA - Compilation part 70 (2024) [MP3|320 Kbps] <Electronic>
@@ -717,35 +745,6 @@ VA - Summer Beach Chill Relax (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4034DF37013EF41499B2DCF06FB46D2FA28FC098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734340   (51166) от 03.07.2024
-
-VA - Bossa nova Lounge (2024) 2CD [MP3|320 Kbps] <Bosa Nova, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bossa Nova Covers, Mats & My - Dance Monkey [03:29]
-002. Lua Blanco - A Thousand Miles (Bossa Version) [03:42]
-003. Marcela Mangabeira - With Or Without You (Bossa Version) [03:33]
-004. Sixth Finger, Dew - Patience (Cool Wave Mix) [05:12](   Читать дальше...   )Жанр: Bosa Nova, Chillout, ElectronicПродолжительность: 12:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4265B1B86B56A1ED8FD4B6767E49605B3ACBFB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

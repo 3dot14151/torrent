@@ -1,3 +1,206 @@
+###  Публикация: 1869712   (1068449) от 08.05.2026
+
+Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 北川保昌 - Thoughts 3:09
+2. 北川保昌 - To The Moon 4:09
+3. 北川保昌 - A Little Girl 0:56
+4. 北川保昌 - The Beginning 2:48(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1363D8437AB1988D4FA3D83FB43096B1E92F20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868855   (1067681) от 02.05.2026
+
+VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Lockwood - Morning Clouds (5:38)
+02. Kaisser Bouzriba - Hayeti (5:08)
+03. Marga Sol - Memoria (4:45)
+04. Johny Luv - Palinka (7:32)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1721ADD32322ACF1848319010E1E2332797574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867499   (1066971) от 25.04.2026
+
+VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaytor - Nomad Bazaar (4:04)
+02. Ivan Suvorov - Orchard (5:43)
+03. Gavr - Kamishek (7:22)
+04. The Friend - Vodun (6:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456187E8FE5C79CC5570004A792DECF45D86F163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867545   (1066928) от 25.04.2026
+
+Paul Mauriat - Magic (1982) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come vorrei
+02. Empty Garden
+03. New York New York
+04. Hard To Say I'm Sorry(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78D1A7224ED9105F176D4C057CB9034FEF0FEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866962   (1066732) от 24.04.2026
+
+David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World (3:27)
+02. Someday Soon (4:12)
+03. That's What the Lonely Is For (3:40)
+04. Show the Way (3:44)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 55:06.333 (145 809 300 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E9E0D3AF4B5DA4707AB816302ABDF1D85DB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866507   (1066304) от 21.04.2026
+
+Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Bates - Big Wick Energy (1:48)
+02. Lola Colette - Nowhere to Run (2:54)
+03. Tyler Bates - Sand Wick (2:30)
+04. Tyler Bates - Change Your Nature (1:47)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060138B3A3DB1703D191736EE36A106B1BA0BBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866526   (1066299) от 21.04.2026
+
+Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening (1:44)
+2. Kung-fu  (3:49)
+3. Refrigerator (1:57)
+4. Making Buns (1:42)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AE75D0324869831C89F16C47E6A5298CE32AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865291   (1065984) от 
 
 Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music Hall, Light Music>
@@ -78,64 +281,6 @@ Bond - Shine (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Modern Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0256F9B579B7124DA36BCB281F6B908A0102FFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865939   (1065446) от 18.04.2026
-
-VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065446.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
-2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
-3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
-4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865943   (1065445) от 18.04.2026
-
-VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
-2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
-3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
-4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF177FDC48AFB9EDC95F13B77AC234F379BA680
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,151 +745,6 @@ Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45A551ACBE1BB9E1A62669D0FEBDFF156745C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855357   (1058063) от 23.02.2026
-
-Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Indie Folk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here (3:11)
-02. Rubber Band Man (3:38)
-03. The Banjo Song (3:50)
-04. Run Together (3:39)(   Читать дальше...   )Жанр: Folk Rock, Indie FolkПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E8039C4A2E6F2F900F5513927FED0ABFC9A851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855318   (1057915) от 22.02.2026
-
-Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, OST>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Capri-Revolution
-Damonen
-Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, OSTПродолжительность: 4 CD, 02:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853664   (1057567) от 18.02.2026
-
-Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Что ж вы, девки, приуныли [00:02:22]
-02 - Он в простынях увяз по локоть [00:02:27]
-03 - Я в кольчугу одет [00:03:27]
-04 - Первый снег начал танцы свои до упада [00:01:20](   Читать дальше...   )Жанр: Russian Folk PopПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123F85C0DAD948063B1312016D0F18521000534A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854432   (1057296) от 18.02.2026
-
-VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .cue] <Stage & Screen, Musical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Barrowman - Love Changes Everything (Aspects Of Love) (3:03)
-02. Valerie Masterson - Hello Young Lovers (King And I) (3:15)
-03. Henry Wickham - On The Street Where You Live (My Fair Lady) (2:29)
-04. Josephine Barstow - As Long As He Needs Me (Oliver) (4:18)(   Читать дальше...   )Жанр: Stage & Screen, MusicalПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28901FA4C5FE66327657E260BC8D8C1FE51B886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853569   (1056800) от 13.02.2026
-
-VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Deadushki - Track 01
-2.Deadushki - Track 02
-3.Deadushki - Track 03
-4.Deadushki - Track 04(   Читать дальше...   )Жанр: metal,HardПродолжительность: 00:01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285F4C25F512B88584A5077ABDD077754BA837DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

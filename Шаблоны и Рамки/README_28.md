@@ -1,3 +1,32 @@
+###  Публикация: 1266308   (270786) от 01.12.2018
+
+Шаблоны - Creative Market - Fancy Items Scene Generator - 199128 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор шаблонов предметов и сцен для создания презентаций, брендинга и оформления тематических страниц в декоративном стиле.
+
+440+ предметов
+22 сценыФормат: PSDРазрешение файлов: 2600х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2059D058EF9641B9BD4293B4C34E5F7460CC97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189733   (269261) от 07.12.2017
 
 Шаблоны - Creative Market - UI Presentation / Device Mockups - 898484 [AI, PSD]
@@ -651,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4FF15D9B755493EFA34D9E5D03C0044DAE55CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570370   (240808) от 17.08.2022
-
-Шаблоны - Creative Market - Leggings and Tank-Top Mock-Up Set - 6790394 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект-макет леггинсов и маек.Формат: PSDРазрешение файлов: 3975x5962-6720x4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2650822C239C5282A6B6C8415ABE0EE85424014D
 ```
 
 https://mybot314.ru/tekegram_catalog/

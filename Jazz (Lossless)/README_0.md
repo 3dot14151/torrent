@@ -1,3 +1,61 @@
+###  Публикация: 1856061   (1058558) от 26.02.2026
+
+VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massimo Faraò - Your Song (2:37)
+02.  Massimo Faraò Trio - Endless Love (3:25)
+03.  Massimo Faraò Trio - Candle in the Wind (2:22)
+04.  Massimo Faraò Trio - The Entertainer (1:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21733D8D38EDE15DC3921160E5B200369F4E1625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856063   (1058556) от 26.02.2026
+
+VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soundset City - Dancing In My Dreams (3:35)
+02.  Nightview - Play Games (2:37)
+03.  Jean Mare - Playground (2:56)
+04.  Soundset City - Taxi Driver (2:58)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, LoungeПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBED336AB97FED8E393A7DA2D93B5AEE2A6D0EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855952   (1058326) от 25.02.2026
 
 Afro Dub - Afro Funk Archive Vol 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
@@ -688,64 +746,6 @@ Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843771   (1049478) от 21.12.2025
-
-Johnny Britt - Midnight In Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Midnight In Paris (4:22)
-02.  Show You (5:08)
-03.  Emotions (4:19)
-04.  Boulevard St. Michel (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982B00C3F463EFA1FCFE04ACA780B2F3B117E632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843782   (1049463) от 21.12.2025
-
-Wolfgang Lohr - Snow Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ashley Slater - Zat You Santa Claus (Swing Hop Mix) (2:56)
-02.  Glenn Gatsby - Cozy Christmas (3:04)
-03.  Emma Lea - Santa Baby (Electro Swing Mix) (3:13)
-04.  Maskarade - Frosty Is Coming to Town (3:50)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3F803B425FEE40CB5B6B221C55EAE8FA80810A
 ```
 
 https://mybot314.ru/tekegram_catalog/

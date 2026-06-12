@@ -1,3 +1,119 @@
+###  Публикация: 1368449   (905644) от 22.03.2020
+
+Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beyond Infinity (10:06)
+02.Green Planet (10:04)
+03.Milky Way (10:11)
+04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369060   (905386) от 22.03.2020
+
+Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   The Future   (6:43)
+02.   Waiting for the Miracle   (7:43)
+03.   Be for Real   (4:32)
+04.   Closing Time   (6:01)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368373   (905251) от 22.03.2020
+
+Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axtu Leman Sumix
+02. Yhea Noha
+03. Love Mountain
+04. Dawa (the Cradlesong)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E2BD21E250C30700DC6DF4634D1A01F16368D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369055   (905095) от 22.03.2020
+
+VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphaville - Sounds Like A Melody 4:46
+02. Tears For Fears - Shout (U.S. Single Version) 4:54
+03. Howard Jones - What Is Love 3:38
+04. Bananarama - Cruel Summer 3:35(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 07:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368584   (905075) от 22.03.2020
 
 Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
@@ -629,119 +745,6 @@ Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867779   (901039) от 09.02.2015
-
-John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vortex (4:44)
-02. Obsidian (8:24)
-03. Fallen (4:44)
-04. Domain (6:33)(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992428   (900906) от 02.03.2016
-
-Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2015) [MP3|128-256 кб/с] <ost, score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alva Noto & Bryce Dessner - Hawk Punished (02:15)
-02. Bryce Dessner - Imagining Buffalo (02:41)
-03. Bryce Dessner - Looking for Glass (02:52)
-04. Ryuichi Sakamoto - Arriving at Fort Kiowa (01:23)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9487F1838B0112A77ED2C62D6129BFD6B77162C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100486   (899532) от 04.02.2017
-
-Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigmatic, Gregorianic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Works Of Charity (11:30)
-02. Love And Faith (9:25)
-03. Faith Is Bliss (9:03)
-04. Faith-Healing (8:49)(   Читать дальше...   )Жанр: New Age, Enigmatic, GregorianicПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284677   (899486) от 25.03.2020
-
-Звуки природы - Океанский прибой (1997) [FLAC|Lossless|image] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Океанский прибой (01:03:07)Жанр: RelaxПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

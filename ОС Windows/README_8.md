@@ -1,3 +1,30 @@
+###  Публикация: 973904   (968203) от 18.01.2016
+
+Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сложном мире компьютерных систем современным организациям требуется серверная операционная система, которая может обеспечить одновременно и простоту в использовании, и высокую производительность, и возможность запуска серверных приложений, и телекоммуникационные службы.
+Операционная система Windows NT Server 4.0 отвечает всем этим требованиям и является надежной (   Читать дальше...   )Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD605FECAD03EFB19D81B496111FB5AC52663E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976939   (967528) от 19.01.2016
 
 Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
@@ -654,35 +681,6 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.2114 (Updated August 2021) О
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19BBB0F4CEE60245623E29342315A57305FAD632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988733   (920161) от 20.02.2016
-
-Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920161.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W10.tib,
-записанный на ноутбуке Dell Inspiron 3542-7807 с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
 ```
 
 https://mybot314.ru/tekegram_catalog/

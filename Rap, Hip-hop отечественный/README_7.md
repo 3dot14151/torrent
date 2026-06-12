@@ -1,32 +1,3 @@
-###  Публикация: 1227511   (646587) от 26.05.2018
-
-MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зима
-02. ОМО
-03. Там, где
-04. Медуза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F61D5932EBA4F093857E6F2EA6D2B89579CC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292886   (642683) от 31.03.2019
 
 N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -741,6 +712,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE00C95F8E2CEC24FDDAC984345F2285C43CFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238793   (544651) от 01.08.2018
+
+Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashforward_Intro (Starfounder & XWinner prod.)
+02. Ветер (XWinner prod.)
+03. Fuck Cash (XWinner prod.)
+04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

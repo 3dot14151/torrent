@@ -1,3 +1,61 @@
+###  Публикация: 1246546   (460906) от 11.09.2018
+
+VA - Дети Последних Дней (2018) [MP3|256-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алиса - Дети Последних Дней
+002. Сплин - Тепло Родного Дома
+003. Мумий Тролль - Ой
+004. Trubetskoy - Когда Идёшь Домой(   Читать дальше...   )Жанр: RockПродолжительность: 09:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C35E358CC4CDD0C28DFA8C2EA98E1BC25623C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321428   (458939) от 24.08.2019
+
+VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458939.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matthew Banks - Little Blonde Boy
+002. Aldo Nova - Fantasy
+003. Art Theefe - I Have Named
+004. Mr Twin Sister - Keep On Mixing(   Читать дальше...   )Жанр: RockПродолжительность: 09:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9987E71683AD760FD8CC81E8D2DDF4DACFFDABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408312   (458156) от 11.09.2020
 
 VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
@@ -687,64 +745,6 @@ VA - Invasion Wendigo: Metal Alliance (2020) [MP3|320 Kbps] <Hard Rock, Metal, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E97FDFB8F5A32E14A97A6AFEB19902611618FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411000   (429831) от 24.09.2020
-
-VA - Shell: Indie Rockstar (2020) [MP3|320 Kbps] <Indie, Alternative, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dopamoon - Who Says
-002. James Righton - The Performer
-003. Tigerwine - Black Water
-004. Radula - Playing My Guitar(   Читать дальше...   )Жанр: Indie, Alternative, RockПродолжительность: 07:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2430B81522DF52FD26E1A6A7944360010319386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830266   (426728) от 12.10.2014
-
-VA - Alterportal HITS 14 Vol. 73 - September (2014)  [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7th Cycle - Beauty In My Silence
-02. Marmozets - Hit The Wave
-03. Poets Of The Fall - Rumors
-04. Disciple - Yesterday Is Over(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4313155BE2FDF44602249721176DD723B9052D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1815729   (4975) от 31.08.2025
+
+Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не Забуду Тебя.
+02 - Дежавю.
+03 - Всему Свое Время.
+04 - Красота В Глазах Смотрящего.(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE11E762F331A99D2199AA7B5A3D79B7B8755761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816042   (4653) от 02.09.2025
+
+Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Простые Места
+ 02 - Память Сердца
+ 03 - Пионы
+ 04 - Деревенский День(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3403E8545922B31C407E99A7F28AC503C31ACB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817153   (3605) от 09.09.2025
+
+York Patrick - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy Listening, Instrumental, Spanish Guitar, AI>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Julia My Sweetest Sin
+ 02 - The Piano Girl
+ 03 - All I Have is Yours
+ 04 - Sunday With You(   Читать дальше...   )Жанр: Electronic, Easy Listening, Instrumental, Spanish Guitar, AIПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B20263537C81C9282B0218438CC5861F0595B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817597   (3180) от 12.09.2025
 
 Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>

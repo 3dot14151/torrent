@@ -1,3 +1,118 @@
+###  Публикация: 456675   (913569) от 17.03.2020
+
+Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Coincidence 1 (22:03)
+02. Liquid Coincidence 2 (30:56)
+03. Liquid Coincidence 3 (25:54)Жанр: Electronic, New AgeПродолжительность: 02:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B182EFABAB79661B44ABA9AEA1BD6D735F25D4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366331   (913486) от 17.03.2020
+
+Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (UK Remix) (4:05)
+02. Reborn (5:30)
+03. Hymne (4:56)
+04. Prayers (4:19)(   Читать дальше...   )Жанр: Enigmatic, New Age, Electronic, ClassicalПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65CA04F7357247B88F06FCE1C6DEFF8772EFCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989095   (913176) от 24.02.2016
+
+Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <New Age, Modern Classical, Synth-pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Orinoco Flow 	04:27
+02. 	Watermark 	02:26
+03. 	Evening Falls... 	03:50
+04. 	Exile 	04:22(   Читать дальше...   )Жанр: New Age, Modern Classical, Synth-popПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B07EAF96351542E643E349A2D0D41BFD816B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097399   (912380) от 28.01.2017
+
+Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodhi Tree
+02. Sister Moon
+03. Lord Buddha
+04. Prayer to the Gyalwa Karmapa(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89E0B165CD10BB5AB11804573AB418F5B5FE7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097531   (912054) от 28.01.2017
 
 Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
@@ -630,122 +745,6 @@ Michael Cretu в представлениях не нуждается, а Peter 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368449   (905644) от 22.03.2020
-
-Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beyond Infinity (10:06)
-02.Green Planet (10:04)
-03.Milky Way (10:11)
-04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369060   (905386) от 22.03.2020
-
-Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   The Future   (6:43)
-02.   Waiting for the Miracle   (7:43)
-03.   Be for Real   (4:32)
-04.   Closing Time   (6:01)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368373   (905251) от 22.03.2020
-
-Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axtu Leman Sumix
-02. Yhea Noha
-03. Love Mountain
-04. Dawa (the Cradlesong)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E2BD21E250C30700DC6DF4634D1A01F16368D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369055   (905095) от 22.03.2020
-
-VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville - Sounds Like A Melody 4:46
-02. Tears For Fears - Shout (U.S. Single Version) 4:54
-03. Howard Jones - What Is Love 3:38
-04. Bananarama - Cruel Summer 3:35(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 07:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

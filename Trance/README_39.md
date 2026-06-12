@@ -1,3 +1,90 @@
+###  Публикация: 1185426   (293740) от 21.11.2017
+
+VA - Recoverworld Trance Sessions 17.06 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex-Driver - Kylie (original mix)
+02. Peter Hulsmans - Edge Of Sanity (original)
+03. Robert Reazon - See The Sun (original mix)
+04. Dream State - Patagonia (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09BCC9220CA361A3572F5703B7FA6C2A70BEA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262790   (293516) от 16.11.2018
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Driftmoon & Robert Nickson Pres. Astrosphere - Fire Which Burns Us All (Extended Mix)
+02.Daxson - Blackcard (Extended Mix)
+03.Markus Schulz & JES - Calling for Love (Hazem Beltagui Extended Remix)
+04.Fisherman - The Mission (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07499CE6C3EAE8DD6182836319B06A15442B5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262575   (293514) от 16.11.2018
+
+VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaren & Saad Ayub - Hurt (Original Mix)
+02. Alex Leavon - When The Sun Goes Down (Original Mix)
+03. Danny Claire & Tom Boldt - Don't Forget Our Love (Original Mix)
+04. 4 Strings - Beautiful Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A2FE11F99EB51BD28168F78C651807B7C1536F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262780   (293505) от 16.11.2018
 
 VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7161AEBF0B0FD921892CC2BCFCA60DF8A3FAF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081104   (286261) от 08.12.2016
-
-Ferry Corsten presents Gouryella - From The Heavens (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten presents Gouryella - Gouryella (From The Heavens Mix) (10:36)
-02. Ferry Corsten presents Gouryella - Ligaya (From The Heavens Mix) (5:31)
-03. Ferry Corsten - Drum's A Weapon (5:10)
-04. Ferry Corsten presents Gouryella - Gorella (From The Heavens Mix) (3:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DF9E70AA95662A0D0608B536744450AA57F6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653253   (285410) от 08.12.2016
-
-Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-2016) [MP3|128 - 320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage - Riot On The Dancefloor (2:39)
-02. Pulsedriver - Slammin The Beat (2:56)
-03. Genial - No Games (Timmy G. vs. Sigi Di Collini Remix) (3:40)
-04. 2-4 Grooves - Rockset (Extended Club Mix) (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6248E404EADA77769DCA3ED63FF286BD995D0D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186801   (284777) от 26.11.2017
-
-Steve Brian - Calera Remixed (2012) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calera (Reminder Remix)
-02. Yaya (Estiva Remix)
-03. Yaya (Cressida Remix)
-04. Vueltas (Dan Stone Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07A88CFB9CA6335ABAF75EC5A83319AFB4FF3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

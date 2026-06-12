@@ -1,29 +1,3 @@
-###  Публикация: 1300218   (593694) от 05.05.2019
-
-Обои - Desktop Wallpapers Full HD. Part (433) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275AF663E3A488EEE1F0FC6EAF54C048A659FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300220   (593690) от 05.05.2019
 
 Обои - Desktop Wallpapers Full HD. Part (434) [JPG]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC203442EC0CDEE0173964BEBDA85929CFDBA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915410   (590928) от 08.07.2015
+
+Обои - Гляжусь в тебя, как в зеркало [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа. Горы.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B03FB3FF6163E23B193571A7CA89CDAC1F892F
 ```
 
 https://mybot314.ru/tekegram_catalog/

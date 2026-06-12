@@ -1,32 +1,3 @@
-###  Публикация: 919575   (582784) от 19.07.2015
-
-Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Up (Long Remix Version)
-02. Disco Band (Remix by Mach 2 Vocal Version)
-03. Pictures (Extended Vocal Remix)
-04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810807   (582452) от 06.08.2014
 
 Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
@@ -851,6 +822,41 @@ Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812639   (570863) от 14.08.2014
+
+Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drunken Sailor
+02. Ooh La La I'm Falling
+03. Mister Blitzer
+04. Wanna Do (What Mamma Said)
+05. Please Me Please Do
+06. (Never Listen To A) Bouzouki Player
+07. I'm A Rocking Machine
+08. Wonderboy
+09. Billy Joe
+10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
 ```
 
 https://mybot314.ru/tekegram_catalog/

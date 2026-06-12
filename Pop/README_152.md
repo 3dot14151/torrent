@@ -1,3 +1,148 @@
+###  Публикация: 910757   (620118) от 21.06.2015
+
+Стелла - Позови (1994) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позови (4:25)
+02. Девочка без сердца (4:20)
+03. Вот и всё (4:00)
+04. Сколько долгих дней... (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CD0D2EA4403F836B51AE365F6E0B27F0A74A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910819   (620114) от 21.06.2015
+
+МГК - Остров любви (1996) [WavPack|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новое время
+02. Остров любви
+03. Ночь
+04. Ragga Mix(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA80F7645CA410BD9DB3AB12032182CED87484D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910786   (620113) от 21.06.2015
+
+Шоколад - Улыбнись (2002) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мне тебя не хватает 4:08
+02. Я еду к морю 3:28
+03. Как мне жаль 4:39
+04. Улыбнись 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0E4B603FACE49383A51AC4035187F22B6F2DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910805   (619963) от 21.06.2015
+
+Забытый Разговор - Навсегда (1997) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабское золото 3:55
+02. Навсегда 3:44
+03. 6 лет, 6 ночей 4:22
+04. Титаник 4:24(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB944EA6C9F19AC8D6DCAE2229BE00EC6E6B2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684566   (619859) от 28.07.2013
+
+Вадим Козин - Неизданное (1976) /1998/ [WavPack|Lossless]<Романс / Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю эту землю (02:52)
+02. Бульвары Магадана (02:44)
+03. Магаданская сторонка, магаданский ветерок (02:45)
+04. Я живу на улице Портовой (01:48)(   Читать дальше...   )Жанр: Романс / РетроПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910774   (619850) от 21.06.2015
 
 Рома Жуков - Я люблю Вас, девочки, я люблю Вас, мальчики (1994) [FLAC|image+.cue]<Pop>
@@ -628,151 +773,6 @@ VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Ax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC807E9A69795F23EE08936A9563AEB01A8C4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911400   (618150) от 22.06.2015
-
-Ben Liebrand - Iconic Groove (2015) 2CD [MP3|320 кб/с]<70's Retropop, Synth Pop, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Weekend (feat. James ''D-Train'' Williams) (06:54)
-02. We Are the Night (feat. James ''D-Train'' Williams) (06:17)
-03. Get On Up (feat. Caroline Dest) (06:55)(   Читать дальше...   )Жанр: 70's Retropop, Synth Pop, Disco, FunkПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CDBA705C66809FED4CF3DE8D57FD792A8600CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145968   (618097) от 27.06.2017
-
-Revelacion - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская диско группа 1970-х годов, автором, продюсером и оператором которых был Jean-Marc Cerrone. Выпустили в свет всего два предлагаемых альбома.01. The House Of The Rising Sun + Revelacion Suite (15:44)
-02. Crocos Dance Part 1 (5:02)
-03. Crocos Dance Part 2 (3:19)
-04. Time For Love (6:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AFEEBECEAD12546E6BF092618765D9C8C78063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145932   (618094) от 27.06.2017
-
-La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandolay (6:20)
-02. Only The Lonely (Have A Reason To Be Sad) (4:32)
-03. Can You Dance (3:27)
-04. Can't Kill The Beat (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145854   (618083) от 27.06.2017
-
-Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Historia de un amor - duet with Laura Pausini
-02. No me platiques - duet with Beto Cuevas
-03. Bésame mucho - duet with Nelly Furtado
-04. Quizás quizás quizás - duet with Michael Bublé(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145936   (618079) от 27.06.2017
-
-Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bailando (feat. Marisa, DJ Patrick Samoy)
-02. Vamos a la Playa (feat. Shelby Diaz)
-03. Bandolero (feat. Marisa, DJ Patrick Samoy)
-04. Suavemente (feat. Miguel Fernandez)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
 ```
 
 https://mybot314.ru/tekegram_catalog/

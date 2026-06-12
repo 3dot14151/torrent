@@ -1,3 +1,61 @@
+###  Публикация: 1795379   (19383) от 04.05.2025
+
+АлисА - Compilation (1984-2024) [MP3|320 Kbps] <New wave, Hard rock, Christian rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взрыв (Всё По Швам) (Дудка 2022)
+02. Эксцесс (Эксцесс 2016)
+03. Путь в Сторону Леса (Танцевать 2001)
+04. Родина (& Вера Панфилова) (Сейчас Позднее, Чем Ты Думаешь 2003)(   Читать дальше...   )Жанр: New wave, Hard rock, Christian rockПродолжительность: 16:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9E5609D560A416A5400E74121FC9217F7E5B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795736   (19124) от 06.05.2025
+
+VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19124.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Smash Atoms - Bring The River (03:23)
+ 002. Wretch - In My Time Of Reckoninig (03:29)
+ 003. W.A.S.P. - Animal (03:07)
+ 004. Windwaker - Apathy (03:31)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 13:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4316DC132A46D729CA532ABB99783DCBC3C30125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795912   (19080) от 07.05.2025
 
 Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE9E82D443369BE59CCE02880A931F2FF28E7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812361   (7710) от 15.08.2025
-
-Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fool In Love (Good To Be Bad | 2008)
-02. Steal Your Heart Away (Forevermore | 2011)
-03. Here I Go Again (1987 WS | 1987)
-04. Judgment Day (Slip Of The Tongue | 1989)(   Читать дальше...   )Жанр: Hard rock, Blues rockПродолжительность: 07:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1C45429881689B921D9E578CE4F40018919635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813161   (7103) от 18.08.2025
-
-Найк Борзов - Compilation (1994-2025) [MP3|320 Kbps] <Indie rock, Post-punk, Psychedelic rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лоwадка d.v. (Супермend | 2000)
-02. Kingsize (Заноза | 2002)
-03. Nusinam (Заноза | 2002)
-04. Адренохром (Потерянный Среди Звёзд (Акт I) | 2022)(   Читать дальше...   )Жанр: Indie rock, Post-punk, Psychedelic rockПродолжительность: 03:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F238C8DBC403BEDB629BEE71072FC1DFEA4D097
 ```
 
 https://mybot314.ru/tekegram_catalog/

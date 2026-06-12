@@ -1,3 +1,58 @@
+###  Публикация: 1331065   (334526) от 13.10.2019
+
+VideoHive - Travel Agency Promo Lets Go - 24203742 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Travel Agency Promo Lets Go - это профессионально разработанный и анимированный шаблон After Effects, который вы можете использовать для продвижения и рекламы своих туристических агентств или туроператоров.
+Произведите впечатление на вашу аудиторию с помощью этого веселого, быстрого и динамично анимированного шаблона AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C20ED4F26E071FE49EA05737826F89114F2241D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331120   (334402) от 13.10.2019
+
+VideoHive - Newspaper Titles, Urban Typography Slideshow - 8861193 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведите впечатление на вашу аудиторию стильной и динамичной анимацией пакета "Newspaper Titles, Urban Typography Slideshow".
+Идеально подходят для демонстрации портфлио, новостных тизеров, и пр.
+3 проекта включены: Dynamic Dubstep Slides , Extended Abstract Showcase , Intro Opener.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82B32B94AD44F5438E53334612A7C566DCDBE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331145   (334391) от 13.10.2019
 
 VideoHive - Digital Corporate Presentation Slideshow - 22668630 [AEP]
@@ -625,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:419475BDDE3C318D11C33E3188F13026394E611A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958930   (321374) от 22.11.2015
-
-Проекты - VideoHive - Lights Opener [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C2BD80585C96300DC0D8CCA52F03B3647861AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075415   (320263) от 22.11.2016
-
-Проекты - VideoHive - NEWSPAPER Black&White_CS4 - 153160 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320263.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEWSPAPER Black&White_CS4 - вы можете создать видео-ролик в виде анимации газетных новостей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760A0A8A12F4763CA1EB55DF87B46E715860D33C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 995213   (884290) от 11.03.2016
+
+History of Rock (2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884290.jpg" />
+</div>
+
+
+###  Подробнее
+
+A History of Rock за 15 минут. 348 рок звёзд, 84 гитариста, 64 песни, 44 ударника, в одном клипе!Производство: 00:49:25Жанр: RockРежиссер: Ithaca AudioПродолжительность: 00:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372669   (883628) от 04.04.2020
 
 Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
@@ -673,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375037   (867033) от 13.04.2020
-
-Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

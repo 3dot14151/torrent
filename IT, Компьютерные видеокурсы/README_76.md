@@ -1,87 +1,3 @@
-###  Публикация: 1634141   (252178) от 18.05.2023
-
-JUG Ru Group, JPoint и Joker | Конференция для опытных Java-разработчиков (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252178.jpg" />
-</div>
-
-
-###  Подробнее
-
-JPoint — одна из двух крупнейших и старейших Java-конференций в России (вместе со своим «братом-близнецом» Joker).
-
-Она пройдет в два этапа: 2 дня в онлайне, 2 дня в офлайне. В программе выступления по 45–60 минут, с 10 утра до 7 вечера.
-(   Читать дальше...   )Производство: JUG Ru GroupЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 45:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEE1C32DE24260EC54C15FEFA83F834A0A8D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635253   (252055) от 24.05.2023
-
-Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production на React (2023) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого предназначен курс?
-
-Курс идеально подойдет 2 категориям людей:
-1. Люди, которые в данный момент ищут работу или близки к этому.(   Читать дальше...   )Производство: Ulbi TVЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 46:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA1913582E345E3E4853F5840328CBCCE2A2725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635284   (252041) от 25.05.2023
-
-itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа рассчитана на новичков, которые хотят изучить язык Python и начать разрабатывать программы на этом языке. За программу вы изучите разработку консольных, а также графических программ на Python, научитесь создавать простые программы с искусственным интеллектом, изучите работу с базами данных, а также построите и выгрузите в Интернет несколько веб сайтов, (   Читать дальше...   )Производство: itProgerЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 59:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8E87FBDE704DAC6293A55D6D7F910777526D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636135   (251978) от 28.05.2023
 
 Javascript.ninja, Илья Климов | Зимняя школа по Typescript (2022) WEB-DL [RU]
@@ -719,6 +635,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:074CCA9DE39B97D79E9CDB76C665F93C90DE3460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641298   (247431) от 22.06.2023
+
+Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  (2023) WEB-DL [EN, RU / EN Sub]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247431.jpg" />
+</div>
+
+
+###  Подробнее
+
+In 2023, React is still the #1 skill to learn if you want to become a successful front-end developer!
+But it can be hard. There are so many moving parts, so many different libraries, so many tutorials out there.
+That's why you came here... And you came to the right place! This is THE ultimate React course for 2023 and beyond.
+A practice-heavy approach to master React (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 67:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641505   (247409) от 23.06.2023
+
+Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps (2023) WEB-DL [En / En sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Welcome to the ultimate Python learning experience! The Python Mega Course is designed to take you from a complete beginner to a confident Python programmer in just 60 days. Whether you're starting from scratch or want to enhance your programming skills, this comprehensive course is your ticket to mastering Python and building real-world applications.Производство: UdemyЖанр: Информационные технологииЯзык озвучки: АнглийскийПродолжительность: 51:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640456   (247322) от 27.06.2023
+
+Курсы-по-1С.РФ | Расширенный курс по разработке и оптимизации запросов в 1С (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колоссальный курс про построение, анализ и оптимизацию запросов в 1С – более 50 учебных часов!
+Самое подробное рассмотрение нюансов и деталей – и для начинающих, и для программистов с опытом в несколько лет.
+Что Вы изучите на курсе:Механику хранения данных в 1С и модели доступа к данным.
+Полный синтаксис текста запросов – поля, операторы, функции, выражения, группировка (   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 49:34:24Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

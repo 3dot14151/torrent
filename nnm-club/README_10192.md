@@ -1,25 +1,486 @@
-###  Публикация: 1226389   (655855) от 20.05.2018
+###  Публикация: 1226254   (655954) от 20.05.2018
 
-Ernesto - R-Evolution (2008) [FLAC|Lossless|tracks + .cue] <Spacesynth, Synth-Pop>
+Баскетбол. Евролига 2017-2018. Финал 4-х. Белград (Сербия). 1/2 финала. Фенербахче (Турция) — Жальгирис (Литва) (18.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655954.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 мая 2018 года, пятница. 19:00 МСК
+Евролига 2017-2018. Финал 4-х. Белград (Сербия).
+1/2 финала.
+Фенербахче (Стамбул, Турция) — Жальгирис (Каунас, Литва)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016D2109D4AFE7439F93DBA698C2BABE56DE5C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226233   (655953) от 20.05.2018
+
+Traumer - History (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude to Infinity
+02. History
+03. Lullaby
+04. Guardians of Time(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:959DA2BF16C3BA63DA4B7C4386087E47B8857BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226203   (655952) от 20.05.2018
+
+Blitzkrieg - Judge Not! (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heretic
+02. Who Is Blind
+03. Forever Is a Long Time
+04. Reign of Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471E723FE25D20C7EF4BFBE659A3D766931032B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226182   (655951) от 20.05.2018
+
+Archspire - The Lucid Collective (2014) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lucid Collective Somnambulation (4:17)
+02 - Scream Feeding (4:21)
+03 - The Plague of Am (Cogito Ergo Sum) (3:36)
+04 - Fathom Infinite Depth (5:08)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226370   (655950) от 20.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Западной конференции. 4-й матч. Вегас Голден Найтс – Виннипег Джетс (18.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655950.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 мая 2018 года, суббота. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Запад. 4-й матч
+Вегас Голден Найтс – Виннипег Джетс
+Стадион: Ти-Мобайл Арена (Парадайс, США), 18697 зрителей (100 % при вместимости 18693)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC7DEB58A7B8BF73F983BE8B535473C47C8E869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226237   (655949) от 20.05.2018
+
+Bucovina - Nestramutat (2015) [FLAC|Lossless|image + .cue] <Folk Metal, Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Încape-ntr-o Vorbă (Intro) (01:20)
+02. Dă-mi Mâna, Toamnă (04:52)
+03. Cărări În Suflet (04:29)
+04. Ultima Iarnă (04:39)(   Читать дальше...   )Жанр: Folk Metal, Pagan Black MetalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BB6C5E9A5E639872C9BFEF636B2562381F31BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226242   (655948) от 20.05.2018
+
+Stalk-Forrest Group - St. Cecilia: The Elektra Recordings (2001) Reissued, 2016 [FLAC|Lossless|image + .cue] <Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What Is Quicksand?
+02 I'm On The Lamb
+03 Gil Blanco County
+04 Donovan's Monkey(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226213   (655947) от 20.05.2018
+
+Veil Of Maya - [Id] (2010) [FLAC|Lossless|image + .cue] <Progressive Metalcore, Technical Deathcore, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive Metalcore, Technical Deathcore, Progressive Death MetalПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A4417E22F8426BBAB51264622E7BACE9B9F6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226375   (655946) от 20.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 5-й матч. Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз (19.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655946.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 мая 2018 года, воскресенье. 02:15 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 5-й матч
+Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз
+Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A42BCA5A15E7B191E38B65CB8780E376C97F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226334   (655945) от 20.05.2018
+
+Halftribe - For The Summer, Or Forever (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred (02:27)
+ 02. For The Summer, Or Forever (04:02)
+ 03. Balm (03:40)
+ 04. Swimming Off That Sombre Shore (04:34)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C5CBBA713EC254B5C13AE1153F34EEB1DF8193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226341   (655944) от 20.05.2018
+
+Dave Brubeck - The Quartet (1958, 1974) 1985, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castillian Drums [05:56]
+02. Three to Get Ready [05:44]
+03. St. Louis Blues [09:04]
+04. Forty Days [05:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A26092C935D0B2E125F61A6AFE48F02DB470B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226338   (655943) от 20.05.2018
+
+China Moses - Nightintales (2017) MPS [FLAC|Lossless|image + .cue] <Vocal Jazz, Soul>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running [03:37]
+02. Put It On The Line [04:12]
+03. Disconnected [05:28]
+04. Ticking Boxes [03:33](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226211   (655942) от 20.05.2018
+
+Emerald Sun - Under the Curse of Silence (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill or Be Killed
+02. All as One
+03. Carry On
+04. Blast(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226204   (655941) от 20.05.2018
+
+VA - The Official UK Top 40 Singles Chart 18.05.2018 [MP3|302-320 Kbps] <Pop, Dance, Other>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss
+02. Drake - Nice For What
+03. Ariana Grande - No Tears Left to Cry
+04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226209   (655940) от 20.05.2018
+
+Jaded Heart - Devil's Gift (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasteland
+02. The Enemy
+03. Set Free
+04. Scream Of Anger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226322   (655939) от 20.05.2018
+
+Catharsis - A Purging of Demons (2018) Zhark Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perception Through The Circle (06:20)
+ 02. Summoning the Black Tongue (06:28)
+ 03. Bringing Forth The Hellchild (06:34)
+ 04. Distress, The Mother (06:18)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226414   (655938) от 20.05.2018
+
+VA - Spring 2018 - Best of Inception (2018) [MP3|320 Kbps] <Trance,Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire In The Sky (5:38)
-02. Eternal Pulsation (6:32)
-03. I.S.D. (3:20)
-04. Interstellar Invasion (5:10)(   Читать дальше...   )Жанр: Spacesynth, Synth-PopПродолжительность: 01:16:49
+1. Willscape - Sonus (Metamorph Remix)
+2. ZGOOT - Old Photo (Original Mix)
+3. Luca Dean - Eden (Original Mix)
+4. ZGOOT & MarioMoS - Pillars of Creation (Sodahl Remix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:112BBC09A60DB4FA7DAD34E7D2AE44C8F799A294
+magnet:?xt=urn:btih:8F87A34C16F046840674EED72BDD1D42892D034C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226302   (655854) от 20.05.2018
+###  Публикация: 515510   (655936) от 26.06.2012
 
-VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воодушевляющая электронная музыка с хорошими ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Amsterdam Trance Factory». Альбом получился удачно органичным по звуковым качествам и продакшену. Каждая мелодия звучит идеально, и вся музыкальная картина имеет хороший микс.001. Maria Milewska & Andrew Henry - Crystalized (Original Mix)
-002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
-003. Cyril Ryaz - Dark Side (Sunset & Steve Dekay Extended Remix)
-004. DJ Pasyk - My Fantasy(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:53:49
+01. Love Train (Original Mix) - Fisher & Fiebak
+02. Keep On Groovin (Original Mix) - Funkstar
+03. Ethamin (Kid Shakers Remix) - SL Curtiz, Domovnik
+04. Knock On Your Heart (feat. Alec Sun Drae)Жанр: Funky, Club HouseПродолжительность: 01:54:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9FD14B3B90EA30AC12519034C4DC2BF13191DE7
+magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,82 +517,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226342   (655853) от 20.05.2018
+###  Публикация: 514964   (655934) от 26.06.2012
 
-Хоккей. Чемпионат мира 2018. 1/2 финала. Швеция – США (19.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 мая 2018 года, суббота. 16:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-1/2 финала.
-Швеция – США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA48F7EBC6A3FD1483E353E0BEF6BDDE4A0FEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226339   (655852) от 20.05.2018
-
-Хоккей. Чемпионат мира 2018. 1/2 финала. Канада – Швейцария (19.05.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655852.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 мая 2018 года, суббота. 20:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-1/2 финала.
-Канада – Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B116B0495A152F30AFBDB50836DB2AA8473F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226383   (655851) от 20.05.2018
-
-VA - Smooth Love (2018) [MP3|320 Kbps] <Jazz, Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Krall - The Look Of Love
-02. Robbie Williams - She's The One (Remastered)
-03. Norah Jones - Come Away With Me
-04. Nat King Cole - Unforgettable (Remastered)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:08:01
+01. Decadent Blossoms. (01:19)
+ 02. Thy Heavens Wept In Mourn. (06:26)
+ 03. Winter Shades. (05:15)
+ 04. The Field Where I Died. (08:00)
+ 05. When I Gave Her My Eden. (05:37)
+ 06. Embittered Silence. (05:31)
+ 07. Beauty Entwined. (05:22)
+ 08. Fall The Dusk. (06:33)
+ 09. Burning Horizon. (06:53)
+ 10. Beneath An Abstract Sun. (03:08)Жанр: Gothic Doom MetalПродолжительность: 00:54:04
 
 ## Скачать торент
 ```bash
@@ -143,165 +552,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226352   (655850) от 20.05.2018
+###  Публикация: 515529   (655930) от 26.06.2012
 
-Е. Поселянин | Преподобный Серафим, Саровский Чудотворец (1908) [PDF, DJVU]
+Ashley Wallbridge - The Inner Me (2012) [FLAC|Lossless]<Trance , Downtempo>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящей книжке собрано то, что написано автором и появилось в разных повременных изданиях со времени первой вести о предстоящем церковном прославлении великаго старца Серафима Саровскаго (т. е. с июля 1902 г.) – до января 1903 года.
+Ashley Wallbridge - The Inner Me (2012)
 
-По мере сил своих, автор во всех шести статьях, вошедших в состав этого сборника, старался провести одну мысль: о чрезвычайности (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2A88F57883C05AB82F9C4F8610F7533B995BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226387   (655849) от 20.05.2018
-
-Path Finder 8.0b47 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7146ECB75230D10AAE63C3C9D5206D82BAF34ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226359   (655848) от 20.05.2018
-
-Хоккей. Чемпионат мира 2018. 1/2 финала. Канада – Швейцария (19.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655848.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 мая 2018 года, суббота. 20:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-1/2 финала.
-Канада – Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF40C7EDA35834B359B5D01390B722715E954593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226252   (655847) от 20.05.2018
-
-VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeitam Osheen - Anck Su Namun (Intro Mix)
-02. PRE-RELEASE PICK: Roman Messer & Betsie Larkin - Unite (Steve Allen Extended Remix)
-03. Orla Feeney feat. Susan McDaid - Can't Give Up (Estigma & Pinkque present Hybrid Theory Remix)
-04. Christopher Corrigan - Sleepless Nights (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226480   (655846) от 20.05.2018
-
-NASCAR. Monster Energy Cup Series 2018. Toyota Owners 400 (21.04.2018) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655846.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 апреля 2018 года, 0:30 МСК.
-Сезон 2018 года серии Кубка НАСКАР (NASCAR Cup Series). 9-й Этап.
-Toyota Owners 400. Ричмонд (штат Вирджиния, США).
-Дистанция: 300 миль (480 км). круг - 0,75 мили (1,21 км)(   Читать дальше...   )Телекомпания: США, Fox SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 02:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECA59EABC7CA8930B383915E824DEE47B7E6020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226328   (655845) от 20.05.2018
-
-Хоккей. Чемпионат мира 2018. 1/2 финала. Швеция – США (19.05.2018) HDTV [H.264/1080i-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655845.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 мая 2018 года, суббота. 16:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-1/2 финала.
-Швеция – США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:05
+Год: 2012
+Жанр: Trance , Downtempo
+Продолжительность:01:08:58
+Страна: Poland
+Лейбл: Prologic Music
+Каталог №: 88691976312
+Кодек: FLAC
+Битрейт: Lossless(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -313,416 +587,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226232   (655844) от 20.05.2018
+###  Публикация: 515424   (655929) от 26.06.2012
 
-Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep It Alive
-02. Mantis Anthem
-03. Time Can Heal
-04. 39 Years(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF901CDD541681A46C7206F70E6090B8434FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226505   (655843) от 20.05.2018
-
-Дженнифер Браун | Список ненависти (2018) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять месяцев назад Ник, бойфренд Валери Лефтман, открыл стрельбу в школьной столовой, убив многих учеников и учителей и застрелив себя. Пытаясь его остановить, Валери получила ранение в ногу и случайно спасла жизнь своей одноклассницы. Однако ее обвинили в случившемся из-за списка, который она помогла составить, – Списка ненависти, включающего более сотни людей и (   Читать дальше...   )Жанр: Современная зарубежная литература, Остросюжетные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89B63296311E549F3D3652A67164513AF9FF8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226267   (655842) от 20.05.2018
-
-VA - Neon Butterfly (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежая весенняя музыкальная коллекция самых популярных и эксцентричных песен сборника «Neon Butterfly» способна обновить вашу медиатеку любимых композиций и добавить не один десяток по-настоящему крутых и запоминающихся работ от многочисленных групп и солистов, которые будут не лишними в Вашей музыкальной коллекции.001. Calvin Harris & Dua Lipa - One Kiss
-002. Dadju - Bob Marley
-003. Nicky Jam & J Balvin - X (Spanglish Version)
-004. Luis Fonsi, Demi Lovato - Échame La Culpa(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 08:28:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226407   (655841) от 20.05.2018
-
-Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo (Queen Cover)
-02. Only (Anthrax Cover)
-03. Tears of the Dragon (Bruce Dickinson Cover)
-04. Edge of the Blade (Journey Cover)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226247   (655840) от 20.05.2018
-
-VA - Club EDM: DJ Mastermix (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необъятный формат электро музыки в микс-сборнике "Club EDM: DJ Mastermix" пестрит настоящей экспрессией в чистом виде. Идейные замыслы авторов композиций плавно переходят одна в другую и создаётся мнение общей гармонии. Любой из ценителей творчества клубной электронной музыки найдет на лонгплее что-то свое.001. Moomicoo, Selda - Who's Gonna Kiss That Man (Tbo & Vega Remix)
-002. MATTN & Magic Wand feat. Neisha Neshae - Let the Song Play (Futuristic Polar Bears Remix)
-003. Lost Frequencies and Netsky - Here with You (Bassjackers Remix)
-004. Luca Debonaire & Arnold Palmer - It Was Nothing (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:16:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226240   (655839) от 20.05.2018
-
-VA - The Best Of Nu Communicate (Spring Edition) (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Baltic – Guantanamo (Original Mix)
-02. Active Limbic System – North Atlantic (Photographer Remix)
-03. Alexander One & Davide Battista – Distant Echoes (Original Mix)
-04. BDH – Distance (DenSity FuZion Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D5E6AF5E2E46B2A97DD342D7AE0C34E4077213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226205   (655838) от 20.05.2018
-
-Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Temple Of Lies
-03. On The Wings Of An Angel
-04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D5EAD57B13E0AAD923BF77DB2340AEC702A8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515636   (655834) от 26.06.2012
-
-[Графика] Мегас Александрос (Megas Alexandros) - работы художника из Македонии  (2012)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегас Александрос (Megas Alexandros) - работы художника из Македонии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C194F74598B611EE9D31A02CFE273171261FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514945   (655832) от 26.06.2012
-
-Шэрон Болтон | Последняя жертва (2010) [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеринар Клара Беннинг, лицо которой обезображено в результате несчастного случая в детстве, рассчитывает спрятаться от всего мира в глухом английском поселке. Однако здесь происходят жуткие события – жители небольшого городка в панике. Ядовитые змеи стали нападать на людей, несколько человек уже погибли. Клара, пытаясь найти причину странного поведения змей, узнает (   Читать дальше...   )Жанр: Триллер, ужасыПеревод: Инна ПаненкоФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705ABE575166B584B4173B5729DFC00F24A64E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515453   (655829) от 26.06.2012
-
-Елена  Бойко | Лучшие рецепты блюд из творога [1999] [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655829.jpg" />
-</div>
-
-
-###  Подробнее
-
-В  этом издании читатель найдет оригинальные рецепты приготовления различных соусов, салатов, закусок, вторых блюд и десертов из творога.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1CE2A939A91C4A9678F4077615D9A354FB0E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515298   (655826) от 26.06.2012
-
-Людмила Горбенко | Трилогия "Маг-новобранец" [2005-2007] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CD2E0F21D3328DC4C8BADD7AF4FCDD722EC254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515535   (655822) от 26.06.2012
-
-Nat Geo Wild: Explorer (Исследование). Столкновение с астероидом. 24 часа, изменившие мир / Explorer. 24 Hours After. Asteroid Impact (2009) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие ученые считают, что в прошлом астероид вызвал глобальную катастрофу на Земле. Может ли это произойти снова, и каковы будут последствия? Эта катастрофа вселенских масштабов. Астероид размером с крупный город врезается в планету Земля. Динозавры и 75 % всей жизни на Земле обречены. Всё происходит за 24 часа. Возможно один из самых важных дней в истории Земли. Теперь с помощью мощных экспериментов учёные пытаются воссоздать, секунда за секундой, минута за минутой последний день динозавров.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B2E2799F261E55433F6AAA510097132C5B2F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515542   (655821) от 26.06.2012
-
-NG: История великих озер / Drain the great lakes (2011) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ландшафт далекой планеты или поверхность луны, нет, это дно крупнейшей системы пресноводных озер в мире. Североамериканские великие озера, ученые давно занимаются составлением карт этих величественных озер, сейчас впервые мы объединим их данные и специальные компьютерные технологии визуализации и осушим великие озера. Нам откроется необычный скрытый мир, утесов (   Читать дальше...   )Производство: Канада, Mallison Sadler Productions Ltd and Northern Sky Entertainment LtdЖанр: Документальный, научно-познавательныйРежиссер: Криспин Садлер, Вэйн АбботтПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3DFE0260832DA11655E6269CCF2F456B6162DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515754   (655819) от 26.06.2012
-
-Среда обитания. О вкусной нездоровой пище (2012) SATRip
-
->>Документалистика и Телепередачи
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протухшее мясо, пирожные с плесенью, прокисший творог и прогорклое масло. Просроченные продукты продают везде - на рынках, в магазинах шаговой доступности и дорогих супермаркетах. Как отличить их от свежих?Жанр: ТелепередачаПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593ABF12D2AAC4BD82BB2AD1F3192FA2E3CE7713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515505   (655818) от 26.06.2012
-
-Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
+Well -  Нове життя (2012) [MP3|320 kbps] <Alternative Romantic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мордор (03:54)
-02. Гламур! (04:33)
-03. На дне (04:40)
-04. D.J.Voorda (04:07)
-05. Страх (04:06)
-06. Hombre Pajaro (04:14)
-07. Суперзвёзды (04:34)
-08. Фитнесс - убийца (03:20)
-09. Машинист (03:47)
-10. Голограмма Пустоты (04:03)(   Читать дальше...   )Жанр: Heavy Metal / IndustrialПродолжительность: 00:45:55
+01. Нове життя (02:51)
+02. Пробач (03:17)
+03. Нет смысла (04:48)
+04. Сколько раз (05:13)
+05. Дарунок (04:10)
+06. Ти не сама (04:18)
+07. Отпусти меня ( акустик. ) (02:26)
+08. Дождь (03:47)
+09. Спотыкаясь и падая (03:19)
+10. Птица (02:29)(   Читать дальше...   )Жанр: Alternative Romantic RockПродолжительность: 01:05:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
+magnet:?xt=urn:btih:51A8BB1731192A2F61B5BDD0FCE83C04661B6162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515696   (655927) от 26.06.2012
+
+Cleo Laine & Johnny Dankworth - The Collection (2002) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look Of Love [02:58]
+02. O Mistress Mine [03:08]
+03. The Complete Works [01:25]
+04. Perdido [02:52]
+05. Fear No More [03:14]
+06. Riding High [03:12]
+07. The Lady Sings The Blues [03:31]
+08. If Music Be The Food Of Love [02:39]
+09. Tea For Two [03:43]
+10. My Love Is As A Fever [02:26](   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515784   (655923) от 26.06.2012
+
+Blaze Bayley - The King Of Metal (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The King Of Metal (2:48)
+02. Dimebag (6:01)
+03. The Black Country (4:38)
+04. The Rainbow Fades To Black (4:34)
+05. Fate (3:19)
+06. One More Step (3:29)
+07. Fighter (7:27)
+08. Judge Me (5:17)
+09. Difficult (6:06)
+10. Beginning (3:35)Жанр: Heavy MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140594   (655897) от 06.06.2017
+
+Masaru Hinaiji - Land Of Eternity (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shining Spring (Original Mix) 8:15
+02.  Tears Of An Angel (feat. Angel Falls) (Original Mix) 7:57
+03.  Flying On The Clouds (Original Mix) 6:49
+04.  Rain Sings (feat. Angel Falls) (Lanx (CN) Remix) 6:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CF2E39FF566B64EE26018C00AE108A3F8BD9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140342   (655896) от 06.06.2017
+
+VA - Boutique Lounge Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Centaury - Secret - Original Mix
+02. Mathieu & Florzinho - Primavera - Dub Mix 2010
+03. Twentyeight - Butterflies - Original Mix
+04. Charly McLion - This Is Not America - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AF486095189203855A46BD4BBBC131092675C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140420   (655895) от 06.06.2017
+
+VA - Tree Of Life Vol.1 (Selection Of Wonderful Calm Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sami Sivananda - Lotus Yoga 4:22
+02.  Guna Nada Das - Beyond The Sky 4:43
+03.  Sunyata Project - Words Of Vishnu (Ibiza Ethno Mix) 7:17
+04.  Chris Le Blanc - Stranded 5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EA3CF14B0A912CA2F7ED0A8BF4F3664D7ACAB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1304885   (559917) от 28.05.2019
+
+VA - Inakustik Clearaudio 40 Years Excellence Edition (2018) [FLAC|Lossless|image + .cue] <Pop,  Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Charly Antolini - Jammin' (03:42)
+02.   Cameron Carpenter - Toccata & Fuge (08:47)
+03.   Yelena Eckemoff - Mommy's Shawl (05:06)
+04.   Brenda Navarrete - Mulata Linda (03:44)(   Читать дальше...   )Жанр: Pop,  FolkПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561703EBFE2A795EB7BE15E24DF35D4E253FFFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556384   (559857) от 09.06.2022
+
+VA - Feelin' Good (2004) 2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559857.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Billy Idol - Hot in the City
+02. Spice Girls - Say You'll Be There
+03. KC and The Sunshine Band - That's the Way (I Like It)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 02:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071754BBFA20739759F608C0A81AD71E713E487F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556518   (558298) от 10.06.2022
+
+VA - The Voices Of Ken Laszlo (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - Don't Cry (Swedish Remix) (6:39)
+02. Danny Keith - Lean On Me (Extended Version) (6:28)
+03. Artwork - Party Time (Vocal Version) (5:16)
+04. Max & Company - I Love My Geisha (6:05)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B619C01FCD3A8E811FCD1CC8F7807516888C0773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556676   (558214) от 10.06.2022
 
 Город 312 - Здесь и сейчас (2022) [MP3|320 Kbps] <Pop Rock>
@@ -657,93 +744,6 @@ Amant - Amant (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E12679731DBD83D75F26F332E1EC1DFB5AC68E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305772   (556189) от 01.06.2019
-
-VA - Clubfete 2019.2 (63 Summer Club & Party Hits) (2019) 3CD [MP3|320 Kbps] <Pop, House, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556189.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01.  Robin Schulz feat. Harlœ  -  All This Love
-02.  Mark Ronson  -  Nothing Breaks Like A Heart
-03.  Chic  -  Le Freak (Oliver Helden's Remix)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 03:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534159433B842744C6E6EB6595054CE8AF0E8C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305831   (556179) от 01.06.2019
-
-Arirang Singers - Discorea (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Eyes (4:02)
-02. Troubles (3:26)
-03. Come And Join Us (4:15)
-04. Water Dance (3:37)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0B8717A6128C6B029C6950FC61801CD8B7BE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305734   (556037) от 01.06.2019
-
-VA - Первый танцевальный, Vol. 17 (Летний) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Life (English Version)
-02. MONATIK - LOVE IT ритм
-03. Филипп Киркоров - Стеснение пропало
-04. ZENA - Like It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F692D01EE26783F2DA78912C5A768216E9741084
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 961637   (298635) от 02.12.2015
+
+Обои - Amazing Christmas HD Wallpapers Mix Set 1-2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодние обои, для Вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0F841AE9C3D2C69AAF79D772489AE92C97FA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961987   (296888) от 03.12.2015
 
 Обои - Incredible  Wallpapers Mix 5 [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572B13CE53799510341DFEA0F5F832D143C4686B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335743   (286005) от 03.11.2019
-
-Desktop Wallpapers Full HD. Part (513) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6929613516CB9C1D35C42C27B903F7619287BD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

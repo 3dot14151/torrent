@@ -1,3 +1,87 @@
+###  Публикация: 255918   (354389) от 08.11.2010
+
+Юрий Антонов - От печали до радости... (2005) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354389.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329376   (354308) от 04.10.2019
+
+Popa Chubby - Wild (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт американского блюзмена Popa Chubby (настоящее имя - Ted Horovitz), прошедшего 27 марта 2004 года в Le Plan, La Fnac Evry, Meridien Hotel, France.01. Intro
+02. Un-American Blues
+03. I Can't See The Light Of Day
+04. Top Ten Reasons Why I Can't Sleep At Night(   Читать дальше...   )Производство: США,DixiefrogЖанр: БлюзПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826B06B9767560504BF20387E3F59B19A1F58B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178680   (353297) от 29.10.2017
+
+Iron Maiden - Maiden England '88 (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Iron Maiden записанный 27 и 28 ноября 1988 года в National Exhibition Centre (Birmingham, England). Впервые был выпущен в ноябре 1989 на VHS. В 2013 переиздан на DVD и CD.01. Moonchild
+02. The Evil That Men Do
+03. The Prisoner
+04. Still Life(   Читать дальше...   )Производство: PMI (UK)Жанр: Heavy Metal (NWOBHM)Режиссер: Steve HarrisПродолжительность: 1:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E891CAA5B2017E798288D0A4DA79904748E1C3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072017   (351721) от 13.11.2016
 
 Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
@@ -636,90 +720,6 @@ Rоb Orlemans & Half Past Midnight - голландское трио, играю
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158559   (303835) от 14.12.2009
-
-Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) 2*DVD-9
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal/Thrash MetalПеревод: ОригинальныйСубтитры: Английский, испанский, португальскийПродолжительность: 02:25:05 + 01:40:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960701   (303342) от 30.11.2015
-
-Cesaria Evora - Live D'amor (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cesaria Evora - Live D'amor En Concert Au Grand Rex Avril 5, 20041. Nutridinha
-2. Isolada
-3. Vaquinha Mansa
-4. Velocidade(   Читать дальше...   )Производство: BMG RecordsЖанр: Morna, Fado, FolkПеревод: ОтсутствуетПродолжительность: 01:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077840   (302413) от 30.11.2016
-
-Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
-02. See See Baby
-03. Some Other Day, Some Other Time
-04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
 ```
 
 https://mybot314.ru/tekegram_catalog/

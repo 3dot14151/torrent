@@ -1,3 +1,90 @@
+###  Публикация: 1632630   (235131) от 11.05.2023
+
+VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - The Universal
+02. Seal - Kiss from a Rose
+03. Diddy, Faith Evans, 112 - I'll Be Missing You (feat. Faith Evans & 112)
+04. Duran Duran - Ordinary World(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DE506E445488F1A9050CD5A3094F1EE00074AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641641   (235084) от 25.06.2023
+
+VA - Sexy Pride Music 2023 | For Girls Who Want Boys Who Like Boys [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy (2:36)
+02. John Travolta - You're The One That I Want (From “Grease”) (2:49)
+03. Sylvester - You Make Me Feel (Mighty Real) (6:34)
+04. Jennifer Lopez - On The Floor (4:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3020BEB309317B3EEAFE1E15A4F8B8345955BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632831   (234787) от 13.05.2023
+
+VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide (3:24)
+02. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)
+03. Daisy Jones & The Six - Look at Us Now (Honeycomb) (5:32)
+04. Løv Li - Glimpse of Us (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BA94528B767A13A7351A55CFA4C2053E08C3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584433   (234764) от 13.05.2023
 
 Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
@@ -679,98 +766,6 @@ VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96482A043C0376B8E959DCE6F4297B30C99A3A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586716   (226142) от 09.12.2012
-
-Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый двойной альбом Адриано Челентано, запись концерта проходившего 8-9 октября в Вероне, маэстро дополнил его еще девятью отличными студийными композициями в виде бонуса...1. Solo da un quarto d'ora (5:45)
- 2. Io sono un uomo libero (5:48)
- 3. Quel casinha (Il ragazzo della via Gluck) (4:28)
- 4. 24.000 baci (2:19)
- 5. Nata per me - Remix (2:58)
- 6. Dormi amore (5:31)
- 7. Tir (4:29)
- 8. Per sempre (5:10)
- 9. Gelosia (4:31)Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965368   (225640) от 14.12.2015
-
-VA - Hot Parade Winter 2016 (2015) [MP3|320 кб/с] <Dance, House, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies feat. Janieck Devy - Reality (2:3)
-02. Charlie Puth feat. Meghan Trainor - Marvin Gaye (3:04)
-03. Jess Glynne - Don\'t Be So Hard On Yourself (3:29)
-04. Robin Schulz feat. Francesco Yates - Sugar (3:3)(   Читать дальше...   )Жанр: Dance, House, PopПродолжительность: 2:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1B07708B38D272F171E716096A5E272FA8D5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341987   (225339) от 01.12.2019
-
-Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225339.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-CLUB MIX:
-01. Oh Tweak To Me (03:22)
-02. Luv 91 (04:22)
-03. You Got To (05:03)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 04:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

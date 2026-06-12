@@ -1,3 +1,119 @@
+###  Публикация: 1000484   (855823) от 27.03.2016
+
+Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brushstokes   03:20
+02. West Wind   05:24
+03. Be Still My Soul   03:54
+04. Christmans Hymn   02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109928   (855566) от 01.03.2017
+
+Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ong Namo (00:09:30)
+02. Ra Ma Da Sa (00:09:49)
+03. Living Song (00:05:19)
+04. Aad Such (00:09:00)(   Читать дальше...   )Жанр: New Age, Yoga, MantrasПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109905   (855213) от 01.03.2017
+
+VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iggy Pop - Lust For Life (The Prodigy Remix) [05:01]
+ 02. High Contrast - Shotgun Mouthwash [02:54]
+ 03. Wolf Alice - Silk [04:06]
+ 04. Young Fathers - Get Up [03:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F3C82D45BF7A5B60C6CA8EDFA7EE2983FD61A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376862   (854917) от 20.04.2020
+
+Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtrack, orchestral>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mercury
+2. For the Alliance
+3. Dreamer
+4. Cannonball(   Читать дальше...   )Жанр: dubchestral, soundtrack, orchestralПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB59813B1A062D255FDA24589BF501E29603933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377018   (854787) от 20.04.2020
 
 Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
@@ -647,119 +763,6 @@ Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001739   (850049) от 30.03.2016
-
-Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499169   (849649) от 01.10.2021
-
-Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Sun
-02. Chisy Muspuyalay
-03. Savry Nan
-04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111247   (848365) от 05.03.2017
-
-Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Storm [00:04:48]
-02. High Tide [00:04:01]
-03. Moonsong [00:03:36]
-04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111353   (848175) от 05.03.2017
-
-Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis - Come On (Remastered)
-02. Vangelis - We Are All Uprooted (Remastered)
-03. Vangelis - Sunny Earth (Remastered)
-04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

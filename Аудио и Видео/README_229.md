@@ -1,119 +1,3 @@
-###  Публикация: 1511882   (245732) от 22.11.2021
-
-VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natasza Kurek Group - Lesmianie (The Forest Tale) (4:47)
-02. Soulounge, Florine Dimonye - L Is Gone (4:34)
-03. 351 Lake Shore Drive, Genius Jane - Moon Shadow (5:24)
-04. Thomas Lemmer, Lena Belgart - Is It Too Late (Radio Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512697   (245415) от 25.11.2021
-
-VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jjos, Manu López - On a Magical Night (6:30)
-02. Jorge Tamarit - On The Move (3:32)
-03. Siri Umann - Soft Waves (4:14)
-04. José Ramos - Chill Hotel (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE4E26E952D8C506450D590DC19A4A9DFA4904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512683   (245382) от 25.11.2021
-
-VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorge Tamarit - Inside Secrets (5:51)
-02. Jjos - Fly Away (Ambient Mix) (4:42)
-03. José Ramos - Acalento (3:58)
-04. Fede Garcia - 360 Degrees (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69558894C8B029148BE9CA69A84DC097F7AF6931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512698   (245373) от 25.11.2021
-
-VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Annette Berg - Sunset People (Original Mix) (4:39)
-02. Beamy - Moonglow (3:32)
-03. Project Blue Sun - Living in Dreams (Original Mix) (3:31)
-04. Marga Sol - Bliss of Water (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A3659015B710C6880BA07E57DE32A56E271A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512498   (245366) от 25.11.2021
 
 Mirko Hirsch - Flashes in the Night (2021) [AAC|~352 Kbps] <Pop, Disco>
@@ -742,6 +626,122 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529328   (244844) от 06.02.2022
+
+VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Union, Alexander Alar - Istanbul (Original Mix) (7:00)
+02. Bruno Pauwels - Peaches on the Moon (Original Mix) (5:53)
+03. Feelmark - Contact (Original Mix) (6:45)
+04. Tantra - Bali (Original Mix) (7:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A95286E318E18026FDD022C3DC9CAB9DE623A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529327   (244836) от 06.02.2022
+
+VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep House, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helen&Boys - Not Too Long Way (Original Mix) (6:58)
+02. Bruno Pauwels - Temptations (Original Mix) (5:29)
+03. Underbooz - Back to Nature (Original Mix) (6:54)
+04. Mayro - Decisions (Original Mix) (7:57)(   Читать дальше...   )Жанр: Melodic House & Techno, Deep House, Progressive HouseПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120CA5006F3AC76066DB2B4E7969E923DEDF99FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529329   (244828) от 06.02.2022
+
+VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organic/Afro House, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Di Sabato, Ras Algethi - Astronomical Bodies (Original Mix) (6:20)
+02. Yerom - Abstrakt (Original Mix) (6:40)
+03. Agma - Hurricane (Original Mix) (6:48)
+04. Artaria - Ramble (Original Mix) (9:12)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic/Afro House, Progressive HouseПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084FB1FC34C61072FE1E16FF9EC4474B488D25FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529330   (244823) от 06.02.2022
+
+VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SHMN - To Be Loved (Original Mix) (8:22)
+02. Deniz Kabu - Endless Walls (Original Mix) (6:40)
+03. Bragken, CATMOONK, Isida - Voice in My Head (Original Mix) (7:52)
+04. Add-us - Orca (Original Mix) (9:04)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6637F3468547A9F19D54B511A7C19BB935F90BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

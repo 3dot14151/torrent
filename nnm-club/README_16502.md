@@ -1,189 +1,21 @@
-###  Публикация: 1415106   (380887) от 10.10.2020
+###  Публикация: 1067332   (387547) от 29.10.2016
 
-Wesbos | Изучите Gatsbyn / Master Gatsby (Master Package) (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавать современные веб-сайты сложно. Предварительная загрузка, маршрутизация, сжатие, критический CSS, кеширование, масштабирование и сборщики - все это делает веб-сайты невероятно быстрыми, но мешают дополнительные разработки и инструменты. Gatsby - это фреймворк React.js, который сделает все за вас.
-Что вы построите?
-Вместе мы создаем веб-сайт для местной пиццерии (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E874BF72B1A0A8C4FB8059E209A9078FFF0F349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415099   (380886) от 10.10.2020
-
-Commander One PRO Pack 2 v2.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
-
-Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE14CFF30F7EC32376D5EC14FC0FD7DEFC9AF958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414982   (380885) от 10.10.2020
-
-Евгений Божьев | Календарь здоровья и долголетия по Божьеву на 2021 год (2020) [EPUB]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Божьев – невролог, мануальный терапевт, сторонник альтернативной медицины – учит исцелению без лекарств и докторов. Его уникальные оздоровительные методики проверены годами медицинской практики, его авторские видео на YouTube-канале «Исцеляйся САМ!» набирают миллионы просмотров.
-В этой книге-календаре вы найдете рекомендации на каждую неделю года, которые (   Читать дальше...   )Жанр: Здоровье, Народная и нетрадиционная медицинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D911682DE4ED33FB0395FCF26998A9D5E02FA737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414926   (380884) от 10.10.2020
-
-Томирис / Tomiris / The Legend of Tomiris (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди древних народов, населявших просторы Евразии, особо выделялись племена, называющие себя саками. Это были кочевники и великие воины степи. Начинается история с краткого жизнеописания отца Томирис — царя Спаргапа. Спаргап, имея право на царский трон, вовлечён в войну между родами саков — массагетов. Влиятельные вожди, среди которых выделяются алчные и хитроумные (   Читать дальше...   )Производство: Казахстан / Студия Казахфильм, SataifilmЖанр: Драма, историяРежиссер: Акан СатаевАктеры: Альмира Турсын, Адиль Ахметов, Еркебулан Дайыров, Берик Айтжанов, Азамат Сатыбалды, Гассан Массуд, Илез Бадургов, Мурат Бисенбин, Аян Утепберген, Асылхан ТолеповПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435CB45DE566B4FFC3D330E31B73EFB9C55CCCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068653   (380883) от 01.11.2016
-
-Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.As Long as She Needs Me [02:42]
- 02.This Love of Mine [05:18]
- 03.A Tree in the Meadow [02:56]
- 04.Laura [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E63E188BA87AE77DD34DEC3BAE626C4D926AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068371   (380882) от 01.11.2016
-
-John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hicks Tone [07:55]
- 02.I Want to Talk About You [05:57]
- 03.Bop Scotch [05:01]
- 04.True Blue [06:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EBB51F81BA981871CB9C2235738D348C88D0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068656   (380881) от 01.11.2016
-
-Joe Locke & Kenny Barron - But Beautiful (1991) SteepleChase[FLAC|Lossless|tracks + .cue] <Post-Bop>
+Ronnie Earl & The Broadcasters - Still River (1993) [FLAC|Lossless|image + .cue] <Blues, Instrumental>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.On a Misty Night [05:58]
- 02.You Don't Know What Love Is [08:09]
- 03.Spring Is Here [07:54]
- 04.Single Pedal of a Rose [03:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:57
+01| Blues For The West Side   (03:34) 
+  02| Time To Remember   (06:52) 
+  03| Kansas City Monarch   (07:38) 
+  04| Szeren   (05:04) (   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 01:02:27
 
 ## Скачать торент
 ```bash
@@ -195,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067430   (380880) от 01.11.2016
+###  Публикация: 1067367   (387546) от 29.10.2016
 
-Волейбол. Клубный чемпионат мира 2016. Мужчины. Группа A. 2-й тур. Сада Крузейро(Бразилия) - Зенит(Россия) (20.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+Журнал | Моя прекрасная дача №22 (Ноябрь 2016) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 октября 2016, 01:00 МСК
-Клубный чемпионат мира 2016. Мужчины. Бетим (Бразилия)
-Группа A. 2-й тур
-(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:53:24
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:892A49AC9EC6FAE3ECFB45D151240DD97A9C2F2F
+magnet:?xt=urn:btih:C49F3B6FC67EC149E31D38C710935BE0DB7855E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068334   (380879) от 01.11.2016
+###  Публикация: 1067745   (387545) от 29.10.2016
 
-Chris Flory with Duke Robillard - Blues In My Heart (2003) [APE|Lossless|image + .cue] <Swing, Rhythm & Blues>
+Охота (2016.10.29) SATRip (выпуск 7)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01| Scam   (06:46) 
-  02| Willow Weep For Me   (07:20) 
-  03| Bernie's Tune   (04:49) 
-  04| I've Got A Right To Sing The Blues   (05:01) (   Читать дальше...   )Жанр: Swing, Rhythm & BluesПродолжительность: 00:47:11
+17 сентября жизнь нескольких десятков людей изменится навсегда. В этот день 29 человек из разных уголков России превратятся в живую мишень для агентов спецслужб в рамках невероятного социального эксперимента НТВ «Охота». Участникам триллера в реальном времени предстоит выжить в условиях тотальной слежки. Они забудут голоса родных, теплую постель, свой пароль к аккаунту (   Читать дальше...   )Производство: НТВЖанр: Реалити-шоу, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:14:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2181BE16CEBF8A703F3C68F40164E74DB8FC1A1
+magnet:?xt=urn:btih:D3B58D2F0D34DD0F170A46577E506A0B1688A9EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,24 +79,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068668   (380878) от 01.11.2016
+###  Публикация: 1067209   (387544) от 29.10.2016
 
-Billy Strayhorn - The Peaceful Side (1961) 1996, Capitol Jazz[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+VA - Planet Italo Disco, Vol. 2 (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Lush Life [03:28]
- 02.Just A-Settin' And A-Rockin' [02:52]
- 03.Passion Flower [03:43]
- 04.Take The ''A'' Train [03:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:27
+01. Alan Brando - Heartbeat (Radio Club Instrumental Version) [05:01]
+02. Aldo Lesina - Illusion (Short Instrumental Verona Remix) [04:50]
+03. Michael Rimini - Summertime in My Heart (Instrumental Summer Version) [04:31]
+04. Rynar Glow - Deep in Love (Short Instrumental Vocal) [04:46](   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:31:36
 
 ## Скачать торент
 ```bash
@@ -282,24 +108,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068393   (380877) от 01.11.2016
+###  Публикация: 1067622   (387543) от 29.10.2016
 
-VA - Morning Vibes Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - United Sports Audio: Runners Edition Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Themroc aka Robag Wruhme - Delmac
-02. SoulSonic - Gentle Time
-03. Der Schamane - Glaswerk
-04. Mono Tuned - Offbeat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:49
+01. Tildbros - African Vibe (Sunset Festival Mix)  6:34
+02. Pearls Of Ibiza - I Live My Life (Mykel Mars Edit)  3:25
+03. Calabria - Monday Morning (Club Mix)  5:15
+04. P.N.O - In the Air  3:40(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:05:52
 
 ## Скачать торент
 ```bash
@@ -311,24 +137,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068330   (380876) от 01.11.2016
+###  Публикация: 1067744   (387542) от 29.10.2016
 
-Chris Flory, Scott Hamilton - Chris Flory Quintet featuring Scott Hamilton (2011) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Международная пилорама (2016.10.29) SATRip (выпуск 9)
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01| The Lady's in Love With You   (06:35) 
-  02| Girl Talk   (07:26) 
-  03| Hit and Run   (06:05) 
-  04| Born to Be Blue   (05:16) (   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:02
+«Международная пилорама» сэкономит время телезрителей. Следить за политической обстановкой в мире, колебаниями курсов валют и новостями шоу-бизнеса теперь вовсе не обязательно. Каждую субботу Тигран Эдмондович в свойственной ему язвительной манере будет разбирать события мировой политики. Под огонь его едких комментариев попадут многие — от журналистов до политических (   Читать дальше...   )Производство: НТВЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:35:52
 
 ## Скачать торент
 ```bash
@@ -340,312 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068386   (380875) от 01.11.2016
+###  Публикация: 1174127   (387541) от 14.10.2017
 
-VA - After Sun Vol.6: 20 Sweet Electronic Sundowners (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Planet Sun - Get up Stand Up - Original Mix
-02. Cosmique Beat Ensemble - Little Princess - Original Mix
-03. Ambience Soul - Body Bizarre - Original Mix
-04. Blue Castle - Days in Love - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068492   (380874) от 01.11.2016
-
-VA - Space Ibiza On Tour (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wally Lopez/Audio Junkies - Serenade (Tapesh Remix) 06:58
-02. Myncwally Lopez - Esa Boca Linda 05:23
-03. Luca Bernardi - The Ex Is Back In Town (David Herrero Ole Remix) 05:40
-04. Neil/Edgar Vm - Disco Dreamers (Angelo Ferreri Remix) 07:23(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933C246215E2868602E11D09CC7D4B04D6B1B326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068426   (380873) от 01.11.2016
-
-Terry Davidson & The Gears - Leave Here Runnin (2004) [APE|Lossless|image + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Drives Me Wild
-02. Leave Here Runnin
-03. Slow and Easy
-04. Blood(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B217CCD0C1330525F711AB592052499771537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068207   (380872) от 01.11.2016
-
-VA - Summer Feelings Vol. 2: Tracks Of A Endless Summer (2016) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Morgenstund
- 02. Der Dienstleister - Klippenspringer (Original Mix)
- 03. Heinrich & Heine - Like The Sun (Original Mix)
- 04. Miguel Alcobia - I'm a Beat Maniac!(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D3C8DB31CB0F471C48B546AC344F12EB2B0A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068349   (380871) от 01.11.2016
-
-Jay McShann - Hootie's Jumpin' Blues (1997) [APE|Lossless|image + .cue] <Piano Blues, Jump Blues, Jazz Instrument>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Hootie Blues   (03:52) 
-  02| Vine Street Boogie   (04:31) 
-  03| 'Fore Day Rider   (02:12) 
-  04| Hands Off   (02:56) (   Читать дальше...   )Жанр: Piano Blues, Jump Blues, Jazz InstrumentПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA60A0754B3BFA1D7C416E402535FD566574D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068502   (380870) от 01.11.2016
-
-VA - Workday Lounging (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roy White - Stare 5:14
-2. Sonorous Dreams - Orient Chill 5:29
-3. Lazy Hammock - Rise With You (Gabor Deutsch Broken Guitar Mix) 6:51
-4. Deep From Street - Shoes 4:30(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283017E19DD8211F4D243C7F6F6268F767EE3D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068590   (380869) от 01.11.2016
-
-Matalobos - Arte Macabro (2016) [MP3|320 Kbps] <Melodic Doom, Death Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derelict 07:30
-02. Solitary Confinement 07:45
-03. Macabre 07:30
-04. Shiver 05:47(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068409   (380868) от 01.11.2016
-
-Жак Оффенбах | Находчивый флейтист (1956) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта маленькая изящная комедия была написана Оффенбахом в 1868 году под названием "Волшебная дудочка". Сюжет пьесы предлагает нам историю из семейной жизни среднего буржуа. В поле зрения композитора попадает романтика чувств молодых героев , их счастье и тревоги...Жанр: Радиоспектакль, опереттаПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8E475B6A93772B9B984F4C50C02C4060878242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068148   (380867) от 01.11.2016
-
-Александр Волков | Магдалина (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это роман о жизни петербургской богемы, студенчества и самого города на протяжении последних двадцати лет. Здесь есть все: сильные характеры, любовь, убийство и даже поиски снежного человека. В центре повествования - трагическая фигура Магдалины XX века -крымской гречанки Марьяны.Жанр: РоманПродолжительность: 18:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B6DC1CDD2731BE9F60FB4BF200DC96738B9AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068264   (380866) от 01.11.2016
-
-VA - Chillout Eargasm Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Gatsi - Fine of Nine - Instrumental Version
-02. Devillas - Schpace Pluck - Cut Version
-03. Heso - Dream Guitar
-04. Jack & Jones - Wrong - Ticane's Treatment(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5DA3AB7CA51F89C8C0706EBD7CAE84B30E2230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068390   (380865) от 01.11.2016
-
-VA - Trance Traveling 82 (Mixed By VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Vocal, Energy, Progressive>
+VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ana Criado - Vulnerable (Denis Kenzo Remix)  6:15
-02. Reskide - Drawbridge (Extended Mix)  3:45
-03. Moonlight Tunes - You Will Find The Way (Original Mix)  4:45
-04. Mardven - Aim (Extended Mix)  3:08(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Vocal, Energy, ProgressiveПродолжительность: 04:03:44
+01.  Biologik & K Nass - Corrupted (Biologik Remix)  7:17
+02.  Yunta - Revolution (Uvo Remix)  7:18
+03.  Desaturate - Inundate (Original Mix)  8:14
+04.  Rick Pier O'neil - Crystallized (Wes Straub Remix)  6:36(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
+magnet:?xt=urn:btih:F40842B62FD5B4A291F728A1D2CC90F1DFC3A979
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +192,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068268   (380864) от 01.11.2016
+###  Публикация: 1174125   (387540) от 14.10.2017
 
-VA - Chillout Eargasm, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bemsha Swing [04:39]
+02. Just a Gigolo [04:32]
+03. Reflections [06:03]
+04. I Love You Sweetheart of All My Dreams [03:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D304C21C7CBD6B531C75BD0E9C3B9D147D2A8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174247   (387539) от 14.10.2017
+
+CoolUtils Total Audio Converter 5.2.0.156 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631BA15555FD65EA15A7ADA60B05583CBA9FE942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174348   (387538) от 14.10.2017
+
+Samuel Prody - Samuel Prody (1971) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Heavy Psych-Prog Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387538.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Who Will Buy
+2. Woman
+3. Time Is All Mine
+4. Scat Shuffle(   Читать дальше...   )Жанр: Heavy Psych-Prog RockПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174001   (387537) от 14.10.2017
+
+VA - Keep It up Workout, Vol. 1 (2017) [MP3|320 Kbps] <House>
 
 >>Electronic
->>Easy listening
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillo - Centimetres Fantasies [00:04:07]
-02. Milfy Cougar - Massive Pads [00:07:08]
-03. Carlo Peralta - Playa Arenal [00:04:21]
-04. Vinicious - Mulata [00:03:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:04:20
+01. DJ Emeriq - Put It Out
+02. 02. DJ Scaldia & Ali Tcheelab - Bones And Candy
+03. Sugar Vibe - Neon
+04. Andrea Di Maso - Only You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:45:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:171A14E0E084BE20A2BD21794BAC99A24E00DEA4
+magnet:?xt=urn:btih:C39F74143FE528CF022C475192112A6EA9C97FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,25 +305,238 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573231   (380863) от 10.11.2012
+###  Публикация: 1174143   (387536) от 14.10.2017
 
-Р.В. Балмина и др. | Состояние и перспективы разработки гиперзвукового вооружения [2012] [PDF]
+Вера Колочкова | Зима Джульетты (2016) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если представить, что шекспировская героиня не умерла, а осталась жить, но без Ромео, - какой бы она была в зрелости? Возможно, такой же, как героиня нового романа Веры Колочковой, Юлия, оставшаяся вдовой, еще когда ее сын не родился?.. Мечтала бы Джульетта пережить в своей жизни любовь еще раз или так и жила бы памятью о своем потерянном возлюбленном? Какой была (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174024   (387535) от 14.10.2017
+
+Tap Forms Organizer 5.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте Tap Forms Organizer для отслеживания вашего инвентаря на работе и управляйте предметами домашнего обихода в домашних условиях. Отлично подходит для страховых и бухгалтерских целей! Это даже отлично подходит для управления списками подарков к праздникам или отслеживания всех ваших расходов и списков дел.
+
+Вы любитель кино, но у вас есть слишком много фильмов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AE9B4AF294345480948992329E6ABE0C7ADF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174146   (387534) от 14.10.2017
+
+Вера Колочкова | Благословение святого Патрика (2013) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиза казалась в своем кругу юродивой. Слишком мягкая, слишком скромная, она могла услышать в шелесте листьев пятую симфонию Рахманинова. Лиза обречена оставаться белой вороной. Но однажды ей вдруг встретился человек, удивительно похожий на саму Лизу, правда, давно и неудачно женатый на властной и грубой женщине. Слишком много условий, препятствующих союзу. Этой паре (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D100A49CB2DFD4DB8397E086D18CFCD923D9511E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174122   (387533) от 14.10.2017
+
+Вера Колочкова | Дом для Одиссея (2012) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный адвокат Елизавета Заславская давно уже не думает о детях - несчастливая любовь юности, казалось, убила в ней материнские чувства. Но неожиданно ее любимый, тщательно опекаемый муж­-музыкант, нежная натура, бросает семью ради больной женщины и двоих ее детей, ради возможности самому нести ответственность - и за себя, и за жизнь других людей. И тогда-то Елизавета (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498C37F59E2B03391595CE72385E5241ED6A351D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174318   (387532) от 14.10.2017
+
+Зоран Аврамович | Демократия и бомбардировки. Есть ли будущее у демократии? (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Зоран Аврамович принадлежит к кругу очень известных сербских интеллектуалов, и на протяжении десятилетий он с успехом занимается политической философией и современной теоретической мыслью. Автор утверждает, что острой проблемой является сама современная демократия, ее двойственная природа, проявляющаяся, в том числе, в двуличии и «двойных стандартах». По (   Читать дальше...   )Жанр: История, ПолитикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EB4C7FF9F6CA33DC130CD8E1167691A10B1154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174162   (387531) от 14.10.2017
+
+Открытый микрофон (2017.10.13) WEB-DLRip (сезон 2, выпуск 9)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387531.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7879201D3785BCA3EB5CA9F519A96EE0C21CF023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174164   (387530) от 14.10.2017
+
+Открытый микрофон (2017.10.13) HDTV [H.264/1080i] (сезон 2, выпуск 9)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387530.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11C9609B316DAC34771D1CB131649FD66C8C0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173924   (387529) от 14.10.2017
+
+VA - Deep House Drops (Autumn '17) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Big Room>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Franky Delay – If You Lose Your Mind (04:19)
+02. Mironov & Lykov – All Night Long (04:13)
+03. Tali & De Fault – Heart & Ice (04:20)
+04. Patrick Richmond – Survive (04:54)(   Читать дальше...   )Жанр: Deep House, Big RoomПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C74D1486771F3BF72FEBB0931ADABFC61B32A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174197   (387528) от 14.10.2017
+
+Антонина Михайловна Осоргина | История русской литературы. С древнейших времен до Пушкина (1955) [PDF]
 
 >>Научная и техническая литература
->>Научно-популярная литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В работе рассмотрены вопросы текущего состояния и перспективы разработки гиперзвукового вооружения.Формат: PDF
+История русской литературы» написана для учеников русских школ, а также и для родителей, желающих руководить образованием своих детей. Книга эта может быть интересна и полезна и взрослым людям, желающим ознакомиться с историей русской литературы, проследить ее развитие с древнейших времен до первой половины XIX-го века, до Пушкина. Настоящий курс литературы ученики (   Читать дальше...   )Жанр: ЛитературоведениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:118E4CF5F6369F0EEDF0D6B855A180D341EBCA35
+magnet:?xt=urn:btih:D2AC92DB9A53555A163A8708759E32B280CAFE86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,34 +544,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 572475   (380859) от 10.11.2012
+###  Публикация: 1174182   (387527) от 14.10.2017
 
-Весёлые ребята - Эх, напрасно, тётя... (2002) [MP3|320 кб/с]<Pop>
+DiskExpert 2.5 [En]
 
->>Pop
->>Отечественная поп-музыка
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не волнуйтесь, тётя
-02. Чашка чая
-03. Школьная пора
-04. Ни минуты покоя
-05. Бологое
-06. Уходило лето
-07. На земле живет любовь
-08. Когда молчим вдвоём
-09. Встречи
-10. Люди встречаются(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:39
+Disk Expert - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
+
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные DMG-образы и сетевые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: NektonyПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECB6F00BBF22165998F588723B5165D4CA18501C
+magnet:?xt=urn:btih:EB229E6A6543D591E3344B61CA3029DB197A2BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174145   (387526) от 14.10.2017
+
+Gun - Favourite Pleasures (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. She Knows (3:24)
+2. Here's Where I Am (3:40)
+3. Favourite Pleasures (3:25)
+4. Take Me Down (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4274F330BEBBCD7C1D5A76A0F10B8B9D893E9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174070   (387525) от 14.10.2017
+
+Sidify Apple Music Converter 1.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Apple Music Converter -  хорошо продуманный аудио конвертер для iTunes музыки для пользователей Mac.
+Sidify Apple Music Converter может удалить DRM от Apple Music и позволяет сохранить треки в формате AAC или MP3 на локальном компьютере или музыкальных плеерах. Кроме того, вы можете использовать Sidify Apple Music конвертер для преобразования аудиокниги и музыку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Sidify Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E18E61ACBE5E41BAB2A60EC0728934C60EA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174315   (387524) от 14.10.2017
+
+Akela Sun - Chill (2016) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Close Your Eyes (4:28)
+ 2. Horizon (4:04)
+ 3. Chill (5:50)
+ 4. Magic Sails (4:38)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174330   (387523) от 14.10.2017
+
+Международная пилорама (2017.10.14) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387523.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Международная пилорама» сэкономит время телезрителей. Следить за политической обстановкой в мире, колебаниями курсов валют и новостями шоу-бизнеса теперь вовсе не обязательно. Каждую субботу Тигран Эдмондович в свойственной ему язвительной манере будет разбирать события мировой политики. Под огонь его едких комментариев попадут многие — от журналистов до политических (   Читать дальше...   )Производство: НТВЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:36:14Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1127429775AA1B49D8A8B671692AB1B02B089208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174278   (387522) от 14.10.2017
+
+Дмитрий Собына | Непокоренный «Беркут» (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о событиях, происходивших в Киеве с ноября 2013 по февраль 2014 г. и кардинально изменивших судьбу Украины. Они описаны непосредственным их участником – сотрудником спецподразделения «Беркут». Автор вкладывает в рассказ главного героя впечатления, раздумья и переживания, выплавленные в непростой духовно-нравственной работе. Долг, честь, предательство, любовь (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F0B547D2705BEE98872E6A6750F67268FE30DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

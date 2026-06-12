@@ -1,119 +1,3 @@
-###  Публикация: 1512944   (227701) от 27.11.2021
-
-VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compuphonic, Marques Toliver - Sunset (Tim Engelhardt Remix A) (7:10)
-02. Jurek Riegler - Muddy Waters (Original Mix) (8:10)
-03. Kadosh (IL), Yost Koen - Mindrum (Original Mix) (6:37)
-04. Alessio Pagliaroli, Jinadu - Colour My Vision (Massimiliano Pagliara Remix) (9:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512890   (227693) от 27.11.2021
-
-VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kristian Heikkila - Toilet Romantik (Original Mix) (5:32)
-02. Animal Trainer - Yamato (Original Mix) (7:29)
-03. Kadosh, Yost Koen - Mindrum (Original Mix) (6:37)
-04. Betoko - Phantasy (Sezer Uysal's 'Afrekno' Remix) (8:04)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512885   (227655) от 27.11.2021
-
-VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227655.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Chronos, Taff - After Twelve (10:12)
-1.02. AuroraX - Photon Dream (10:26)
-1.03. Sufi's Life - Ice and Fire (8:06)
-1.04. Merlin, Lydia - Infinity (5:35)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 03:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD905C1D8B5992F320B299D2E2D4BE263A0C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513017   (227647) от 27.11.2021
-
-VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Sunshine (Original Mix) (4:42)
-02. Boris Backup - Introspector (Original Mix) (8:00)
-03. Florent Campana - Silver Haze (Original Mix) (5:12)
-04. Living Room - Brand New Day (Original Mix) (4:13)(   Читать дальше...   )Жанр: Deep House, Chill House, DowntempoПродолжительность: 03:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB65A9414715B69B8F8AF5F1A639FE016DD354B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513044   (227617) от 27.11.2021
 
 VA - Arabian Nights 2 (2020) [AAC|~329 Kbps] <Chill Out, Downtempo, Organic House>
@@ -724,6 +608,119 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C05FA528352473A95BE5AD530010FEF6FB9A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424795   (226095) от 18.11.2020
+
+VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Monkeys (Original Mix) (4:51)
+02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
+03. Elton Dumont - All Night Long (Original Mix) (3:16)
+04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513193   (226077) от 28.11.2021
+
+VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Micronaut - WidelensЖанр: Deep House, Tech HouseПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DDA004593F5C87306ED830FD7B70D9C16B8F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513203   (226069) от 28.11.2021
+
+VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.R.A.L.I - Star (6:53)
+02. Goda Brother - Return (6:54)
+03. MAAND - Lanus (8:16)
+04. Gonzalo Sacc, Franco Leonardini - Living for Today (8:28)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BACBC42F388AA1B10EF63354AC2133CD72DA3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424806   (226068) от 18.11.2020
+
+Dabro - Юность (2020) [AAC|~301 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая луна (2:48)
+02. Она не такая (3:29)
+03. Все за одного (3:25)
+04. Почему так происходит (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7746A0F5357E8A3599B19D4254D616F570526642
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1175642   (376133) от 19.10.2017
+
+VA - Men Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peter Green Splinter Group - Crawlin' King Snake  5:38
+02.  Boogie Beasts - Coming Home To You  4:58
+03.  United Rhythms Of Brazil - Missing  2:50
+04.  Steve Fawcett - Shadows  2:20(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B4D41CB4F276ED8492A1312B2877EE6A6FE039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175715   (376129) от 19.10.2017
 
 VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progressive House>
@@ -731,35 +760,6 @@ VA - Gold Remixes Italo Disco Vol.2 (2017) [MP3|320 Kbps] <Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DE02AD03269FCAE94024B22A9EF58141C252A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068526   (374151) от 04.11.2016
-
-VA - Chillin on a Winters Eve (2016) [MP3|192-320Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freud - Eternal
-02. 100 Debija - Noslepums
-03. Charlae Olaker - Ebben (From "La Wally")
-04. The Gregorians - Until the Rising Sun(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A8DC8B0388FE1EC97869AA5D1347795B90D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

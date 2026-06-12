@@ -1,25 +1,25 @@
-###  Публикация: 860943   (937538) от 18.01.2015
+###  Публикация: 1362836   (937905) от 02.03.2020
 
-Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Post-Grunge>
+Justin E. Bell - The Outer Worlds (Original Soundtrack) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shelf In The Room (4:44)
-	02. Touch, Peel And Stand (4:58)
-	03. Face Of The Earth (5:17)
-	04. Solitude (4:11)(   Читать дальше...   )Производство: 1997, Outpost Recordings/OPRD-30004Жанр: Post-GrungeПродолжительность: 01:12:05
+|07:45| 01. Hope (Title Theme)
+|02:00| 02. Hope, Forever
+|04:19| 03. Left Adrift (Character Creation)
+|01:07| 04. Phineas Escapes(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:33:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
+magnet:?xt=urn:btih:8C691606503CE3EBE984A8D572B57B0876A102C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 859875   (937526) от 18.01.2015
+###  Публикация: 1364393   (937903) от 02.03.2020
 
-Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
+2raumwohnung - 20JAHRE 2RAUMWOHNUNG (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Electro, House, Indie Pop>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:18
+01. Ich und Elaine (3:39)
+ 02. Bei dir bin ich schön (3:15)
+ 03. 36Grad (3:50)
+ 04. Wir werden sehen (Paul Kalkbrenner Remix 2020 Edit) (3:53)(   Читать дальше...   )Жанр: Electronic, Synthpop, Electro, House, Indie PopПродолжительность: 01:18:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
+magnet:?xt=urn:btih:C33CF95DC7B9CF27B32A46116AE19D0A057C898E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,377 +56,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 283878   (937498) от 19.01.2011
+###  Публикация: 553617   (937902) от 09.03.2013
 
-VA - House Vip [14.01.2011] (2011) [MP3|320 kbps]<Electro House>
+[Программа] (Android 2.1 +) AnyBalance 2.9.615 - Информация о балансе /обновлено 07.03.13/
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Top Of The Stars (Houze Bandits Vs. Scott Guscio Remix) (5:21)
-02. Chocolate Puma - Whohadchants (Dj Karasev Remix) (4:48)
-03. Dangersounds - Feel That Thing (Yacine Soufiane Remix) (7:41)
-04. Deep Purple - Smoke On The Water (Bruno Ribeiro The Lost Note Remix) (6:38)
-05. Javi Reina Alex Guerrero Feat. Syntheticsax - Oig (DJ Sayman DJ Layman Remix) (6:52)
-06. I Like The Base (Future Breeze Remix) (5:06)
-07. Round N Round (William Hawk Remix) (6:00)
-08. Mr Rox & Mr Simon - Weekend (Original Mix) (6:27)
-09. Ravers Night (Major Tosh Remix) (6:15)
-10. Rabbit Killer & Steep Bass Project - Electro Birthday Mike (Original mix) (6:35)Жанр: Electro HouseПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6857AFCEF45D021E3E06D5B761F9345E6BB261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284454   (937496) от 19.01.2011
-
-Pedro Del Mar - Mellomania Deluxe 470 (17-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937496.jpg" />
-</div>
-
-
-###  Подробнее
-
-PEDRO DEL MAR IN THE MIX:
-
-01. roger shah pres. sunlounger feat antonia lucas - beautiful night (ralph fritsch 5am sunrise remix)Жанр: TranceПродолжительность: 02:0027
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D561418B96A144C59412FF5C46EB631AF7FDB1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284104   (937495) от 19.01.2011
-
-VA - House Vip [15.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Barudi - I Found Love (Electrixx Remix) (06:22)
-02. Candid - Higher (Digital Blush Remix) (05:33)
-03. Hey Baby (Drop It To The Floor) (OMG Remix) (05:18 )
-04. La Musique D'Ordinateur - The Hoover (Mr. Penisman Remix) (03:45)
-05. Love Unit - 2 Times 2011 (Steve Modana Remix) (06:16)
-06. Angel (Bbop & Roksteadi Club Mix) (05:24)
-07. Mr Rox & Mr Simon - Weekend (Original Mix) (06:27)
-08. Twelve11 - Created (Original Mix) (05:15)
-09. Freakin' Perfect (Digital Blush Remix) (06:06)
-10. Weekend Warriors - Firework (City Kicks Mix) (06:16)Жанр: Electro HouseПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DFA4B51A11DBD5CEB4309696E9B4A9199731BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284452   (937494) от 19.01.2011
-
-Pedro Del Mar - Mellomania Vocal Trance Anthems 140 (17-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii vs. Kings Of Leon - Abow vs. Sex On Fire (Avicii's Bootleg)
-02. Sherry Flavour & Tara Mcdonald - The Grand (Extended Mix)
-03. First State & Sarah Howells - Reverie (Jeziel Quintela, Jquintel & Manufactured Superstar)
-04. Jozhy K & Angel - I Won't Be Crying For You (Jon Median Remix)
-05. Nadia Ali - Point The Finger (Lost Stories Extended Mix)
-06. Eximinds feat. Aelyn - I Feel You
-07. Tucandeo feat. Jennifer Hershman - Only We Know (Estiva Remix)
-08. Lost Witness - Fade Away (Full Vocal Mix)
-09. Randy Boyer feat. Cari Golden - Fragile (Jonas Hornblad Remix)
-10. Novaline feat. Anthya - SirenЖанр: TranceПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CBF6791ED6062F27A47C899F30A319D256CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284522   (937493) от 19.01.2011
-
-VA - House Vip [16.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. AUtOdiDakT & Electro Ferris - Chainsaw (Dj Antention Remix) (4:51)
-2. BeatauCue - Disque Oh! (High Rankin Remix) (4:24)
-3. Briana - Life keeps on Going (DJ Solovey remix) (5:15)
-4. Chris Decay - Like That (Bigroom Mix) (5:37)
-5. Dj Viduta - You are ready (5:12)
-6. E-Bonit vs. Mike McPower - Set Free (Party NoiserZ & Sound Stylez Remix) (6:07)
-7. Herd & Fitz feat. Abigail Bailey - I Just Can't Get Enough (Audio Brothers Remix) (4:48 )
-8. Kesha - We R Who We R (Fred Falke Club Mix) (6:56)
-9. Manyus & Paolo Di Miro - Midnight (P. Di Miro Elektrorock Mix) (6:07)
-10. The Noisy Freaks - Fast Chased (Drivepilot Remix) (5:00)Жанр: Electro HouseПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193D35531FBB43E97450F7404B89746E365C4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860394   (937491) от 18.01.2015
-
-Журнал | Женские секреты №1 (январь 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937491.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Женские секреты» — популярный журнал для самостоятельных, настоящих женщин, которые занимают активную жизненную позицию. Основные рубрики журнала охватывают большую часть интересов современной женщины: взаимоотношения, мода, косметика, здоровье, спорт и многое другое..
-Дайждест самых главных женских секретов.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695DCFC834118A97E98C1474F5E0CD36FF33893B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860793   (937486) от 18.01.2015
-
-Чудо техники (2015.01.18) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937486.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых изобретениях. Теперь обо всем, что происходит на передовой научно-технического прогресса, узнают и зрители НТВ. Новинки и открытия со всего (   Читать дальше...   )В выпуске: Телевизоры нового поколения: за что производители просят сотни тысяч?
-Зимняя рыбалка: гаджеты для рыбака и рыбки.
-А также — современные технологии в борьбе с варикозом и 5 впечатляющих способов ухода за волосами.
-Все самое интересное — в программе «Чудо техники».Жанр: ТелепередачаПродолжительность: ~ 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938DD9A6DFC6D53519F8C3610629569DE441791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859873   (937484) от 18.01.2015
-
-Настя Любимова - I Don't Know (2013) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6E32CC5EF7E3C5131A8D49D803529275970268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859874   (937481) от 18.01.2015
-
-Настя Любимова - Лето Для Тебя (2013) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE3012FF797B5B866D0FD5EF49C0EB5137B87D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861021   (937480) от 18.01.2015
-
-Журнал | Добрые советы №1 (Январь 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937480.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Добрые советы» — это ежемесячный журнал для женщин. Его главные темы — секреты привлекательности, хорошего самочувствия, домашнего уюта и гармонии в отношениях с близкими. Каждый номер журнала открывает интервью со звездой — о ее личной жизни, профессиональных успехах, о доме, семье и детях. ЖурналЖанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FCBD45776A16428E10BD480F61B7522B8BEBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859872   (937479) от 18.01.2015
-
-Настя Любимова - Снег (2012) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1879EBF51523BCD7660BBDF6B5395AB398606AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859925   (937478) от 18.01.2015
-
-Рецепт русского холодца (2014) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодец в России готовят с незапамятных времен. Его можно было встретить и в домах аристократов, и на столе у простых крестьян. Различались лишь набор продуктов и способы приготовления. Основа холодца - уваренный до состояния желе бульон. Мясо для него в зависимости от рецептуры используют разное. Обычно это мякоть говядины или свинины, иногда мясо птицы. А говяжьи (   Читать дальше...   )Телекомпания: Россия, RTG HDЖанр: ДокументальныйПродолжительность: 00:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C90444AE4D836D8E212D29C1F27E5713092E3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628318   (937463) от 10.03.2013
-
-Koan - Mitakuye Oyasin EP (2012) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (3:20)
-02. Theseus (8:31)
-03. Red Road (4:48)Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:16:39
+Отображает информацию о балансе на виджетах, графиках. Программа показывает баланс телефона, интернет-провайдера, счет в банке на экране телефона на виджетах. Вся информация для виджетов берется из JavaScript плагинов - AnyBalance провайдеров. От многочисленных подобных программ отличается тем, что исходный код провайдеров открыт, вы сами или ваши друзья программисты могут написать виджет за несколько минут. Основная идея этой программы - создать общую базу провайдеров для получения информации из различных источников. (   Читать дальше...   )Разработчик: Дмитрий КочинЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -435,32 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 628752   (937462) от 10.03.2013
+###  Публикация: 1363969   (937901) от 02.03.2020
 
-VA - 2013 Miami Trance (2013) [MP3|320 кб/с]<Trance>
+Keegan DeWitt - All the Bright Places / Все радостные места (Music from the Netflix Film) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
->>Архив торрентов
->>Архив Музыки
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - 2013 Miami Trance (2013)
-
-Год: 2013
-Жанр: Trance
-Продолжительность: 00:53:31Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Solarstone vs Scott Bond - 3rd Earth (Max Graham Radio Edit) (3:05)(   Читать дальше...   )
+|02:51| 01. All The Bright Places I
+|03:53| 02. All The Bright Places II
+|04:02| 03. All The Bright Places III
+|02:03| 04. Hey Violet(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF1F5AFD82A6AF9546C4C76518293D961870EB4A
+magnet:?xt=urn:btih:A51AB29778E6B9FE11A5D58223B810AD462FEC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +111,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 628483   (937461) от 10.03.2013
+###  Публикация: 1364349   (937898) от 02.03.2020
 
-Никола Корник | Шепот скандала (2012) [FB2, RTF]
+Дарья Кожевникова | Ночь падших ангелов (2020) [FB2]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Леди Джоанна Уэр из рода Тонов по завещанию своего умевшего мужа-ловеласа должна заботиться о его внебрачной дочери совместно с его лучшим другом - авантюристом лордом Алексом Грантом, с презрением относившемся к Тонам. Джоанна и Алекс поссорились в первую же встречу. Смогут ли они сохранить хотя бы видимость вежливости, чтобы воспитать осиротевшую девочку? А что (   Читать дальше...   )Жанр: Любовный романФормат: FB2, RTF
+Гуляя после работы по набережной, Роман Тарталатов знакомится с сектанткой Ланой. И хотя он далек от проповедей, которые читает ему девушка, он встречается с ней снова и снова, понимая, что влюбился.
+Беспокоящиеся за Романа родственники выясняют, что проповедующие днем на набережной сектантки ночами перевоплощаются в ночных бабочек — неких падших ангелов. Но вместо (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46F80B7A8F8CDCED2B259BF90FE78942E936CD40
+magnet:?xt=urn:btih:8A9156EF83BB1E5E2E3384715DDBA8E9B48EF3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 627871   (937457) от 10.03.2013
+###  Публикация: 209803   (937894) от 04.02.2014
 
-Discovery: За кулисами: Дивали / Revealed: Diwali (2011) HDTVRip
+Капоте / Capote (2005) BDRip
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Канал Discovery познакомит вас с древним городом Варанаси и расскажет как люди сохраняют его невероятные традиции.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:09
+В 1959 году известному писателю Трумэну Капоте попалась на глаза газетная заметка, круто изменившая его жизнь и литературную карьеру. В ней говорилось о бойне в Канзасе, когда двое бандитов с невероятной жестокостью расправились с семьей из четырех человек. Потрясенный, Капоте решил лично изучить все материалы, чтобы понять, как подобное могло произойти — и написать (   Читать дальше...   )Жанр: Драма, Криминал, БиографияРежиссер: Беннетт Миллер.Актеры: Элли Микельсон, Келси Стефенсон, Филип Сеймур Хоффман, Крэйг Арчибальд, Бронуэн Коулмэн, Кейт Шиндл, Дэвид Уилсон Барнс, Майкл Дж. Бёрг, Кэтрин Кинер, Квеси Амеяу и др.Перевод: Многоголосый закадровый, професиональныйПродолжительность: 01:54:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:030373077652BCBC671719D209717FCC7F8F646F
+magnet:?xt=urn:btih:19085A82BF802CF5D2792D00564D37823DB9AC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 283783   (937434) от 19.01.2011
+###  Публикация: 753121   (937892) от 04.02.2014
 
-Youda Baby Blimp (P) [En] 2010
+Artbook Collection 2 [10 Книг] (2005-2014) [PDF, JPEG]
 
->>Архив торрентов
->>Архив Игр
+>>Комиксы и Артбуки
+>>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы знаете, куда берутся дети? Верно: их приносят аисты! Они работают в огромном дирижабле, который плавает в небе. Помогите им в их не легком деле! При правильном выполнении заданий вы сможете модернизировать и улучшать конвейер и помощников, собирайте бонусы и распределяйте малышей по домам в разных городах!Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык интерфейса: Английский
+Свежая коллекция из 10 артбуков и концепт арта.Язык: RU, EN, SPФормат: PDF, JPEG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E28A01DEA3D5E1920A079755906C2C5FF428DAD
+magnet:?xt=urn:btih:9DAB3E904393B69B49AD595BAA501439A693AB6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092990   (937431) от 13.01.2017
+###  Публикация: 1364321   (937887) от 02.03.2020
 
-VA - Let's Start December Top 2016 (2016) [MP3|320 Kbps] <Trance>
+Серия Кубков NASCAR 2020. 3-й Этап. Авто Клуб 400 (Фонтана). Гонка / NASCAR Cup Series 2020. Round 03. Auto Club 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Denis Efremov - Fallen Leaves (Original Mix) 07:54
-2. Marvic - Calibri (Original Mix) 07:55
-3. M.I.H. - No War (Original Mix) 07:14
-4. Efim Dmitriev - Summer (Original Mix) 04:59(   Читать дальше...   )Жанр: TranceПродолжительность: 00:46:21
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+Воскресенье, 01 марта 2020 года. Фонтана (штат Калифорния, США).
+3-й Этап. Авто Клуб 400 (Фонтана)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:05:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D07B37803CE83078CB5A4BCD9938495F4F4792A
+magnet:?xt=urn:btih:8FD5FBCEC49A24E99A675613ECDE16E1E78581A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,57 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092875   (937430) от 13.01.2017
+###  Публикация: 1364244   (937885) от 02.03.2020
 
-The Modern Jazz Quartet - The Comedy & Concorde (1962) 1998, Atlantic[APE|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spanish Steps [05:37]
- 02.Columbine [04:12]
- 03.Pulcinella [04:25]
- 04.Pierrot [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D1603EDBDF41FD622F6077C7132FF39BC518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092995   (937429) от 13.01.2017
-
-VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+VA - 100 Greatest Trance Anthems (2020) [MP3|320 Kbps] <Progressive Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
-02.  Xian - Equinox (Original Mix)  8:00
-03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
-04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
+001. Midsun - Underwater
+002. Kev Wild - Euphoric Dream
+003. Physical Dreams - I Did For You
+004. Cresta - Shapeshifter(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:34:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
+magnet:?xt=urn:btih:743164582D5E9C7AF67794484DFCF8C70FA83B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +248,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092885   (937428) от 13.01.2017
+###  Публикация: 752974   (937884) от 04.02.2014
 
-Lena Horne - We'll Be Together Again (1994) Blue Note[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Q: Загадка женщины / Q (2011) BDRemux [1080i]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Maybe [02:46]
- 02.Something to Live For [04:46]
- 03.Day Follows Day [03:02]
- 04.Prelude to a Kiss [04:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:08
+Когда судьба приводит людей на грань отчаяния, единственным способом вновь ощутить вкус жизни может стать нежданный аттракцион грандиозных чувственных наслаждений, которые способна дарить каждому новому знакомому очаровательная Сесиль. Попадая к юной красотке в сладкий плен удовольствий, любой теряет голову; все прочее перестает иметь для него значение, кроме одного (   Читать дальше...   )Производство: ФранцияЖанр: Драма, МелодрамаРежиссер: Лоран БуникАктеры: Дебора Реви, Хелен Зиммер, Гоуэн Диди, Джонни Амаро, Жоан Либеро, Жан-Франсуа Галлот, Брайс Форнье, Кристель Бенуа, Патрик Хаутер, Летиция БелличчиниПеревод: Многоголосный закадровыйСубтитры: Вшитые ОтключаемыеЯзык субтитров: Русский,АнглийскийПродолжительность: 01:43:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FF7ED8ECB1C48876F97871B00DE12E223E1657F
+magnet:?xt=urn:btih:83836FFF288DEE4CE4745CDC075B01C3838AF41E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +274,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092872   (937427) от 13.01.2017
+###  Публикация: 1364387   (937882) от 02.03.2020
 
-Oscar Peterson - Jazz Manifesto (1949 -1996) 2CD, 2007, Performance Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+Журнал | Приусадебное хозяйство №2 (февраль 2020) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01.That Old Black Magic [03:01]
-02.Between The Devil And The Deep Blue Sea [03:09]
-03.Ac-Cent-Tchu-Ate The Positive [03:15](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:35:38
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5B184666B9011EBD514EA14FBA57392A329AEA7
+magnet:?xt=urn:btih:C3FF352E0C0DE105348EB53B889746D53D080777
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092597   (937426) от 13.01.2017
+###  Публикация: 1364412   (937880) от 02.03.2020
 
-Red Rodney - "Live" at the Village Vanguard (1980) 1999, 32 Jazz[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+Журнал | Сваты на даче №2 (62) (февраль 2020) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Lodgellian Mode [08:58]
- 02.A Time for Love [05:50]
- 03.Mr. Oliver [08:54]
- 04.What Can We Do [10:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:45:48
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FAE09B58410C611B899A90D1952739EA1EEE842
+magnet:?xt=urn:btih:4FF86AF9C458B9B5FF1BA6900FB39B3A0099B177
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +326,376 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092731   (937425) от 13.01.2017
+###  Публикация: 1364243   (937878) от 02.03.2020
 
-VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
+Футбол. Чемпионат Испании 2019-2020. El Clásico . 26й тур. Реал - Барселона (01.03.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Electronic
->>House
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  2 Man On Road - The Way (Original Mix)  4:48
-02.  Alex Nail - Evil Noise (Original Mix)  4:08
-03.  Alexey Suvorov - Our Dreams Come True (Original Mix)  7:25
-04.  Alien Craft - Raven Hunter (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:20:34
+Футбол. Чемпионат Испании 2019-2020. El Clásico . 26й тур. Реал - Барселона (01.03.2020)
+СТАДИОН «Сантьяго Бернабеу» (Мадрид)
+СУДЬЯ Лаос Матеу (Валенсия)Телекомпания: Первый каналЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
+magnet:?xt=urn:btih:3CB9FEDA79B25B659A91E97CE41BF6FAFD471D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753181   (937874) от 04.02.2014
+
+Телекинез / Carrie (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невзрачная старшеклассница по имени Кэрри с рождения обладает способностями телекинеза. Давление со стороны фанатично религиозной мамочки и постоянные издевки сверстников лишь способствует развитию ее сверхъестественных способностей. На выпускном одноклассники решают жестоко подшутить над ней, что приводит к фатальным последствиям.Производство: США | Metro-Goldwyn-Mayer (MGM), Screen Gems, Misher FilmsЖанр: Триллер, Ужасы, ДрамаРежиссер: Кимберли ПирсАктеры: Хлоя Грейс Морец, Джулианна Мур, Джуди Грир, Портия Даблдэй, Габриэлла Уайлд, Алекс Расселл, Зои Белкин, Энсел Эльгорт, Саманта Вайнштейн, Карисса Стрэйн ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full, Forced, Commentary), Украинский (Full, Forced), Английский (Full, SDH, SDH-Colored)Продолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DE2B8BD197E0579BE3B4D1B635DA530A35EFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364241   (937872) от 02.03.2020
+
+Пол Андерсон | Убить марсианина (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райордан, наследник космической транспортной фирмы, охватившей всю Солнечную систему, известный как охотник на крупного зверя, прибыл на Марс, чтобы присоединить к своей коллекции трофеев шкуру марсианина, существа находящегося под охраной закона. Но трудно справиться с тем, кто находится не только под охраной закона, но и родной планеты.Жанр: ФантастикаПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134727A7A42FA9B741A85A74C08FF4A45D73CB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364407   (937869) от 02.03.2020
+
+Михаил Трофименков | Культовое кино (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга знаменитого кинокритика и историка кино, сотрудника издательского дома «Коммерсантъ», удостоенного всех возможных и невозможных наград в области журналистики, посвящена культовым фильмам мирового кинематографа. Почти все эти фильмы не имели особого успеха в прокате, однако стали знаковыми, а их почитание зачастую можно сравнить лишь с религиозным культом. (   Читать дальше...   )Жанр: Культура и искусство, Кинематограф, ТеатрФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB9D249C40D9CB44A6C026AF9AFA2DA1C8E711B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364384   (937867) от 02.03.2020
+
+Цао Янфэн | Философия Haier: Перерождение 2.0 (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена истории и философии преобразований одной из самых передовых корпораций современности – Haier Group. Эта китайская компания за тридцать лет развития превратилась из небольшого завода в глобальную интернет-площадку, позволяющую предпринимателям со всего мира реализовывать собственные проекты. Уникальность «культуры Haier» – в особой управленческой модели (   Читать дальше...   )Жанр: Бизнес-стратегии, эффективность бизнесаПеревод: Е.И. НезлобинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579CA387CC5DFAB6D46F3082FD65AF3366DA87E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628090   (937865) от 09.03.2013
+
+Cities XL Platinum [En/Multi7] (L) 2013 | PROPHET
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стройте города, формируйте мир.
+Cities XL Platinum позволяет проектировать, строить и связать города всех форм и размеров по всей планете Cities XL!
+Постройте более впечатляющих городов, чем когда-либо прежде! Cities XL Platinum предлагает огромное разнообразие более 1000 зданий и сооружений (в том числе 50 новых структур), которые вы можете свободно размещать на более чем 60 гигантских картах, предлагающих разнообразный рельеф и невероятный уровень детализации.
+Возьмите на себя роль виртуального мэра и найдите решения проблем, с которыми сталкиваются современные планировщики города, как нехватка энергии и общественного транспорта. Дайте ответ на растущие потребности своих граждан и найдите идеальный баланс между различными услугами, такими как жилье, отдых и занятость. Специализация вашего города позволит вам создать торговую сеть с соединить ее с другими городами, чтобы обеспечить крупномасштабный финансовый успех с более сложной сетью городов.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский / Multi7Язык интерфейса: Английский / Multi7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FCD5546B9C8AB4F77CCE6F4919A3327344C9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364305   (937863) от 02.03.2020
+
+Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937863.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Money (Best of Remix)
+2. Another Brick in the Wall (Best of Remix)
+3. If (Best of Remix)
+4. On the Turning Away (Best of Remix)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C054B00053A1E1398DD018842980B1B7F992DD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175986   (937860) от 16.02.2010
+
+Loaris Trojan Remover 1.2.0.6 Eng  [английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Loaris Trojan Remover - это программа, с помощью которой Вы сможете целиком очистить свой компьютер от всех агрессивных угроз! Вас забрасывают popup объявлениями, видите новую панель инструментов в вашем браузере, ваша домашняя страница изменяется на нежеланные сайты, или вы забросаны раздражающим спамом? Возможно, странные программы загружаются при запуске системы или в ваших фаворитах имеют новые входы, которых вы не хотите. Если Так.. Ваш ПК по всей вероятности заражен adware, spyware, spybot, троянцами или другими интернет паразитами. Эти программы имеют способность отслеживать ваши привычки (путем отслеживания запросов, ког да вы посещаете сеть интернет) и даже красть такую личную информацию как номера банковского счета и пароли. Spyware может установить больше паразитов на вашем компьютере без вашего согласия. Все, что вы делаете и все, что вы печатаете, записывается прямо сейчас! Компании знают, чем вы интересуетесь!
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364342   (937859) от 02.03.2020
+
+Auslogics Disk Defrag Pro 9.4.0.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F06CD5E29E0AC862DACF7343FDA340851BB546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628087   (937858) от 09.03.2013
+
+CentOS 6.4 [x86-64] (2xDVD+2xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел CentOS 6.4 (англ. Community ENTerprise Operating System) - дистрибутив Linux, основанный на коммерческом Red Hat Enterprise Linux компании Red Hat и совместимый с ним.  Изменено содержимое 31 пакета, среди которых: anaconda, firefox, gnome-desktop, httpd, initscripts, kde-settings, kernel, ntp, openssl098e, plymouth, thunderbird, xulrunner и yum; Удалено 25 пакетов, среди которых: libehca, libservicelog, lsvpd, libvpd, openssl-ibmca, powerpc-utils, ppc64-diag, ppc64-utils, python-rhsm, redhat-*, rhn-*, servicelog, s390utils, yaboot, yum-rhn-plugin.
+
+Red Hat Enterprise Linux состоит из свободного ПО с открытым кодом, но доступен в виде дисков с бинарными пакетами только для платных подписчиков. Как требуется в лицензии GPL и других, Red Hat предоставляет все исходные коды. Разработчики CentOS используют данный исходный код для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363808   (937857) от 02.03.2020
+
+Иерей Георгий Галахов - 7 альбомов (2011-2019) [MP3|128-320 Kbps] <Православная авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937857.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 Друг мой Небесный
+2012 Покаяние
+2012 Пяточисленные молитвы
+2013 По вере вашейЖанр: Православная авторская песняПродолжительность: 06:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FFF891B86C484024453484989C8C6B792B8B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364135   (937855) от 02.03.2020
+
+Джеймс Глик | Гений. Жизнь и наука Ричарда Фейнмана (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – о жизни и работе нобелевского лауреата по физике Ричарда Фейнмана. Прекрасный язык, доступное описание сложных физических проблем, проступающий сквозь страницы магнетизм личности ученого делают рассказ интересным не только для физиков, но и для всех, кто интересуется историей науки.Жанр: Биографии и Мемуары, Научпоп, ПублицистикаПеревод: Е. Кротова, Ю. ЗмееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE867E23E6BF2AFFDFD1434DCEE77F22B6CC0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364362   (937853) от 02.03.2020
+
+Роман Куликов, Ежи Тумановский | Штык [S.T.A.L.K.E.R.] (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Алексей Сенников остался жив после нападения контролера на блок пост на границе Зоны. Но эта встреча навсегда изменила его жизнь. И спустя несколько лет он по случайному стечению обстоятельств снова оказывается в Зоне. Теперь он сталкер Штык и его задача вывести из Зоны двух потерявших память генералов.Жанр: Фантастика, ПостапокалипсисПродолжительность: 13:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA6EACEE39AB5049A8CF95C79E4E5FED83961EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744773   (937838) от 04.02.2014
+
+Вспомнить все / Total Recall (1990) BDrip [720p] [hand made 60fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Пол ВерховенАктеры: Арнольд Шварценеггер , Рэйчел Тикотин , Шэрон Стоун , Ронни Кокс , Майкл Айронсайд , Маршалл Белл , Мэл Джонсон мл. , Майкл Чэмпион , Рой Броксмит , Рэй БэйкерПеревод: Многоголосый закадровыйПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C763C7F8E27399CE580CE6C72B38FA722429F65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 537322   (512222) от 20.08.2012
-
-VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture
-02 - Heven In Their Minds
-03 - Whot The Buzz
-04 - Everything's Alright
-05 - Hosanna
-06 - Simon Zelotes - Poor Jerusalem
-07 - Pilate's Dream
-08 - The Temple
-09 - I Don't Know How To Love Him
-10 - The Lust Supper(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535925   (512131) от 20.08.2012
 
 Albinoni Tomaso Giovanni: Collegium Musicum 90 Simon Standage Authentic instruments (2009)/2010, Chandos/[FLAC 2.0 96/24 |WEB-DL]<Chamber>
@@ -816,6 +781,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2465C4CBF6848360BDEC8DF14C6AC487476784A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544768   (484344) от 10.09.2012
+
+VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orchestra>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Воздушная кукуруза (Герхон)  02:34
+Оркестр Тома Спенсера
+
+02 - Красный сарафан (обр.Дж.Ласта)  02:10
+Оркестр Джеймс Ласта
+
+03 - Ты прекраснее солнечного света (Р.Катшер)  02:53
+Оркестр Гаральда Бантера
+
+04 - Гордая Мэри (Дж.Фогерти)  02:40(   Читать дальше...   )Жанр: Instrumental,OrchestraПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637AFB3FB3DA48CACF5B3FD45FD613122FAE884F
 ```
 
 https://mybot314.ru/tekegram_catalog/

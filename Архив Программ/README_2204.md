@@ -1,3 +1,29 @@
+###  Публикация: 1739358   (48705) от 27.07.2024
+
+BananaDefenderBlocker 1.0.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48705.jpg" />
+</div>
+
+
+###  Подробнее
+
+BananaDefenderBlocker - программный продукт от BananaBrain, который способен остановить работу Microsoft Defender без вреда для системы. Работает на технологии BananaRelax.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E03EC803E1D4E056A0FFBE7851FE4069D721B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739357   (48668) от 27.07.2024
 
 ElevenClock 4.4.0 [Multi/Ru]
@@ -645,32 +671,6 @@ R-Wipe & Clean - программа для невосстановимого уд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF5E5851829C668673E4C806892AC1750D24DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739931   (48403) от 30.07.2024
-
-MediaHuman YouTube to MP3 Converter 3.9.9.94 (0727) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741317723CB02F53D87DB53E0E911E569C2F3EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

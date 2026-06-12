@@ -1,3 +1,119 @@
+###  Публикация: 1494655   (887713) от 08.09.2021
+
+Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viracocha
+02. Inti Raymi
+03. Cusco
+04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371654   (886921) от 02.04.2020
+
+Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Souls Shine Brightest (06:48)
+02. End Of I (06:29)
+03. Here Comes Everybody (06:02)
+04. Their Playground (08:04)(   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494722   (885982) от 09.09.2021
+
+Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Long Dark Night [02:22]
+02. This Is Darkness [02:12]
+03. War Drum [01:28]
+04. Wellcome to Hell [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394ADD7719AF83BE789A88AA935EC68B590BFD58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494720   (885967) от 09.09.2021
+
+Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First and the Last [03:12]
+02. Message to the Stars [02:45]
+03. Slumbering Void [02:17]
+04. Echoes & Omens [03:01](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1D1CA575E62DE8C32FDF13B21CD0923841D3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103631   (885959) от 12.02.2017
 
 Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
@@ -625,119 +741,6 @@ Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104125   (879826) от 15.02.2017
-
-VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (07:32)
-02. Your Greatest Enemy (02:42)
-03. The Arrival of Robin (02:52)
-04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176490   (879722) от 06.04.2020
-
-Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октава / Octave (05:21)
-Карнавал / Carnival (03:57)
-Легенда / Legend (06:39)
-Арена / Arena (04:11)(   Читать дальше...   )Производство: РоссияЖанр: NewAge & MeditativeПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996523   (878978) от 14.03.2016
-
-Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с] <Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Lie (03:48)
-02. Their War Here (04:37)
-03. The Red Capes Are Coming (03:33)
-04. Day of the Dead (04:03)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186871   (878432) от 27.03.2010
-
-V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 09:20:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

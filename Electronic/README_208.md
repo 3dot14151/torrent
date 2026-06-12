@@ -1,3 +1,147 @@
+###  Публикация: 1134678   (687445) от 16.05.2017
+
+Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master of My Fate (Original Mix) (7:15)
+ 02. Secret Sense (Original Mix) (7:28)
+ 03. Illumine (Original Mix) (7:36)
+ 04. Paramour (Original Mix) (6:26)Жанр: Deep House, Tech HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B16C803800A254F57993C5BC0BF04CDB3143E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134733   (687443) от 16.05.2017
+
+Lifebloom - Satsang (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest in Self (06:17)
+02. Universal Prayer (08:40)
+03. Satsang (06:34)Жанр: Psybient, Progressive Trance, DowntempoПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0D4EE2BE5A3374DE529526A9C74405CBC1B0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222182   (687359) от 28.04.2018
+
+Sigur Rós - Route One (2018) Ess Err [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 63º32'43.7"N 19º43'46.3"W (2:23)
+02. 63º47'36.2"N 18º02'16.9"W (4:51)
+03. 64º02'44.1"N 16º10'48.5"W (4:57)
+04. 64º08'43.3"N 21º55'38.8"W (7:38)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87C37EFBC813773BE60740745348EF8E0D057AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134446   (687350) от 16.05.2017
+
+Seven24 & Soty - 6 Years (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Perfect Day (feat. R.I.B) (Original Mix)  4:45
+02.  Hope (feat. Jama) (Vocal Mix)  4:15
+03.  The Magic (feat. Natune) (Original Mix)  4:53
+04.  Miss You (Original Mix)  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F254FD82AD2C1D2496E4C7F5FFBF0C4F3CB2DA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134722   (687346) от 16.05.2017
+
+One Arc Degree - Cosmos in Flux (2017) Synphaera Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mayda (04:58)
+02. Antecedents & Consequences (07:12)
+03. Cosmos in Flux (06:20)
+04. Reconstruction of Function (07:00)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7140F3807A861069C29E8F049861A4D5E765FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222020   (687122) от 28.04.2018
 
 Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
@@ -600,151 +744,6 @@ Fourth Dimension - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D8878027DA65117B3E306487ED9CBDCDCF2D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897414   (685639) от 13.05.2015
-
-VA - Hipster Lounge (Deluxe Lounge and Del Mar Music Only) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cafehouse Sound Makers - Sundowner (Del Mar Buddha Lounge Mix) (03:39)
-002. Darwins Dream - Lonely by the Beach (Cafe and Sand Edit) (03:34)
-003. Ginger Girls Aloud - Tequila Sunrise (About the Beach Chill Mix) (04:54)
-004. Imagen Life - Seaside (Kiss You Goodnight Mix) (04:22)
-005. Echoes of Spirit - Sail Away to Golden Ground (New Chill Del Mar Cut) (04:04)(   Читать дальше...   )Производство: 4-Elements-RecordsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021DD2B33BE067D6433C49573720F1F30F212473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897656   (685453) от 13.05.2015
-
-Aes Dana feat. MikTek - Alkaline (2015) [FLAC|Lossless|WEB-DL|24Bit]<Psybient, Downtempo, IDM, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01: Alkaline (10:07)
-02: Diffraction Protocol (7:26)
-03: Parenthesis (7:54)Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C501D28B1A2A7DE6FB85A22E39ED24811929F139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222446   (685306) от 29.04.2018
-
-VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subalpine - Sweet Love (Original Mix) (5:57)
-02. Subalpine - Dusk (Original Mix) (5:49)
-03. Mysteria (UK) - Illusion (Original Mix) (5:34)
-04. Mysteria (UK) - Sunrise (Original Mix) (6:10)(   Читать дальше...   )Жанр: Progressive House, Deep House, Chill HouseПродолжительность: 01:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401F98F410FE8F4971A2EB4811FBE12798CA01C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222610   (685305) от 29.04.2018
-
-VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cmrk - Down The Hill (Original Mix)
-02.Tamara Hall - Shimmer (Original Mix)
-03.Ashley Izco - Down (Original Mix)
-04.Soulshade - In Your Arms (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2720212E3DCDDF76C640CAF1487637FAA635532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222464   (685301) от 29.04.2018
-
-VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klasse Xxi - Waldesdunkel 6:05
-02. Hear My Soul - Black Forest 4:44
-03. Andere Orte - Grand Central 4:00
-04. Klausies - Slushaj 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926999ED2C4DCD488E526DD91C97F349C30238BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

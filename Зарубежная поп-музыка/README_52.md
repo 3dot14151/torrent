@@ -1,3 +1,61 @@
+###  Публикация: 1571804   (429664) от 23.08.2022
+
+The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless (You Took My Love)
+02. He's A Lot Like You
+03. Temptation
+04. Time Is Right(   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6A08C8538B751051F3EF4D340BD71B12128EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064198   (428062) от 19.10.2016
+
+Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Goes out to You
+02. Live On
+03. Stone in My Pocket
+04. Sand and Water(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B598BDE791CA28147DC5106944A5D98D0EB9872D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571979   (427513) от 24.08.2022
 
 Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
@@ -684,64 +742,6 @@ Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101099F9F98FC8B8A70FD5B261C7DF6F5D6783AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251642   (415492) от 02.10.2018
-
-VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanita Tikaram - Cathedral Song
-02. Beth Nielsen Chapman - All I Have
-03. Jason Castro - Hallelujah
-04. Alannah Myles - Do You Really Want to Know Me(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF42B36248D88448365952FCBD90A2593E01F241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167890   (414870) от 21.09.2017
-
-VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414870.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  P!nk - What About Us  4:32
-02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
-03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
 ```
 
 https://mybot314.ru/tekegram_catalog/

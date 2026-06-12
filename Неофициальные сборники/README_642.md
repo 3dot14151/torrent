@@ -1,3 +1,90 @@
+###  Публикация: 1696551   (119017) от 06.02.2024
+
+VA - 70s Sex Mixtape (2024) [MP3|320 Kbps] <Pop, Rock, Blues, Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Love To Love You Baby (Single Edit) [03:22]
+02. Barry White - I'm Gonna Love You Just A Little More Baby [07:12]
+03. Piero Umiliani - La ragazza dalla pelle di luna (Extended Version) [03:25]
+04. Otis Gayle - I'll Be Around [03:36](   Читать дальше...   )Жанр: Pop, Rock, Blues, JazzПродолжительность: 05:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8FD355ACEF786E73B58E1288EE4ED2204D8998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697511   (119001) от 06.02.2024
+
+VA - Микс Дня #1 (2024) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Cooper - I Never Cry (03:45)
+ 02. The Cult - Fire Woman (05:08)
+ 03. Guthrie Govan - Jelly Bean (02:14)
+ 04. UFO - Doctor Doctor (04:13)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DA51DCDADF46D6E9CD731E5824B4DA8E8D36C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697319   (118993) от 06.02.2024
+
+VA - Hard Rock 60’s What does he look like (2024) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jefferson Airplane - Somebody to Love [02:55]
+02. Blue Cheer - Summertime Blues [03:47]
+03. The Yardbirds - For Your Love [02:28]
+04. The Animals - House Of The Rising Sun [04:30](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266936F67F1AED6CF7B2B82A10EB2FC4D24ED4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697340   (118981) от 06.02.2024
 
 VA - Contact 2: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Other>
@@ -658,93 +745,6 @@ VA - Live Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE16F3FA9ADC086D1BB652F27F606CD36F60722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699884   (116924) от 18.02.2024
-
-VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Floyd - Embryo [10:22]
-02. Yes - Starship Trooper: a. Life Seeker, b. Disillusion, c. Wurm [09:27]
-03. Frank Zappa, The Mothers of Invention - Inca Roads [08:45]
-04. Aphrodite's Child - The Four Horsemen [05:53](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 06:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700808   (116914) от 18.02.2024
-
-VA - Incendiary Disco (2024) [MP3|320 Kbps] <Disco, Dance, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sindacops - Deep Blue
-002. Aldo Lesina - Memories Of Time
-003. Alan Strani - Culturellement Appropriйe
-004. Clubdisco - It's You(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E7F18BEF55109405FFDEB7E5AAFAF182310BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700733   (116907) от 18.02.2024
-
-Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  30 Minute Love Affair
- 02.  Changing
- 03.  Everything is Changing (Instrumental Tribute to Sigma Ft. Paloma Faith)
- 04.  I've Gotta Be Me(   Читать дальше...   )Жанр: Pop, Soul,Продолжительность: 03:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CAEEEDFB791CA45F1C9B34A489ED659AE726D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

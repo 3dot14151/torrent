@@ -1,3 +1,29 @@
+###  Публикация: 1074592   (335441) от 20.11.2016
+
+Обои - 100 Amazing Mixed Wallpapers  Pack - 135 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои отличного качества, подойдут вам чтоб украсить ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857CC447B07C72CB1CFCC57C2537A2D2EECE2B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955371   (335288) от 10.11.2015
 
 Обои - Super Wallpapers part 191 [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996552E3C32F6F03AFFE165AB03DD54ECEBE82AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957667   (325682) от 19.11.2015
-
-Обои - Fantastic Wallpapers Big Pack 3 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на фантастическую тему.Формат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148E1DC901BAA88251C1F4D6593A082E28C15E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

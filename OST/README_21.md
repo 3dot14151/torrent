@@ -1,32 +1,3 @@
-###  Публикация: 1079517   (293759) от 04.12.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 266070   (293390) от 11.12.2010
 
 Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
@@ -747,6 +718,35 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083589   (273630) от 16.12.2016
+
+James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Creek Oppression (01:55)
+02. Seven Angels of Vengeance (03:25)
+03. Lighting the Fuse (01:22)
+04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
 ```
 
 https://mybot314.ru/tekegram_catalog/

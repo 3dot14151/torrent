@@ -1,3 +1,158 @@
+###  Публикация: 1315274   (513628) от 19.07.2019
+
+Markus Schulz - Global DJ Broadcast (18 July 2019) with guest Nifra (2019) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz
+01. Pryda - Warrior
+02. Claus Backslash - Reality is Over
+03. Jam & Spoon - Follow Me (Jerome Isma-Ae Remix)Жанр: Trance, ProgressiveПродолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65C55728995CA92CFC28023CCF30372F49090FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315284   (513624) от 19.07.2019
+
+Armin van Buuren - A State of Trance 923 (2019) [MP3|320 Kbps] <Progressive, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren played:
+01 LTN & Christina Novelli - I'd Go Back (The Path Of Life)Жанр: Progressive, TranceПродолжительность: 02:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8CD27ADEA4A44E15FFFA0E1A16A4444FE1EC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536417   (513519) от 19.08.2012
+
+Jaytech - Multiverse (2012) [MP3|~225 кб/с (V1)]<Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everglade (feat. Serenade)
+02. New Vibe (Album Version)
+03. Rabbit Raiders
+04. Labour Of Love (feat. Nathan Grainger)
+05. Epilson
+06. Innovation (feat. Nathan Grainger)
+07. Through The Maze (feat. Serenade)
+08. Diode
+09. Dr Device
+10. Stranger (feat. Steve Smith)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B913AB2EC489EC3AE99874C3D43071280C224751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375679   (513340) от 14.08.2011
+
+VA - Fabric 59 (2011) [FLAC|Lossless]<Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_513340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Natured feat. Ali Love & Kenny Glasgow - Time Intro (00:28)
+ 02. Sebastien Tellier - La Ritournelle (Metronomy Mix) (02:04)
+ 03. James Teej - Don't Appear (Redux) (03:16)
+ 04. Coat Of Arms - Is This Something (Jones Fly Edit) (03:08)
+ 05. White Lions - DePalma (03:55)
+ 06. Karen Pollack - You Can't Touch Me (Murk Remix - Jones Fly Edit) (02:05)
+ 07. Cajmere feat. Jamie Principle - God Sent (’10) (03:38)
+ 08. Felix Da Housecat - Madame Hollywood (03:41)
+ 09. Waifs & Strays - Body Shiver (03:31)
+ 10. jennygoesdirty - Amoureux Solitaires (03:31)(   Читать дальше...   )2011Жанр: Deep House, Tech House, MinimalПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242834   (513166) от 24.08.2018
+
+VA - Alter Ego Records - En Espana (Mixed By Duncan Newell & Luigi Palagano) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miikka Leinonen & Kim Kiona - Breath Of The Wild (Original Mix)
+02. Kayan Code - Furion (Original Mix)
+03. Ahmet Atasever & Monty Wells - Trading Halos (Sunset Remix)
+04. NavidN2M - Be Yourself (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC52A1E74DE80DAF8A7A75B43582EF520FA8F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242856   (513163) от 24.08.2018
 
 VA - Underground Trance Essentials Vol. 03 (2018) [MP3|320 Kbps] <Trance>
@@ -605,163 +760,6 @@ Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538625   (509735) от 23.08.2012
-
-Rekevin - A Peacock (2008) [FLAC|Lossless]<Trip Hop, Acid Jazz, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая московская группа Rekevin играет музыку, которая вызывает прямые ассоциации с лучшими силами британской сэмплоделики 90-х – от Lamb и Portishead до, скажем, проекта Bonobo. В музыке Rekevin идеально сочетаются меланхоличный трип-хоп и изнеженное даунтемпо, сыгранные исключительно вживую и подкрепленные нежным эмоциональным вокалом невероятно красивой вокалистки Ксении.01. It :: 03:25
-02. The Collector :: 04:43
-03. A Peacock :: 06:00
-04. Peter :: 04:17
-05. A Fleeting Passion :: 05:53
-06. The Autumn Lips :: 04:14
-07. My Beloved Water :: 05:11
-08. Forget Him :: 05:47
-09. What's The Matter :: 04:05
-10. Feed Her :: 11:15Жанр: Trip Hop, Acid Jazz, Downtempo, Easy ListeningФормат: CD, AlbumПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538421   (509485) от 23.08.2012
-
-МС Вспышкинъ & Никифоровна - Sex (2004) [FLAC|Lossless]<Trance, Euro-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегапроект «МС Вспышкин & Никифоровна» стал настоящей бомбой 2003 года, а хит «Колбасный Цех» («Шишки») танцевальным гимном питерской молодежи. После этого артисты стали широко известны за пределами Санкт-Петербурга, благодаря ряду хитов из альбомов «Секс» и «Шишки». Никифоровна (Дмитрий Чеков) разбился на мотоцикле 22 августа 2011, Диджей МС Вспышкин (Владимир Турков) умер от инфаркта в Петербурге через 3 месяца (14 ноября 2011).01. Sex :: 04:23
-02. Колбасный Цех 3 (Шишки) :: 04:29
-03. Колбасный Цех 2 :: 04:19
-04. Дискотэка :: 03:18
-05. Хорошо :: 03:34
-06. Новогодняя (Меня Прёт) :: 05:07
-07. МС Вспышкинъ & DJ Aligator - Davai, Davai :: 05:22
-08. МС Вспышкинъ & Slim Line - I'm Back (Вспышка 2003) :: 03:49
-09. КПП :: 04:56
-10. Бессоница :: 05:22(   Читать дальше...   )Жанр: Trance, Euro-HouseФормат: CD, Album, EnhancedПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932215   (509273) от 29.08.2015
-
-VA - Mystic & Secret (2010) 2CD[FLAC|tracks + .cue]<Chill Out, New Age, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Era - Sombre Day  [3:42]
-  02.  Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)  [5:53]
-  03.  Bliss - Kissing   [6:03]
-  04.  Schiller mit Anggun - Blind  [4:50](   Читать дальше...   )Жанр: Chill Out, New Age, DowntempoПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DB2B2CCCC756C86A66B8977E14080ECFBC2EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932607   (509265) от 29.08.2015
-
-N.A.S.A. - Stolen Мoments (2015) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawnbreak (09:34)
-02. In My House of Dreams (11:17)
-03. Be Svendsen  - Circle (N.A.S.A. Remix) (09:35)
-04. Eyes Wide Open (08:08)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592676C2501B2538E4DE476D7D07BA7FE80E7597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562376   (509215) от 09.07.2022
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour - Ibiza) (2022-07-07) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woo York - Like a Phoenix
-02. Probspot - Blueberry (ID Remix)
-03. Push - Universal Nation (Bart Skils Remix)
-04. Paul Kalkbrenner - Gebrunn Gebrunn (Special Berlin Calling Edit)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3364889CBAC39611E31D1B02DBD85C6FF88F8E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

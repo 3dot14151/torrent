@@ -1,32 +1,3 @@
-###  Публикация: 1428097   (179953) от 02.12.2020
-
-Маваши Group (Миша Маваши) - Наши сердца (2019) [MP3|320 Kbps] <Alternative Rock, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы вам читаем стихи
-2. Лампа
-3. Спой мне
-4. Заблудшие(   Читать дальше...   )Жанр: Alternative Rock, RapПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C361B58E6BDECEC8A5809F5D40CC00A7F0B40D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594062   (179111) от 29.11.2022
 
 Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -757,6 +728,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F669E1F60DCDA098FA2876565B95DD7274522DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455279   (86241) от 03.04.2012
+
+Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternative>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+The Greatest Hits Vol.1 (2008)
+OST Розыгрыш (2009)
+The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:12:34 |
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

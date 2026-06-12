@@ -1,119 +1,3 @@
-###  Публикация: 1517123   (163623) от 14.12.2021
-
-VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humper Dinck - Quando (Bart&Baker Remix) (3:23)
-02. Wolfgang Lohr, Maskarade - Hit the Road Jack (Electro Swing Cover) (2:36)
-03. Zouzoulectric, The Andrews Sisters - Well All Right! (2:38)
-04. Vourteque, Noah Grey, TomCat Trumpet - Girls and Boys (4:22)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC9FCC6722E159BFF41B13F37B8ED32B120D53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517126   (163606) от 14.12.2021
-
-VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~322 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart&Baker, Minnie Valentine - Last Night a DJ Saved My Life (3:54)
-02. Swingrowers - Pump up the Jam (3:48)
-03. Pisk - Horny (Electro Swing Version) (3:29)
-04. Betty Booom, Slim Khezri, The Hebbe Sisters - Billie Jean (Electro Swing Mix) (3:07)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3AD42EE66A0A3D510BF266D3E9672070806FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517122   (163564) от 14.12.2021
-
-VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Django - Back&Beat (3:07)
-02. Varrick Frost - Sweet Dreams (4:24)
-03. Klischee - Mais non (1920 Version) (3:12)
-04. Bart&Baker, The Rasputin Orchestra - Shéhérazade (5:15)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5942BE366DE506520249BDE43D638C5C2916FD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517191   (163555) от 14.12.2021
-
-Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Интро (0:31)
-1.02. В кинозале темном (3:12)
-1.03. Рэкетмены (4:17)
-1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432480   (163531) от 17.12.2020
 
 Довод / Tenet (2020) BDRip [576p] iPad
@@ -729,6 +613,122 @@ VA - Sophisticated Jazzy Lounge, Vol. 4 (2021) [AAC|~302 Kbps] <Lounge, Chill Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4905A65A62D340A85AAC5E382008D0AF84B673BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517811   (161732) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Jazz Crates (Instrumental Mix) (2:57)
+02. Nat Wood - Te Quiero Mi Vida (Original Mix) (4:59)
+03. Andorra Jazz Trio - Pink Panther (Original Mix) (3:33)
+04. Dean Simon - Yes and No (Original Mix) (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF7CA924C30A2A9F04B0B925F92D332FF381153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517810   (161729) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Moonchild (Instrumental Mix) (4:24)
+02. FlyHigh - Happy Ness (Original Mix) (6:22)
+03. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)
+04. Kamill Le Jarvin - New Day (Original Mix) (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56F02742039E8E57F79211DCFF25AAAAB06FD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517809   (161728) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Nuii (Original Mix) (3:50)
+02. Planet Sun - Track It (Lovin' Jazz Mix) (3:45)
+03. Mikis Theodorakis, Francesco Diaz - Lakis on the Beach (The Acid Jazz Tribute) (Original Mix) (5:57)
+04. Paolo Gonzalez - Music in the Air (Original Mix) (11:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70297D045F269837605065F2C87B6F6ACD6828E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517813   (161723) от 17.12.2021
+
+VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Wildenhues - Silent Beach (Original Mix) (4:35)
+02. Twentyeight - Stars (Bodean's Sunset Ashram Version) (5:32)
+03. Lemongrass - Cafe De Paris (Original Mix) (4:48)
+04. Twentyeight - The Journey (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A67ADADD30F482DF0B42459E8A326A2329F0B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

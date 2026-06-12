@@ -1,22 +1,25 @@
-###  Публикация: 894345   (709137) от 01.05.2015
+###  Публикация: 1401416   (709284) от 10.08.2020
 
-А.А. Князева (ред.) | Собрание Дома Джорджа Истмена. История фотографии с 1839 года до наших дней (2010) [PDF]
+VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Club>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расположенный в городе Рочестер, штат Нью-Йорк (США), Дом Джорджа Истмена - одно из первых учреждений в мире, созданных для изучения, демонстрирования и сохранения фотографий. Открытый в 1949 г. в доме основателя компании Eastman Kodak Дом Джорджа Истмена стал первым музеем в Соединенных Штатах, посвященным фотографии и кинематографу. Эта книга позволяет ознакомиться с обширным музейным собранием, проследить богатейшую историю фотографии с первых ее дней до современной эпохи цифровых изображений.Жанр: Фотоискусство, историяФормат: PDF
+001. Da Groove Bar - Jazz In My House
+002. Kirby Carlisle - What Is Your Answer
+003. Smart Sounds - Hyperpassive
+004. Sunset Bay - Star Edit(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 08:35:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ABAD582B2512DC56CF614857268038233228FCA
+magnet:?xt=urn:btih:4D357FB293FD5463D0A8DA62A091339AAEA94FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,141 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 671327   (709121) от 22.06.2013
+###  Публикация: 1401485   (709283) от 10.08.2020
 
-Все меры предосторожности / Extreme Prejudice (1987) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Бентин, неуязвимый техасский рейнджер, должен проявить крутой характер. Ведь его друг детства — один из главарей контрабандной перевозки наркотиков через мексиканскую границу, и шесть агентов спецслужб получают задание захватить наркоторговца. Захочет ли Джек защитить своего друга?Производство: СШАЖанр: Боевик, Драма, КриминалРежиссер: Уолтер ХиллАктеры: Ник Нолти, Пауэрс Бут, Майкл Айронсайд, Мария Кончита Алонсо, Рип Торн, Клэнси Браун, Уильям ФорсайтПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7FD523253435C1A01EAA290DF19A3822A3B2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131318   (709114) от 05.05.2017
-
-Хоккей. НХЛ 2016-2017. Кубок Стэнли. Запад. 1/4 финала. 6-й матч. Сан-Хосе Шаркс – Эдмонтон Ойлерз (22.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709114.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 апреля 2017, воскресенье. 05:30 МСК
-НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Западная конференция. Первый раунд.
-1/4 финала. 6-й матч
-Сан-Хосе Шаркс – Эдмонтон Ойлерз(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F48AF1740E04AF11158043E521EB8E7D1796D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131297   (709113) от 05.05.2017
-
-Футбол. Лига Европы УЕФА 2016-2017. 1/2 финала. 1-й матч. Сельта (Испания) – Манчестер Юнайтед (Англия) (04.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709113.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2017, четверг. 22:05 МСК
-Лига Европы УЕФА 2016-2017. Плей-офф. 1/2 финала. 1-й матч
-Сельта (Виго, Испания) – Манчестер Юнайтед (Манчестер, Англия)
-Стадион: Балаидос (Виго, Испания), вместимость: 32500(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA233BF2911E6F36F2633FB284907CE5B3B80D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131296   (709112) от 05.05.2017
-
-Футбол. Лига Европы УЕФА 2016-2017. 1/2 финала. 1-й матч. Аякс (Нидерланды) – Лион (Франция) (03.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709112.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 мая 2017, среда. 19:45 МСК
-Лига Европы УЕФА 2016-2017. Плей-офф. 1/2 финала. 1-й матч
-Аякс (Амстердам, Нидерланды) – Лион (Лион, Франция)
-Стадион: Амстердам Арена (Амстердам, Нидерланды), вместимость: 53052(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4165037984193CCBD7D1264B35E3DBA82181CB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131370   (709111) от 05.05.2017
-
-Johnny Smith - Plus The Trio (1960) Remaster, 2017, Warner [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+VA - Highway Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Got It Bad (And That Ain't Good) [02:44]
-02. Lets's Fall In Love [02:20]
-03. I Can't Get Started [04:59]
-04. Some Of These Days [02:29](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:33:57
+01. John Lee Hooker - Boom Boom (Remastered 2015) (02:31)
+02. Howlin' Wolf - The Red Rooster (Remastered) (02:26)
+03. Muddy Waters - I'm Your Hoochie Coochie Man (Remastered) (02:48)
+04. Ray Charles - Lonely Avenue (Remastered 2017) (02:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8ADAA4932A48DE0A3CBCDA80F6DA67228D2B153
+magnet:?xt=urn:btih:D973BD04359FE973C91E725240FB9EF05EC5CD06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +56,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131406   (709110) от 05.05.2017
+###  Публикация: 1401528   (709282) от 10.08.2020
 
-VA - Trance Trackz (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+Девушка на мосту / La fille sur le pont (1999) BDRip [1080p] ATV [MVO]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка Адель хочет покончить с собой, прыгнув с моста. Метатель ножей Габор тоже на грани, однако он вмешивается и предотвращает самоубийство. Ему удаётся уговорить Адель стать мишенью в представлении по метанию ножей.Производство: Франция / Canal+, France 2 Cinéma, Les Films Christian FechnerЖанр: Драма, мелодрама, комедияРежиссер: Патрис ЛеконтАктеры: Ванесса Паради, Даниель Отой, Фредерик Пфлюгер, Деметре Георгалас, Катрин Ласко, Изабель Пети-Жак, Мирей Моссе, Дидье Лемуан, Берти Кортес, Стефан МецгерПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:31:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401600   (709281) от 10.08.2020
+
+HDCleaner 1.301 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709281.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows от компании Майкрософт. Данный набор эффективных средств для очистки ПК создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2268D4AF6521773EB8FA3832A34454BBB7D00046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401447   (709280) от 10.08.2020
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Чехии / MotoGP 2020. Czech GP (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709280.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224CF1F158C0444A9784D7AFFCAA36B66F4E645B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401545   (709279) от 10.08.2020
+
+Джек Чеберт | Школа Жуткинса. Опасное дежурство. Книга 1. (2019) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа страшнее, чем кажется!
+Сэм Склепс только что стал дежурным по коридору в школе Жуткинса. В первый же день он обнаруживает, что школа – живая и охотится на учеников! Сэму придётся носить мерзкую оранжевую перевязь, следить, чтобы все расходились по кабинетам, и защищать учеников от школы. Когда зловещая школа нанесёт удар? Будет ли Сэм готов сразиться с ней?Жанр: Зарубежная литература для детей/Ужасы/ФантастикаПеревод: Маргарита ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150BB369E78274F32E78282B3A9F1DBC7FE1DB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401467   (709278) от 10.08.2020
+
+Кирилл Андреев | Искатели приключений (1969) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEC3B838E5E1D6EC0C0B35E331A9B440B6795D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401563   (709277) от 10.08.2020
+
+VA - In Search Of Sunrise 16 (Mixed by Markus Schulz & Giuseppe Ottaviani & Sunlounger) (2020) [MP3|320 Kbps] <Trance, ChillOut, Electronic>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JW&M - Still Connected
-02. Vechigen - Do Not (Trance Mix)
-03. Matt Pincer - The Catch
-04. Lisaya - In Faith We Trust (Soulcry Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:16:31
+01. Johan Gielen - Balearic Reflection (Markus Schulz In Search Of Sunrise Intro Mix)
+02. Sean & Xander - Shimmer Of Tides (Original Mix)
+03. Late Night Alumni - Empty Streets (Markus Schulz In Search Of Sunrise Remix)
+04. Kris O'Neil - Stroller Symphony (Markus Schulz In Search Of Sunrise Rework)(   Читать дальше...   )Жанр: Trance, ChillOut, ElectronicПродолжительность: 07:51:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:229B5501F8BC81ED5D09F5A9AD923713FAE45FC9
+magnet:?xt=urn:btih:257FDB7D2858D30ECA8099A01F00C01BC1D74CF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +216,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131170   (709109) от 05.05.2017
+###  Публикация: 1401466   (709276) от 10.08.2020
 
-Richard Davis - Forest Flowers (1977) 2000, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+Картинки - Bee [JPG, PNG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forest Flower [05:00]
-02. Take The A Train [03:11]
-03. Passion Flower [04:17]
-04. A Third Away [04:32](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:37
+Подборка картинок на тему пчелы.Формат: JPG, PNGРазрешение файлов: 1280x800-4608x3072
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:180DF760DEFE123D9BE2FFAADEBEE14EE23B52BC
+magnet:?xt=urn:btih:DC1FBAF8C210691076E6CFB314176579BEC57594
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131263   (709108) от 05.05.2017
+###  Публикация: 1401532   (709275) от 10.08.2020
 
-VA - Высшая лига. Весна. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+Растровый клипарт - Beautiful pansy summer flowers stock photo [JPG]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Тамерлан & Алена - Детство 3:17
-002. Евгений Замятин - Я За Тебя Умру 4:29
-003. Алиса Кожикина - Сдай Назад 3:16
-004. Паша Панамо - Слишком Красивая 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+Красивые летние цветы анютины глазки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5616x3744
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFEC65221C6CC8CBE8A8F68D266F1AFA749B55D4
+magnet:?xt=urn:btih:BE64E6ECD4A4EBD148229EFC80698971C3994F01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +268,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131376   (709107) от 05.05.2017
+###  Публикация: 1401554   (709274) от 10.08.2020
 
-Qbserve 1.62 [En]
+Г.А. Знаменский | Крупицы познания исторической России в свете Православной веры (2018) [PDF, DJVU, FB2, EPUB]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга заслуженного профессора Георгия Александровича Знаменского «Крупицы познания исторической России» представляет великую ценность, особенно для людей, изучающих русскую историю и русскую культуру, а также характер и сущность русского православного народа.
+
+Редкое соединение в одном авторе двух дополняющих друг друга качеств — учёного литератора и выдающегося (   Читать дальше...   )Жанр: История. ПравославиеФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401559   (709273) от 10.08.2020
+
+App Cleaner & Uninstaller Pro 7.0.2 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и  помогает повысить производительность.  Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
+Просмотр установленных приложений и деинсталлировать пакет файлов для полного удаления.
+App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений.
 
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 апреля 2017Разработчик: QotoQotПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, которое делает беготней для вас.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E9381A07B4D66EC7337A37A41ED0A3F70A38807
+magnet:?xt=urn:btih:85B17BF6DFB002FD5F3D7ADE52293C903C2432BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,24 +325,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532759   (709106) от 22.02.2022
+###  Публикация: 1401392   (709272) от 10.08.2020
 
-Martin Hiska - Coast to Coast (2021) [AAC|~349 Kbps] <Lounge, Chill Out, Downtempo>
+Форсаж 6 / Furious 6 (2013) HDTVRip [H.264/720p] [Open Matte] [Театральная версия] [PR]
 
->>нет
->>нет
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diving Sun (5:22)
-02. Martin Hiska, Michael Moses - Sandy (4:48)
-03. Intimate (4:28)
-04. Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:25
+После того как Доминик и Брайн побывали в Рио, где они ограбили и свергли империю вора в законе, их команда получила 100 миллионов, и наши герои оказались разбросаны по всему миру. Но их привычка вечно жить в бегах не даёт им покоя. Между тем, Хоббс отслеживал организацию смертельно опасных наёмников-водителей по двенадцати странам. Единственный способ остановить (   Читать дальше...   )Производство: США, Япония, Испания, Великобритания / Universal PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джастин ЛинАктеры: Вин Дизель, Пол Уокер, Дуэйн Джонсон, Мишель Родригес, Люк Эванс, Тайриз Гибсон, Лудакрис, Санг Кенг, Галь Гадот, Джордана Брюстер, Джейсон СтэйтемПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5155E40236C3E548E841AA85C8B4B98EC4D4A9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401400   (709271) от 10.08.2020
+
+Пара минут славы / 2 Minutes of Fame (2020) WEB-DLRip [H.264/1080p] [EN / RU Sub] [PR]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перспективный стендап-комик переезжает в Лос-Анджелес, пытаясь пробиться в Голливуд, и стать вторым Эдди Мерфи. Еще бы! Ведь его мувики на ютубе собрали миллион фаловеров! Он стебет самого Трампа (точнее, его киновоплощение) и голливудскую звезду-эскимо (черного, угождающего белым). Иными словами, он уже звезда... в интернете. А как выйдет в реале?Производство: США, Code Black Entertainment, LionsgateЖанр: комедияРежиссер: Лесли СмоллАктеры: Энди Алло, Кеке Палмер, Мадлен Бирн, Деон Коул, Кэтт Уильямс, Джей Фэро, РонРико Ли, Валери М. Ортис, Кимри Льюис-Дэвис, Джим УайзПеревод: ОтсутствуетСубтитры: Русские, Английские, Вьетнамские, Арабские, НидерландскиеПродолжительность: 01:37:03
 
 ## Скачать торент
 ```bash
@@ -311,434 +377,323 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532776   (709105) от 22.02.2022
+###  Публикация: 1401423   (709270) от 10.08.2020
 
-VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Israel Vich, Marco Tegui - Tortuga (Original Mix) (6:08)
-02. Foxall, Deaf Can Dance - Babel (Original Mix) (7:37)
-03. Fulltone - Looped (Original Mix) (5:20)
-04. Derrok, Biomigrant - Sueño Profundo (Just Emma Remix) (9:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36AE3641128A666A29A800511E63CEAA2860132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532775   (709104) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JPattersson - Silkwood Shower (Dolph Bees & Bears Remix) (7:02)
-02. David Rausch - Substance (Original Mix) (7:46)
-03. Israel Vich, Tony V, Zufu - Ayahuasca Gift (Original Mix) (5:20)
-04. Fulltone - Cricket Groove (Original Mix) (7:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6385E2FCDFC0D964474485A0457F494B1647C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532757   (709103) от 22.02.2022
-
-Martin Hiska - Arise (2019) [AAC|~346 Kbps] <Deep House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arise (4:38)
-02. Dust (4:59)
-03. Oriental Moments (6:12)
-04. Hunted (4:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532975   (709102) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PALMFooD - Bogogan (8:00)
-02. Amount - Tripping Octaves (6:04)
-03. Kotelett & Zadak - Sapiens (Original Mix) (7:34)
-04. Renga Weh - Kaleidoscope (Original Mix) (5:52)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52622C7A7192B5AF1B07553D6020A278E77D387E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532973   (709101) от 22.02.2022
-
-Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shahma (4:30)
-02. One On One (4:54)
-03. Bansi (6:33)
-04. Stepping Stone (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F7936C26C9BEDC59A8674A6A78D326172CC77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532772   (709100) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [AAC|~328 Kbps] <Lounge, Leftfield, Downtempo>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alwood Johnson - Fly (Original Mix) (5:46)
-02. Danny Hay - Expectations (Original Mix) (7:41)
-03. Chuck Mertens - Moshy (Original Mix) (5:51)
-04. Alec Gonzalez - Lia (Original Mix) (3:39)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532755   (709099) от 22.02.2022
-
-Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1001 Desires (6:24)
-02. Stateless (5:31)
-03. Ali (4:10)
-04. Beyond Dreams (5:04)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532777   (709098) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostakis - The Taking (Original Mix) (9:27)
-02. Moscow Noir, Night Vision - Come Undone (Original Mix) (8:00)
-03. Doyeq - My Hidden Winter (Original Mix) (8:19)
-04. Fat Cosmoe - Andromeda (David Dorad & Sebo Remix) (6:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532972   (709097) от 22.02.2022
-
-Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Session (5:10)
-02. Lady In Blue (4:41)
-03. Seasides (5:58)
-04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532773   (709096) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lounge, Leftfield, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonic Elements - Until The Morning (Original Mix) (3:33)
-02. Wet Elements - Young Rebel (Sunrise Mix) (3:33)
-03. Cosmique Beats Ensemble - Grooman (Original Mix) (3:55)
-04. Pianistic Soul - Enchantment (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 02:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74484B63CBF54A2EE8E13527FF1C2B8905CF664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532974   (709095) от 22.02.2022
-
-Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istanbul Lounge (5:23)
-02. Japanese Garden of Bliss (4:09)
-03. Sati (4:14)
-04. Orange (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 03:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2415977EDE9D9FDEF608151E1DF9BF2B56A2E1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286841   (709094) от 04.03.2019
-
-Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [7:18]
-02. All the Things You Are [5:30]
-03. Summer Wind [3:45]
-04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286839   (709093) от 04.03.2019
-
-Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Cry [3:27]
-02. It's Too Soon to Know [3:01]
-03. I'll Never Be Free [1:57]
-04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286875   (709092) от 04.03.2019
-
-Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Unity (04:33)
-02. Nothing but Stardust (06:15)
-03. Every Dream Is a Lifetime (05:53)
-04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286914   (709091) от 04.03.2019
-
-VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kerstin Ott - Regenbogenfarben
-02. Maite Kelly - Heute Nacht für immer
-03. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-04. Andrea Berg - Mosaik(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+001. Tomorrow - Fairy Of Shampoo
+002. Kristofer Astroem - Ode To...
+003. Daniel O'donnell - Crystal Chandeliers
+004. Isaac Dunbar - Boy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
+magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209561   (709269) от 12.06.2010
+
+Дмитрий Маликов - Коллекция альбомов (1993-2009) [MP3|320 kbps]<POP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 16:16:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209465   (709266) от 12.06.2010
+
+Наталья Ветлицкая - Дискография  (1993-2004) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:52:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209618   (709259) от 12.06.2010
+
+Место встречи изменить нельзя (1979) 2*DVD-9 [5 серий из 5]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709259.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману братьев Вайнеров "Эра милосердия".
+1945 год. Отгремел салют Великой Победы и страна постепенно возвращается к мирной жизни. Послевоенная Москва только начинает приходить в себя, но преступники уже вовсю развернули свою бурную деятельность. В городе появляется неуловимая банда «Черная кошка», наводя ужас на москвичей. Недавно демобилизовавшийся (   Читать дальше...   )Производство: СССР, Одесская киностудия, Второе ТО, Гостерадио СССРЖанр: боевик, драма, криминал, детектив, приключения, экранизацияРежиссер: Станислав ГоворухинАктеры: Владимир Высоцкий, Владимир Конкин, Сергей Юрский, Виктор Павлов, Наталья Фатеева, Леонид Куравлёв, Светлана Светличная, Александр Белявский, Евгений Евстигнеев, Армен ДжигарханянСубтитры: Русские, АнглийскиеПродолжительность: 06:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38AA896055FD7E4E2D2108652EC632BAB9A9833B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147117   (709253) от 12.06.2010
+
+The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro/Big BeatПродолжительность: 00:59:09
+01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
+02. The Sunshine Underground (Woodstock '99) (9:15)
+03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670888   (709237) от 22.06.2013
+
+[Кантонский] Осенняя история / An autumn's tale (1987) BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709237.jpg" />
+</div>
+
+
+###  Подробнее
+
+История наивной молодой девушки из Гонконга, которая прилетела в Нью-Йорк учиться. Ее кузен, опытный таксист, который давно живет в Нью-Йорке, берет на себя заботу о девушке.Жанр: Драма, МелодрамаРежиссер: Мейбл Чонг / Mabel CheungАктеры: Юн-Фат Чоу, Чери Чунг, Дэнни Чан Бак-КьонгПеревод: ОтсутствуетЯзык субтитров: RUS, ENПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1554F9E03E1E50CC91F92D5B25AC716AF1EEADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329556   (709222) от 29.04.2011
+
+AMD Catalyst 11.4 [Multilanguage+Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709222.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMD выпустила новую версию драйвера Catalyst 11.4 WHQL. Этот выпуск поддерживает видеокарты серий Radeon HD 2000, HD 3000, HD 4000, HD 5000 и HD 6000, а также чипсеты Radeon 3000 и 4000.Язык интерфейса: Multilanguage+Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329403   (709213) от 29.04.2011
+
+London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elektricity Will Keep Me Warm
+02. Meteorites (ft. Elsa Esmeralda)
+03. Had a Little Fight
+04. The Plan That Cannot Fail(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329746   (709202) от 29.04.2011
+
+Adobe Dreamweaver CS5.5 11.5 build 5315 [Мульти/Русский]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe® Dreamweaver® CS5 позволяет дизайнерам и разработчикам создавать веб-сайты профессионального уровня на базе отраслевых стандартов. Поддержка визуального дизайна и изменения кода, разработка страниц для систем управления контентом, а также точность тестирования совместимости с браузерами благодаря интеграции с Adobe BrowserLab, новой онлайн-службой Adobe CS Live**.В течение ограниченного периода времени услуги CS Live предоставляются бесплатно.
+
+Это оригинальный, подлинный т.е как есть Electronic Software Delivery (ESD) дистрибутив, распространённый с серверов компании Adobe как среди покупателей так и среди желающих ознакомится с продуктами компании.Язык интерфейса: Мульти/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329936   (709201) от 29.04.2011
+
+X-Plane 9 / X-Plane 9: Зов неба (L) [Ru/En] 2008
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709201.jpg" />
+</div>
+
+
+###  Подробнее
+
+X-Plane— авиационный симулятор, разрабатываемый и распространяемый компаниейТип издания: ЛицензияРазработчик: Laminar ResearchЖанр: Simulator (Civil Aviation / Helicopter) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A125E6CA4A3ED252142B019BB42225189F2C261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024849   (709199) от 12.06.2016
+
+На дальней заставе (2016) HDTVRip ( серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — история выпускника погранучилища, молодого лейтенанта Саши Прохорова — балагура, любимца женщин, «гусара». Окружающие считают его прожигателем жизни, способного только на легкомысленные поступки. Однако те, кто хорошо знаком с героем, знают, что на самом деле «гусар» — смелый, честный и верный. Саша влюблен в Леночку, дочь генерала. Леночка любит (   Читать дальше...   )Производство: Россия / Студия "Герион", ООО "Кинофильм Продакшн"Жанр: МелодрамаРежиссер: Андрей ХрулевАктеры: Иван Жвакин, Иван Николаев, Валерия Федорович, Алексей Огурцов, Дарья Михайлова, Михаил Хмуров, Марина Митрофанова, Евгений Пронин, Александра Гайдук, Анатолий Голуб, Наталья Капитонова, Елизавета Шукова, Ольга Бурлакова, Евгений Ивкович, Александр Павлов, Антон Жуков, Илья Сотиков, Николай Стонько, Павел Лотарев, Илья Финевич, Александр Гелейша, Шамхал Хачатурян, (   Читать дальше...   )Продолжительность: 00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08446DC0531C289C7EA3C03C7C9F9FF74A554D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

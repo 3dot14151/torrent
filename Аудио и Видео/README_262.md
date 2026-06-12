@@ -1,113 +1,3 @@
-###  Публикация: 1516766   (165289) от 12.12.2021
-
-VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patiotic - Remembering You (Original Mix) (4:04)
-02. Marga Sol - Soulheaven (Original Mix) (5:50)
-03. Gary B, Ken Fan - Volar (4:54)
-04. Weathertunes - Follow Your Heart (4:21)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516607   (165240) от 12.12.2021
-
-The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Baylor Project, Kenny Garrett - Strivin' (5:13)
-02. A Love Story (Interlude) (1:46)
-03. Happy To Be With You (6:13)
-04. Love Makes Me Sing (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345997   (164962) от 17.12.2019
-
-Код 8 / Code 8 (2019) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164962.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF544FF0500A6D11A2B5CDFA692619C2CA14E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345995   (164895) от 17.12.2019
-
-Код 8 / Code 8 (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164895.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0280730D31377872325F3C8B965B82854ADAC1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516862   (164559) от 13.12.2021
 
 VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
@@ -726,6 +616,122 @@ VA - Chill Executive Officer (CEO), Christmas Edition (2021) [AAC|~320 Kbps] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A3EEAEC56D2492F8467312E9B1D4E3DE22996B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517123   (163623) от 14.12.2021
+
+VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humper Dinck - Quando (Bart&Baker Remix) (3:23)
+02. Wolfgang Lohr, Maskarade - Hit the Road Jack (Electro Swing Cover) (2:36)
+03. Zouzoulectric, The Andrews Sisters - Well All Right! (2:38)
+04. Vourteque, Noah Grey, TomCat Trumpet - Girls and Boys (4:22)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC9FCC6722E159BFF41B13F37B8ED32B120D53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517126   (163606) от 14.12.2021
+
+VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~322 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, Minnie Valentine - Last Night a DJ Saved My Life (3:54)
+02. Swingrowers - Pump up the Jam (3:48)
+03. Pisk - Horny (Electro Swing Version) (3:29)
+04. Betty Booom, Slim Khezri, The Hebbe Sisters - Billie Jean (Electro Swing Mix) (3:07)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AD42EE66A0A3D510BF266D3E9672070806FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517122   (163564) от 14.12.2021
+
+VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Beat, Nu Jazz, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Django - Back&Beat (3:07)
+02. Varrick Frost - Sweet Dreams (4:24)
+03. Klischee - Mais non (1920 Version) (3:12)
+04. Bart&Baker, The Rasputin Orchestra - Shéhérazade (5:15)(   Читать дальше...   )Жанр: Broken Beat, Nu Jazz, Electro SwingПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5942BE366DE506520249BDE43D638C5C2916FD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517191   (163555) от 14.12.2021
+
+Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Интро (0:31)
+1.02. В кинозале темном (3:12)
+1.03. Рэкетмены (4:17)
+1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

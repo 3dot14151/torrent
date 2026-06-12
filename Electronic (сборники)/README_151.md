@@ -1,3 +1,32 @@
+###  Публикация: 948686   (409639) от 21.10.2015
+
+VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klankman - Requiem - Jason Philips Remix
+02. Las Chicas Professionales - Colour Your Sins
+03. Mono & Lisa - Passenger - G. Mojo Remix
+04. Self Explanatory - Circles in Circles(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C91558D57E3C215F2BCEDA0901F721F8E4EE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252395   (409309) от 05.10.2018
 
 VA - New Order Of Chaos: Hardcore Monstr Mix (2018) [MP3|320 Kbps] <Hardcore, Electro>
@@ -748,41 +777,6 @@ VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562146   (405623) от 19.10.2012
-
-VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405623.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:47] 01. SL Curtiz, Domovnik - Timeline (Edy Valiant Remix)
-[06:26] 02. Futuristic Polar Bears, Danny Howard - Red Man Rising (Miami 2012 Edit)
-[06:12] 03. DJ Ortzy, Nico Hamuy - Lose Control (feat. Alex Peace) (Original Mix)
-[06:37] 04. A.C.N. - Epic (Original Mix)
-[06:44] 05. Muzzaik - The Rhythm of Life (feat. Stephan Parker) (Belocca Remix)
-[07:39] 06. Francesco Diaz, Young Rebels - Fiesta (Original Mix)
-[06:04] 07. Lucas Reyes, Peter Brown - We Shall Overcome (Original Mix)
-[07:20] 08. David Costa, Nick Fisher - Sunshine (Club Mix)
-[05:39] 09. Funky Truckerz - Work It (Original Mix)
-[06:45] 10. Futuristic Polar Bears, Jonathan Ulysses - Want You Back (In My Life) (feat. Pryce Oliver) (Vox Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C194F73A4BC9F3C3BF2E66B237381B148814E8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

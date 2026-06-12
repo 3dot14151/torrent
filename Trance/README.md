@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1875810   (1072838) от 
+
+VA - Spring Trance 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimassive - Energize (Extended Mix) [5:43]
+02. Actor - Particles (Extended Mix) [6:02]
+03. Mazeev - Ad Astra (Original Mix) [6:12]
+04. Polzn Bladz - End Of An Error (Extended Mix) [7:53](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594E4760D68EF2B7BC98DC54E211AA3C9EF1CAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875312   (1072570) от 
+
+VA - Mind Resonance - The 2nd Chapter - (Mixed by Alex Trust) (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Caceda & ROM - Night Clubbers (Mixed) 04:02
+02. Alex Trust & N-Tech - Half Moon 2026 (Mixed) 05:18
+03. ROM - SPEED (Mixed) 04:24
+04. Alex Trust & Fernando Caneo - It's Just the Beat (Mixed) 04:53(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD49592F5FEF5A7AA069AB218186647B960F3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875163   (1072411) от 
+
+VA - A State of Trance 25 Years: Selected Highlights (Mixed by Armin van Buuren) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Solarstone - Solarcoaster
+02.	Armin van Buuren - Orbion
+03.	Armin van Buuren - Let The Music Guide You (ASOT 950 Anthem) (ReOrder pres. Crowd+Ctrl Remix)
+04.	Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Goom Gum Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE46659B53FC541BFF077372CCB3A0DBF8E010ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874894   (1072198) от 
 
 VA - Suanda Ibiza 2026 (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -659,93 +746,6 @@ VA - Friends of A State Of Trance, Vol. 2 (Mixed by HILOMATIK) (2026) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4E296D49731C8DF6E12708DD754345DEBDAA55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867575   (1067278) от 26.04.2026
-
-VA - Friends of A State Of Trance, Vol. 3 (Mixed by Andrew Rayel) (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LightControl - Like A Ghost (Mixed) [2:00]
-02. Yoel Lewis & Meital De Razon - Brave (Mixed) [5:38]
-03. Nifra & Leo Reyes - Humanoids (Mixed) [3:27]
-04. Ashley Wallbridge & John Weber feat. Bodine - Flashing Lights (Mixed) [4:18](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2430BE5EEF406F95609E2DC2479391D14C1A526B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867839   (1067047) от 27.04.2026
-
-VA - Hypnotised presents Balearic Trance (2026) [MP3|320 Kbps] <Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Already There (Original Mix) [2:56]
-02. Dove Beat - La Paloma (Ocean Mix) [8:09]
-03. Three Drives On A Vinyl - Greece 2000 (Extended Mix) [8:04]
-04. Nalin & Kane - Beachball (Extended Vocal Mix) [7:33](   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 03:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6287E34A8F00257FE325F260087D909F53499B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867492   (1066938) от 25.04.2026
-
-VA - Redux Selection, Vol. 5 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Raver - Morning Sun (Extended Mix) [6:52]
-02. Wayne McAndrew - Desire (Extended Mix) [6:40]
-03. Tioan & Christopher Maison - Seravine (Extended Mix) [6:02]
-04. Reverýe - Resurrection (Extended Mix) [5:27](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EA0F364761710DCE8A5D465FB6C69C92B0760C
 ```
 
 https://mybot314.ru/tekegram_catalog/

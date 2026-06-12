@@ -1,3 +1,96 @@
+###  Публикация: 1169019   (401474) от 29.09.2017
+
+VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eugene Kushner - That I (Original Mix)
+002. Vitaly Beskrovny - If I? (Feat Simon Latham - Original Mix)
+003. Max Denoise - Bring To Me Life (Feat Claire Willis - Original Mix)
+004. Latham & Quano - Fallen Angel (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 08:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EF9BEF40DC1458DB56236E2B066C48BCEFC889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170427   (399353) от 01.10.2017
+
+VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jupiter Panic - Sunrise
+002. Greg Maroney - Lake Song
+003. Indiajiva - Awakening
+004. Glenn Main - Equinoxe, Part 1(   Читать дальше...   )Жанр: New Age, Relax, DowntempoПродолжительность: 10:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EED9F5EDAC267241D9358E3EB9604BDAD140FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568811   (393687) от 01.11.2012
+
+VA - Романтические мелодии (2012) [MP3|192-256 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001_Fausto Papetti - Emmanuelle
+002_Nino Rota - Goodfather
+003_Francis Goya - Love Story
+004_James Last - Ballade For Adeline
+005_Candy Dulfer & Dave Stewart - Lilly Was Here
+006_Giorgio Moroder - Flash Dance
+007_Vangelis - Girl Of Sea
+008_Paul Mauriat - Toccata
+009_Michel LeGrand - Les Parapluies de Cherbourg
+010_Santana - Europa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E005D01625EE73B82ADB845FD8BB4E9B69AD3944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570881   (389288) от 06.11.2012
 
 VA - Mystic (2002) [MP3|320 кб/с]<New Age>
@@ -662,93 +755,6 @@ Percy Faith & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1488B69E90379EEEF939A54B1A6E5DA82E7E3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579533   (332964) от 29.09.2022
-
-James Last & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evie
-02. Andante From Violin Concerto Op. 64
-03. Theme From 'missing'
-04. Adagio (A.Dvorak - Symphonie Nr.9 E-Moll Op.9 'from the New World')(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 14:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980F022C03CD94F48438EF6AE85F800466453F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581009   (327138) от 05.10.2022
-
-John Sokoloff - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.O.M.
-02. Allow Me
-03. Russian Girl
-04. El Manor(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611D13FAD640F4F1902385608452A7FB8226D6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581478   (325357) от 07.10.2022
-
-Gil Ventura - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Appassionatamente
-02. E Non Finisce Mica Il Cielo
-03. Love Story
-04. Harlem nocturne(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 11:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E68FA6057D303591B37D055B842E5A32617DF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

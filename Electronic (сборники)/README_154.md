@@ -1,3 +1,38 @@
+###  Публикация: 568418   (390457) от 05.11.2012
+
+VA - Big Room Amsterdam (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cenk Basaran - The Finger (Original Mix) (6:00)
+2. Facade and Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) (6:54)
+3. Somna - Afterglow (Original Mix) (8:37)
+4. Mosahar - Floor On Fire (Original Mix) (6:59)
+5. Kearney - Exactly (Giuseppe Ottaviani Mix) (7:43)
+6. Katy Rutkovski - Hidden Dawn (Original Mix) (6:03)
+7. Michael Dow - Ursa Minor (Original Mix) (8:45)
+8. Paul Denton - Monday Club (Original Mix) (6:48)
+9. Gary Proud - Apollo's Children (Original Mix) (7:25)
+10. Melinda Gareh - Supernal (Luke Terry Remix) (8:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C77A2D0DB3B99328162F8A70E7059CC8DB15F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570594   (390397) от 05.11.2012
 
 VA - Dub-Pack - Week 4 (2012) [MP3|320 кб/с]<Dub-Step>
@@ -788,35 +823,6 @@ VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1874F5C7646F83328F70D51BA31CA97CAEB943EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326415   (385213) от 20.09.2019
-
-VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ana Criado - No One Home
-002. B Selekt - Rhein
-003. D-Rhapsody - Rings Of Saturn
-004. Eelke Kleijn - Maschine 1.0(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 10:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F1BD5403879FA2DC23536A7007A845B4DA46C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

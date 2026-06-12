@@ -1,32 +1,3 @@
-###  Публикация: 1259025   (332815) от 01.11.2018
-
-VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real System - There Is No More Love (Randy Norton edit)
-02. B.G. The Prince Of Rap - Once You Have Me (feat Timi Kullai & Nathan Reynolds III - Dolls House remix)
-03. Greg Bannis vs DJane Monique - You Sexy Thing 2018 (Dolls remix)
-04. Rinaldo Montezz - Jump (feat Gabriel Scar - radio mix)(   Читать дальше...   )Жанр: Euro Dance, Future House, ClubПродолжительность: 03:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580214   (331841) от 30.09.2022
 
 VA - Best Radio Tracks, Vol. 24 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -745,6 +716,35 @@ VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587716   (192326) от 01.11.2022
+
+VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delerium feat. Sarah McLachlan - Silence (Tiesto's In Search Of Sunrise Radio Edit)
+02. Rank 1 - Airwave (Original Vocal Edit)
+03. Mauro Picotto - Komodo (Radio)
+04. Dune - Hardcore Vibes (Video Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:40:25 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DAFFACE92E3815D5D2F1A284BBF76CE8D0A0A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

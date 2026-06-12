@@ -1,32 +1,3 @@
-###  Публикация: 1080997   (286081) от 08.12.2016
-
-Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory Of Byzantium (1994-2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286081.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске духовные распевы 15 века в аутотентичном исполнении греческого хора чередуются с Богослужебными песнопениями  в исполнении Дивны Любоевич и хора Melodi под ее управлением.
-1. Hail Mary, Luke 1, 28 and 42. Byzantine chant (at vespers) (1:43)
-2. Sticheron of the Vespers of the Dormition of the Mother of God (2:51)
-3. Hail Mary, Luke 1, 28 and 42. Byzantine (   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186554   (285853) от 25.11.2017
 
 Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
@@ -750,6 +721,34 @@ VA - Золотая классика. Популярные версии (5CD) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99343724C4DA7A80B1721984915D5F8C5EC5016B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501697   (258824) от 27.05.2012
+
+Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прометей (Симфоническая поэма № 5)
+2. Что слышно на горе (Симфоническая поэма № 5)
+3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,34 @@
+###  Публикация: 604179   (996276) от 17.01.2013
+
+Шаблоны - Шаблоны визиток для Photoshop - Stylish Business Card 32213 – GraphicRiver  / Бизнес Визитки [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовый шаблон визитной карточки Stylish Business Card
+2 "х 3,5".Раздельные Font и Back стороны . Все текстовые и графические элементы разделены на свои собственные уровни для легкой модификации.
+----------------------------------------------------------------------------------------
+Print ready business card template. This PSD files are CMYK at 300dpi.
+
+The card is 2” x 3.5” (plus extra all around to allow for bleed). The front and back artwork is separated into separate psd files. All the text and graphic elements are separated onto their own layers for easy modification.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8875AD0FDB31E6E21AACD188E567B035CF59FB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605559   (995547) от 20.01.2013
 
 Шаблон - Набор "День Святого Валентина" [.png|.jpg]
@@ -690,32 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2648C10AE451870430325E6A1A8D81F4D489AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353972   (989653) от 20.01.2020
-
-Шаблоны - Creative Market - Tshirt Mockup Big Bundle - 4362578 [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проще говоря, мы стремимся сделать макеты футболок высочайшего качества. Этот пакет для фотошопа включает в себя 90 разных макетов. Файлы 4K гарантируют, что ваши дизайны будут отлично смотреться на всех дисплеях, даже при обрезке и увеличенииФормат: PSD, PNGРазрешение файлов: 2500x2500-3000x2500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A96799333304F4BF48A92D641432CAD32A96D66
 ```
 
 https://mybot314.ru/tekegram_catalog/

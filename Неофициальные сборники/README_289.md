@@ -1,3 +1,176 @@
+###  Публикация: 339049   (668863) от 19.05.2011
+
+VA - Ах, какая Женщина! Vol. 2 [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_668863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D12A0954E627369E8726CE1D035340494BB795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 338876   (668859) от 19.05.2011
+
+VA - Brazilian Hits (1959) [MP3|320 kbps]<Instrumental,Brazilian,Oldies>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_668859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Na Baixa Do Sapateiro - Leo Peracchi E Sua Orquestra     02:23
+ 02. Não Tenho Lágrimas - Trio Irakitan                              02:29
+ 03. Carinhoso - Luiz Arruda Paes E Sua Orquestra              02:54
+ 04. Baião - Leo Peracchi E Sua Orquestra                          02:21
+ 05. Delicado - Brasilia Ritmos                                         03:05
+ 06. Kalú - Leo Peracchi E Sua Orquestra                           02:29
+ 07. Tico Tico No Fubá - Leo Peracchi E Sua Orquestra         01:37
+ 08. Copacabana - Luiz Arruda Paes E Orquestra                 03:05
+ 09. Os Quindins De Yaya - Leo Peracchi E Sua Orquestra     02:31
+ 10. Maracangalha - Os Brasileiros                                    02:16(   Читать дальше...)Жанр: Instrumental,Brazilian,OldiesПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCF8CF77DCA9D6684AEB3D3DA7C0B16791E65B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339022   (668851) от 19.05.2011
+
+VA - Едем На Моря!!! (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9F57635B740305142E891C4A952099B7A3F9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031257   (668780) от 03.07.2016
+
+Dj ruS - Radioshow summer june 2016 Vol.1 (2016) [MP3|192 Kbps] <House, Dance Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dj ruS Radioshow summer june 2016 Vol.1
+Radioshow summer june 2016 Vol.1
+Nvrdjstudio@2016Жанр: House, Dance PopПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1BACDDFF08DB7BA2912A4D51F4885DAB20C3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031295   (668776) от 03.07.2016
+
+VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps] <House, Funky, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uberjak'd - Portland (Original Mix) 04:39
+02. Vicetone - United We Dance (Club Mix) 04:37
+03. Passenger 10 - Give Me Joy (Original Mix) 03:26
+04. Nicole Kollmann - L'amour Toujours (Instrumental Version) 02:44(   Читать дальше...   )Жанр: House, Funky, ProgressiveПродолжительность: 07:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031323   (668772) от 03.07.2016
+
+VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Dizzee Rascal -  Hype (Original Mix) 3:32
+002. Mark Sixma & Futuristic Polar Bears feat. Amba Shepherd -  Cupid's Casualty (Original Mix) 3:28
+003. Vicetone Ft. Cozi Zuehlsdorff -  Nevada (Original Mix) 3:29
+004. DJ Favorite feat. Will Fast -  Together (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137010   (668691) от 25.05.2017
 
 VA - Дискотека 2017 Dance Club Vol. 164 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
@@ -565,180 +738,6 @@ VA - SpaceSynth & ItaloDisco Hits Vol.23 (2017) [MP3|320 Kbps] <Іtаlо-Dіsс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33964F404BF90D75103DF7055AF27539931166E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137333   (667927) от 26.05.2017
-
-VA - Star Marathon Spring Mix (2017) [MP3|192-320 Kbps] <Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667927.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sean Paul feat. Dua Lipa - No Lie (DJ Corto Radio Mix)
-002. The Weeknd Ft. Daft Punk - I Feel It Coming (Loud Bit Radio Edit)
-003. Fitz & The Tantrums - HandClap (D.Anuchin & Gilevich Radio Mix)
-004. The Chainsmokers & Coldplay - Something Just Like This (R3hab Remix)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A06C3745F6CDE27F36C83873060F643FAA9465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137362   (667924) от 26.05.2017
-
-VA - Музыкальный адреналин от Русского радио выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлия Ковальчук - Потанцуй 3:57
-002. Haart Feat. Lusia - Забудем 3:48
-003. Черешня - Градус Любви 3:50
-004. София Тарасова - В Глаза 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A9344080EA131F400782BFDCB21BF4D3A484DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137364   (667888) от 26.05.2017
-
-VA - Весенняя сотка популярных треков выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. M19 - Двадцать Первое 3:48
-002. Zoya - Не Прикасайся 4:10
-003. Пальчики Оближешь - Нецветные Розы 3:51
-004. Лена Семенова - Уверен Ли Ты 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070D691CF0BCDFD81CEC085AB019B300AACAB0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137373   (667887) от 26.05.2017
-
-VA - Зажигай в темпе ритма. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667887.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Максим Смолин - Напиши 3:32
-002. Илья Гусев - Июльские Звезды 3:12
-003. Ренат Джамилов - Гуляю До Утра 3:32
-004. Галамартовна - Ермакова 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D6733F871F0B6F38E60F22E3A945343089FEC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137361   (667886) от 26.05.2017
-
-VA - Золотая вечеринка. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nelson - Не Лечи Меня 3:21
-002. Света - Два Взгляда 3:45
-003. Saro - Улыбнись 3:12
-004. Ирина Билык - Греческая 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC9ACF43C915AC6116FBC175928E3C539B4B373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137368   (667876) от 26.05.2017
-
-VA - Русский отрыв. Сборник № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667876.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Настико - Ритмозависимые 3:37
-002. Ejen & Lunna - Гармония 3:10
-003. Klimentyev - За Ней 4:03
-004. Карина - Мой Мир 2:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C9223C6AB55A79F058D54C49289E896D17A658
 ```
 
 https://mybot314.ru/tekegram_catalog/

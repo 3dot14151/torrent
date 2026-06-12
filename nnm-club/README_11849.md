@@ -1,22 +1,25 @@
-###  Публикация: 903037   (589445) от 11.07.2015
+###  Публикация: 917181   (589599) от 11.07.2015
 
-Подборка книг | 3DTotal eBooks [+Материалы] (2005-2014) [PDF] [En]
+Technimatic - Flashbulb EP (2015) [MP3|320 кб/с]<Drum & Bass>
 
->>Компьютерная литература
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вашему вниманию предоставляется подборка проектов издательства 3DTotal, в котором собраны коллекции работ художников (мифология, фэнтэзи, средневековье, sci-fi; сцены, персонажи, и мультики). В книгах представлены прекрасные тематические работы в 2D и 3D, плюс в книгах читатель найдет поэтапное описание выполненных действий автором статьи. Но это не пошаговое видеобучение, (   Читать дальше...   )Жанр: Рисование, моделирование, текстурирование, анимация и пост-обработкаФормат: PDF
+01. Secret Smile (feat. Lucy Kitchen)
+02. Dirty Hands
+03. Flashbulb
+04. Remember YouЖанр: Drum & BassПродолжительность: 00:21:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9E09323EB6F229FF07D5CDCFCB0208D0842A01F
+magnet:?xt=urn:btih:4BF38A66C98D38B6A27382195A852DC2E05EBC54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917491   (589444) от 11.07.2015
+###  Публикация: 917113   (589598) от 11.07.2015
 
-qBittorrent 3.2.1 Stable [Multi/Ru]
+Rachel Sermanni - Tied to the Moon (2015) [MP3|320 кб/с]<Alternative, Contemporary Folk, Female Vocal>
 
->>3
->>4
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+01. Run (04:43)
+02. Wine Sweet Wine (04:03)
+03. Old Ladies Lament (03:35)
+04. I've Got a Girl (03:43)(   Читать дальше...   )Жанр: Alternative, Contemporary Folk, Female VocalПродолжительность: 00:39:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:132C8A950AC83D77B3FDF3650F3FEB5C395343C5
+magnet:?xt=urn:btih:58CA61B387077859A2C11DA75FA68A459A26606E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 857875   (589443) от 11.07.2015
+###  Публикация: 917346   (589597) от 11.07.2015
 
-VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
+Real Bodrit - Superman (2015) [MP3|320 кб/с]<Indie Pop>
 
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Raintime - Another Transition (Feat. Lars F. Jensen) [00:04:25]
-02. Heavenwood - Luna (Feat. Kai Hansen) [00:07:29]
-03. Fairyland - Assault On The Shore (Feat. Georg Neuhauser) [00:05:09]
-04. Damageplan - Fuck You (Feat. Corey Taylor) [00:03:08](   Читать дальше...   )Жанр: MetalПродолжительность: 01:15:04
+01. Быть или не быть
+ 02. Ботаник
+ 03. Superman
+ 04. Малыш(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85D024FD162EFE26F5553D3973781292EAE9011B
+magnet:?xt=urn:btih:44CCB368B7B50F1C550595F66F1A3332DB795488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917081   (589442) от 11.07.2015
+###  Публикация: 917451   (589596) от 11.07.2015
 
-[PSP] Kuroko no Basuke: Kiseki no Shiai [Repack] [Jp] (2012)
+Постскриптум с Алексеем Пушковым (11.07.2015) SATRip
 
->>Консольные Игры
->>PSP
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Kuroko no Basuke: Kiseki no Shiai» - игра для PSP, основанная на серии «Kuroko no Basuke» и сфокусированная на развитии баскетбольной команды.
-«Kuroko no Basuke: Kiseki no Shiai» - традиционный симулятор баскетбольной игры. Во время матчей игроки представлены в виде чиби-версий. Создается такое впечатление, что игра имитирует каждый матч до финала отборочных соревнований (   Читать дальше...   )Тип издания: RepackРазработчик: Bandai Namco GamesЖанр: Sport Game, Simulation GamesЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
+Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Вопреки попыткам изоляции cаммит в Уфе. БРИКС - как новый центр силы. После референдума: решится ли еврозона расстаться с Грецией? Что нам хотят сказать, когда размахивают флагом Украины? По следам громкого скандала. А также... Украина, политический пир во время финансовой чумы. Когда власть занимается всем, кроме экономики.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
+magnet:?xt=urn:btih:5FD85F13CCA3ADFF260BB9BE7330AABE05F5A3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,27 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917353   (589441) от 11.07.2015
+###  Публикация: 917162   (589595) от 11.07.2015
 
-FictionBook Editor 2.6.7 [Multi/Ru]
+VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
 
->>След.
->>Архив Программ
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fiction Book Editor 2.6.7 - Fiction Book Editor это мощная программа для редактирования электронных книг в формате fb2, ставшая общепризнанным стандартом среди книжных редакторов. Он предоставляет огромный набор функций, инструментов и опций для полноценного редактирования fb2 книг.
-
-С помощью Fiction Book Editor можно редактировать непосредственно сам текст книги, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+01. Filmmusic Group - Peaceful Journey (Chill Out Mix) (04:24)
+02. Jack Dazey - Chill Out New York (Yuppie Lounge Music) (03:32)
+03. Gary Wolk - Door Jamb (03:16)
+04. Timothy Button - The Winds of Change (03:47)(   Читать дальше...   )Производство: Whisky LullabyЖанр: Lounge, Chillout, JazzyПродолжительность: 03:15:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD8B05C31B6B8E5F37755FF247AA7A6838AD627B
+magnet:?xt=urn:btih:2FD1687B485D160221D18B8E1C2B05E23126BDDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917405   (589440) от 11.07.2015
+###  Публикация: 917258   (589594) от 11.07.2015
 
-Журнал | Chip [Россия] №8 (август 2015) [PDF]
+Talisman - Vaults (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Hard Rock>
 
->>Журналы
->>Компьютерные журналы
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+01. Master Of Patience (Demo – Thomas Vikstrom Vocals)
+02. Riding On The Wind (Demo – Thomas Vikstrom Vocals)
+03. Live For Our Dreams (Demo – Thomas Vikstrom Vocals)
+04. Comin’ Home (Demo – Stefan Berggren Vocals)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:42:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FCA50495F890D08D2AA56252FF30510B87240F2
+magnet:?xt=urn:btih:D59043D45DECDA96D1F7C1CF9D7A663A27C5EE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +169,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 814296   (589439) от 11.07.2015
+###  Публикация: 916282   (589593) от 11.07.2015
 
-VideoHive - Cooking TV - After Effects Cook Broadcast Pack [AEP]
+В. Городинская | Стихи. «Мяу!» (2004) [DJVU, PDF]
 
->>Проекты
->>Презентации (проекты)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если у вас есть кулинарный канал, или вы просто хотите похвастаться, как ваша жена готовит - этот проект точно для вас. Вступление, рецепты, советы, переходы на альфе и прочее - все, что нужно молодым хозяйкамФормат: AEP
+Сборник тематических детских стихотворений, содержание которых поможет малышам разобраться в том, что такое дружба, добро и зло, плохие и хорошие поступки.Жанр: Детская проза, СтихиФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:387692225BE969EF25380D2E1C92C8E72311E0CD
+magnet:?xt=urn:btih:7A2600C4CD4D9FF614E458A19B4694FF3DBFA2E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,26 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 916090   (589438) от 11.07.2015
+###  Публикация: 917422   (589592) от 11.07.2015
 
-Vertex Impress U прошивка Miui v5
+Грегуар Делакур | То, что бросается в глаза (2015) [FB2]
 
->>След.
->>Архив КПК и Мобильных устройств
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MIUI – это одна из самых быстрых и красивых кастомных прошивок на базе платформы Google Android. В ней изменено практически все, начиная с экрана блокировки, заканчивая настройками системы.
-В MIUI нет отдельного списка приложений, все приложения располагаются на рабочем столе. Рабочих столов неограниченное число, можно создавать столько сколько душе угодно. Прямо (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 3 января 2015г.Разработчик: АндроидМания200Поддерживаемая ОС: Android: 4.2.2Язык интерфейса: Русский
+Второй роман французского прозаика Грегуара Делакура мало похож на первый («Шкатулка желаний»), но он столь же талантлив и самобытен. К тому же с ним связан громкий скандал – актриса Скарлетт Йоханссон подала на Делакура в суд за то, что он использовал ее имя в своем романе. По счастью, конфликт был улажен, и читатели всего мира могут наслаждаться изысканной и тонкой (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Нина ХотинскаяФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5316AD754C9219EFFC89E7C5C2B856BE35505AE9
+magnet:?xt=urn:btih:6147662D64120E79E7902D6D43F41A1640EAD318
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,26 +221,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917132   (589437) от 11.07.2015
+###  Публикация: 917355   (589591) от 11.07.2015
 
-Norton 360 22.5.0.124 [Ru]
+The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n'roll, Rockin'blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Rockin’ PartyЖанр: Rockabilly, Rock'n'roll, Rockin'bluesПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917220   (589590) от 11.07.2015
+
+Mozilla Thunderbird 38.1.0 Portable by PortableAppZ [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Norton 360 - комплексное решение "все-в-одном". Эффективная и быстрая защита от вредоносных программ с помощью мощного антивируса и проактивной технологии SONAR 4.
-Надежная защита от сетевых угроз и атак хакеров с двусторонним фаерволом и контролем программ, веб-защита от всех видов Интернет-угроз: фишинга, онлайн-мошенничества, вредоносных загрузок, кражи (   Читать дальше...   )Язык интерфейса: Русский
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF560E44F921FD5B2FF176ADDAF0BC7FB4F121E4
+magnet:?xt=urn:btih:B4EF0ACA2826AF94E6F1EAC7ADEB7050AAD47AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,26 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 537917   (589436) от 11.07.2015
+###  Публикация: 917398   (589589) от 11.07.2015
 
-Dropbox 3.0.0.12 [Rus] - Синхронизация файлов
+Aghiatrias - Ethos (2006) [FLAC|Lossless]<Dark Ambient, Industrial>
 
->>3
->>След.
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для синхронизации ваших файлов в режиме online для всех ваших компьютеров.
-Положите ваши файлы в папку Dropbox на одном вашем компьютере, и они автоматически появятся на всех остальных ваших компьютерах, на которых так же установлен Dropbox.Тип издания: FreeРелиз состоялся: 11.07.15Разработчик: Dropbox, Inc.Поддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
+01. Cognitive Trap (07:03)
+02. Situs Inversus (05:47)
+03. Les Coeurs Du Mal (05:27)
+04. Autodivine (06:59)(   Читать дальше...   )Жанр: Dark Ambient, IndustrialПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E97D5D573AC3D703DBA228EE0D692906770E6632
+magnet:?xt=urn:btih:A83B001F7E5755C633A80539CB436BF835634FB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917225   (589435) от 11.07.2015
+###  Публикация: 917297   (589588) от 11.07.2015
 
-Крепись! / Get Hard (2015) BDRip [H.264/1080p] [Unrated Cut] [VO]
+VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive House, Dutch House, Bounce>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Миллионер Джеймс Кинг пойман за мошенничество, и теперь ему грозит тюрьма. Судья даёт ему 30 дней, чтобы привести все свои дела в порядок. Доведённый до отчаяния Джеймс решает обратиться к Дарнелу, поскольку считает его бывалым зеком, и просит его помочь подготовиться к тюремной жизни. Однако, на самом деле, Дарнел трудолюбивый владелец мелкого бизнеса, никогда не (   Читать дальше...   )Производство: США / Gary Sanchez Productions, Second Line Stages, Warner Bros.Жанр: комедия, криминалРежиссер: Этан КоэнАктеры: Уилл Феррелл, Кевин Харт, Крэйг Т. Нельсон, Элисон Бри, Эдвина Финдли, Нил Ариана, Эрик Чаварриа, Пол Бен-Виктор, Джон Майер, Джон Эйз, Нито Лариоза, Дэн Баккедал, Грег Германн, Рон ФунчезПеревод: одноголосый закадровыйОзвучка / Автор перевода: М.Яроцкий (присутствует ненормативная лексика)Язык субтитров: английскийПродолжительность: 01:46:43
+01. Napt - Hold Tight
+02. Duke Dumont - Nicht Vor Mitternacht (Original Mix)
+03. Frankho - Brain Drop (Original Mix)
+04. Fabio D'elia & Kawkastyle - Respawn (Original Mix)(   Читать дальше...   )Жанр: House, Progressive House, Dutch House, BounceПродолжительность: 10:54:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01C5F5A1DBC89B78800304F4FCDEACEEF4E9ECE3
+magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551792   (589434) от 17.05.2022
+###  Публикация: 916701   (589587) от 11.07.2015
 
-Wellhaven - Barbed Wire (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
+Dj Feel - TOP 30 OF June (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Line [00:04:31]
-02. The Livyatan (feat. Kristoffer Kjærvik Fredriksen) [00:05:27]
-03. Oblivion [00:05:01]
-04. Barbed Wire [00:04:14](   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:43:59
+01. LTN feat. Christina Novelli - Hold On To Your Heart (LTNs Sunrise Mix)
+02. A-Mase - Awakening (Original Mix)
+03. John Macraven ft. Robin Vane - Into the light (JOOP and Sherano Remix)
+04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFB8D7C6AFAA9C013E6B5731BAA0C3DD42733A9C
+magnet:?xt=urn:btih:FA42ACABC49DF31F0247024E422014243C6E3DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,28 +360,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551757   (589433) от 17.05.2022
+###  Публикация: 917315   (589586) от 11.07.2015
 
-Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Обои - Романтика городских мостов [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город. Романтика городских мостовФормат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A09A9B80F798AB0F93340A40AFF1C2FAEE4F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917357   (589585) от 11.07.2015
+
+John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. G.E.M. [3:51]
-02. Icon Blues [3:13]
-03. PTL [3:48]
-04. Kings and Queens [4:25](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:26
+01.  Dimples (2:14)
+02.  Mambo chillun (2:47)
+03.  I'm so excited (2:52)
+04.  Time is marchin' (3:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E260773C64DC0C5011DEA871A68800E257C1AAAE
+magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,166 +415,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551812   (589432) от 17.05.2022
+###  Публикация: 917284   (589584) от 11.07.2015
 
-Сергей Сергеев-Ценский | Преображение человека (1961) [MP3, Леонид Губанов и др.]
+Канадская команда становится победителем гонки самых экономичных автомобилей
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_589584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Инсценированные страницы 3 части эпопеи «Преображение России» в исполнении артистов МХАТа. История инженера Матийцева, заведовавшего шахтой, принадлежавшей бельгийской компании. Он был уволен, а позже арестован за свои обвинительные слова в адрес хозяев о каторжном труде и кошмарных условиях жизни шахтеров. Это стало началом его революционного пути.Жанр: Драма, РадиоспектакльПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B425A474E7334695050567B0C4AEE71D0310295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551755   (589431) от 17.05.2022
-
-Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning [3:29]
-02. I Love the Lord [7:47]
-03. Numbers [7:17]
-04. Free Spirit [3:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1701A9F175B8104CE1E57367093221E3889790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551747   (589430) от 17.05.2022
-
-Mendel - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Parabellum (00:00:35)
-02 - Hell Redux (00:04:17)
-03 - Hades Dethroned (00:04:38)
-04 - The Aeonian Shift (00:05:10)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738460226923994F4855F44246BCCFC5648BA3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551744   (589429) от 17.05.2022
-
-Sidewinder - Vines (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sirens (00:03:11)
-02 - Mississippi Fire (00:03:56)
-03 - Badlands (00:03:09)
-04 - 99mph (00:04:24)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFE0A467E0CBBD320B809B5DF1B39060E792E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551788   (589428) от 17.05.2022
-
-Windwaker - Love Language (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore. Metalcore. Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful [00:03:35]
-02. Lucy [00:03:36]
-03. Nighthawk [00:03:54]
-04. Dopamine Freestyle [00:02:08](   Читать дальше...   )Жанр: Post-Hardcore. Metalcore. ElectronicПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F810B48E99387F0F44AFFC09F41BA8007C739E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551766   (589427) от 17.05.2022
-
-Ethan Iverson - Every Note Is True (2022) [FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop, Contemporary Jazz>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_589427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More It Changes (feat. Deming) - 1:18
-02. The Eternal Verities - 5:56
-03. She Won't Forget Me - 4:06
-04. For Ellen Raskin - 4:50(   Читать дальше...   )Жанр: Modern Creative, Post-Bop, Contemporary JazzПродолжительность: 00:43:00
+Студенты из университета Лаваля (Universite Laval), Квебек, Канада стали победителями 36-го международного соревнования SAE Supermileage, в котором принимают участие самые экономичные автомобили в мире. Вторую подряд победу на этом соревновании канадским студентам принес их автомобиль, продемонстрировавший топливную эффективность 2098 миль на галлон (0.11 литра на (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -522,28 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551630   (589426) от 17.05.2022
+###  Публикация: 917302   (589583) от 11.07.2015
 
-Anonymonkey - Human Suit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
+Обои - Розовые принцессы [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Invisible Stranger
-02. Theme From Anonymonkey
-03. Clowns
-04. Real Life Fairy Tale(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:40:49
+Цветы. Розовые принцессы.Формат: JPGРазрешение файлов: 1920х1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ED4099E9CE8D9EF4FA28C7A9C55E8234609E5AB
+magnet:?xt=urn:btih:350719A3F499DD8768E7048081EAC2B006B0BCCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,27 +467,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551750   (589425) от 17.05.2022
+###  Публикация: 917237   (589582) от 11.07.2015
 
-Игорь Акимушкин | Чем кролик на зайца не похож (1987) [PDF]
+BurnAware Professional 8.3 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589582.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B18F58DAB4EDE37AE8CB9B623051B3FC8A9817F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917223   (589581) от 11.07.2015
+
+CocCoc 43.0.2357.136 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589581.jpg" />
+</div>
+
+
+###  Подробнее
+
+CocCoc Browser  - браузер от вьетнамской компании Cốc Cốc. Основан на открытом исходном коде проекта Chromium, и визуально очень похож на Google Chrome. Браузер имеет упрощенный дизайн, что позволяет пользователю полностью сосредоточить все внимание на содержимом страницы. Большинство задач браузера выполняются в единственном окне.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198969D773976BB2A7DF36D8E0FDB254A595EC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916507   (589580) от 11.07.2015
+
+Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
+02 -  Mahk Jchi (W/ Ulali)
+03 -  Golden Feather (W/ Red Road Ensemble)
+04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917086   (589579) от 11.07.2015
+
+Т. Папендик, Б. Столповский | Пчельник на лесной поляне (1926) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге вас ждут 3 рассказа про зверей, кто такие, чем питаются и их удивительные способности.
-"Чем кролик на зайца не похож", "Жил-был ёжик", "Жила-была лисица".
-Для детей дошкольного возраста. Иллюстрации С.Куприянова.Жанр: РассказФормат: PDF
+Как организовать приусадебную пасеку, существенно повысить, медосбор, предотвратить роение и болезни пчел, правильно подготовить пчелиные семьи к зимовке, перерабатывать и хранить продукты пчеловодства рассказывает эта книга.Жанр: Пчеловодство, обучающая литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6C382A3354B59BE0B7334411FD2E2EA8B410DBE
+magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551321   (589424) от 17.05.2022
+###  Публикация: 917221   (589578) от 11.07.2015
 
-Суперкульт - Клеймо (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Experimental Rock>
+Алексей Олейников | Захвачены в бою. Трофеи русской армии в Первой мировой (2015) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Клеймо (00:01:06)
-02 - Змея (00:05:17)
-03 - Наркотики (00:03:37)
-04 - Ты не одна (00:04:41)(   Читать дальше...   )Жанр: Post Punk, Experimental RockПродолжительность: 00:38:57
+Новая книга А.В.Олейникова подробно рассказывает о трофеях русской армии, захваченных в годы Первой мировой войны: о знаменах, броневиках и орудиях, добытых русскими солдатами на полях сражений. Особое внимание уделяется военнослужащим германской, австро-венгерской и турецкой армий, оказавшимся в русском плену. Сопоставляя различные документы, автор анализирует урон, (   Читать дальше...   )Жанр: История войнФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
+magnet:?xt=urn:btih:1870A49FEC8D29FCA70EE63607C4A854DEB2819D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +600,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917021   (589423) от 11.07.2015
+###  Публикация: 917389   (589577) от 11.07.2015
 
-Photodex ProShow Producer 7.0.3527 [Ru/En]
+VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
 
->>След.
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlo - Atlantis (Radio Edit) (02:56)
+02. Above & Beyond Feat. Zoe Johnston - Peace Of Mind (Myon & Shane 54 Summer Of Love Radio Mix) (03:13)
+03. Andrew Rayel Feat. Jonny Rose - Daylight (Radio Edit) (02:44)
+04. Cosmic Gate With Sarah Lynn - Sparks After The Sunset (Rafaеl Frost Radio Edit) (03:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917168   (589576) от 11.07.2015
+
+Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Huggin' (04:10)
+02. Just Say I Love You (03:47)
+03. The Real Me (03:59)
+04. Keep Me In Love With You (04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABE4B41DDBF5B94526B479577D0099D30135DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917218   (589575) от 11.07.2015
+
+Mozilla Thunderbird 38.1.0 Final [Ru]
+
+>>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ProShow Producer – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать (   Читать дальше...   )Язык интерфейса: Русский (by Kastaneda), Английский
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:258567C3DA6AE3094707443EF40A5D3203E84C25
+magnet:?xt=urn:btih:D4AAB7BC36DB2AA0B34991EA80A27195DB1ADCD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,79 +684,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 882613   (589422) от 11.07.2015
+###  Публикация: 917228   (589574) от 11.07.2015
 
-Zedge Ringtones & Wallpapers 4.12.3 Final/ Версия 4.15b1 [Multi/Ru] - Обои и рингтоны
+VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
->>След.
->>Архив КПК и Мобильных устройств
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zedge Ringtones& Wallpapers — Более 380.000 рингтонов, около 6000 обоев. Возможность установки прямо из программы или с sd-карты. Возможность прослушивания рингтонов до скачивания, прекрасный интерфейс.  Чего же еще надо?Тип издания: FreeРелиз состоялся: 23 июня 2015 гРазработчик: ZedgeПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+01. Dr. Lotus - Bondage Love - Sexy Jazz Beat City Remix
+02. Perrymann - Free Hugs - Deep Ocean Beat Chill Remix
+03. Jamie White Dean - Lost in a Daydream - Downbeat Relax Cafe Version
+04. Alchemists and other Liar - Fantasy Lounge - Classic Buddha Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDC3EBE962F71E0B2D4C1E70AE9E0BA7C3FDEF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917142   (589421) от 11.07.2015
-
-Norton Security 22.5.0.124 [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton Security - комплексный антивирус, построенный на основе надежных решений безопасности от компании Symantec.
-Новый продукт включает в себя набор надежных технологий антивирусных программ мирового класса - Norton Antivirus, Norton Internet Security и Norton 360, и заменяет их в едином решении защиты.
-Norton Security использует 5 уровней безопасности компьютера, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD35B2301046EA17E0997F0756BC78BD1E95826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916986   (589420) от 11.07.2015
-
-Батальонъ (2015) WEB-DLRip
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна 1917-го года. Февральская революция изменила жизнь России и ход Великой войны. Государь уже отрёкся от престола. В окопах, где противостояние с немцами длится уже не один год, вовсю ведут свою пропаганду большевики. Они призывают к миру с неприятелем. Российское офицерство фактически ничего не может решить без одобрения так называемых солдатских комитетов. (   Читать дальше...   )Производство: РоссияЖанр: Драма, ВоенныйРежиссер: Дмитрий МесхиевАктеры: Мария Аронова, Мария Кожевникова, Ирина Рахманова, Марат Башаров, Янина Малинчик, Евгений Дятлов, Алёна Кучкова, Валерия Шкирандо, Николай Аузин, Владимир ЗайцевПеревод: Не требуется (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E77678D0A72B33E141DDB0682F4785C5FBDB0D
+magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

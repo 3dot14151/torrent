@@ -1,3 +1,32 @@
+###  Публикация: 1474757   (1012863) от 03.06.2021
+
+Шаблоны - Свадебная, романтическая фотокнига [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая фотокнига - Рисунки о любви - Drawings of Love
+Романтическая фотокнига - Удивительные кружева - Amazing lace
+Свадебная фотокнига - Любовь, загадочное чувство
+Свадебная фотокнига для молодоженов - Магия фиалок(   Читать дальше...   )Формат: PSDРазрешение файлов: 5906x3000, 7087 x 2480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D77A6B6CD45949C717865E04D71787438F01C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474632   (1012857) от 03.06.2021
 
 Шаблоны - Art сборник шаблонов PSD для настоящего Фантазёра [PSD]
@@ -656,37 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:458CA0B210844B15406675E82AD561EE0ECE3E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604179   (996276) от 17.01.2013
-
-Шаблоны - Шаблоны визиток для Photoshop - Stylish Business Card 32213 – GraphicRiver  / Бизнес Визитки [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовый шаблон визитной карточки Stylish Business Card
-2 "х 3,5".Раздельные Font и Back стороны . Все текстовые и графические элементы разделены на свои собственные уровни для легкой модификации.
-----------------------------------------------------------------------------------------
-Print ready business card template. This PSD files are CMYK at 300dpi.
-
-The card is 2” x 3.5” (plus extra all around to allow for bleed). The front and back artwork is separated into separate psd files. All the text and graphic elements are separated onto their own layers for easy modification.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8875AD0FDB31E6E21AACD188E567B035CF59FB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

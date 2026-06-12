@@ -1,3 +1,55 @@
+###  Публикация: 1210902   (778041) от 05.03.2018
+
+Проекты - VideoHive - Brushed Logo Reveal - 4654788 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brushed Logo Reveal - проект, который подходит для представления вашего логотипа / названия.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D97602E9BC1D31F976FAE4AAA2729355617E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210906   (778036) от 05.03.2018
+
+Проекты - VideoHive - Petals Logo Reveal - 19533092 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Petals Logo Reveal - очень легко редактируемый проект, замените логотип или любой текст и визуализируйте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820E4409CFBB54664CCCB6A24A61A871AB0BCE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013049   (777915) от 03.05.2016
 
 Проекты - VideoHive - Future Tech II [AEP]
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A88AE9E52DDF3368D0F8D5D1D4E041D755B4F2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015212   (775525) от 09.05.2016
-
-Проекты - VideoHive - 3D logos - 148218 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EE6FCB6A6713A43F6D3311BF24EABA97EC4FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212777   (774968) от 13.03.2018
-
-Проекты - VideoHive - Retro Car Logo Reveal - 18831575 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный проект с ретро автомобилем, на кузове которого вы можете разместить логотип своей компании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0369DFA8D7519CC3C527F9D7A017BBE544D53D2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

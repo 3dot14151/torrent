@@ -1,32 +1,3 @@
-###  Публикация: 1797913   (66667) от 19.05.2025
-
-Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canto della terra (4:03)
-02. The Prayer (4:30)
-03. Sogno (4:04)
-04. ’O mare e tu (4:37)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808888   (64833) от 27.07.2025
 
 VA - Adrenaline Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -740,6 +711,35 @@ VA - The Essentials: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AE7CB0E4616B63C16FA44CBDEB7ABB400948A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740058   (45980) от 22.08.2024
+
+Андрей Чуловский - J.S. Bach/И. С. Бах - Органная Музыка (1998) Unoficial Release [APE|Lossless|image + .cue] <Classical, Organ>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прелюдия (фантазия) и фуга соль минор BWV 542
+02. Маленький гармонический лабиринт BWV 591
+03. Хоральная обработка (Господи, отвори врата Вечности)  BWV 617
+04. Библейская песнь (Из глубокой бездны взываю к Тебе) BWV 745(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E8CCF9C28A80817155EACC79587250C78E43DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

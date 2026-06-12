@@ -1,3 +1,119 @@
+###  Публикация: 1511614   (788316) от 22.11.2021
+
+Квітка Цісик - Пісні з України (1980) Kvitka Cisyk, Kacey [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Іванку, купи ми рум'янку
+02. Пісня про рушник
+03. Стоїть гора високая
+04. Ой, видно село(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202309   (788166) от 02.02.2018
+
+Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wedding Dress – 2:48
+2. Omie Wise – 4:23
+3. Will the Circle be Unbroken? – 4:06
+4. When I Get Home – 4:55(   Читать дальше...   )Жанр: Folk Rock, JazzПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203047   (788164) от 02.02.2018
+
+Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Lake
+02. Green Field
+03. Blue Falls
+04. White Mountains(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203543   (788160) от 02.02.2018
+
+Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple Base Chakra
+02. Temple Spleen Chakra
+03. Temple Solar Plexus Chakra
+04. Temple Heart Chakra(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203275   (788122) от 02.02.2018
 
 Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
@@ -628,122 +744,6 @@ Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277318   (785361) от 20.01.2019
-
-Сергей Садов - Ближний восток (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ближний восток (6:22)
-2.На крыльях ангела (7:18)
-3.Алтай (11:49)
-4.Танец дарвиша (3:36)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204037   (785360) от 04.02.2018
-
-Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery
-02. Voices From The Past
-03. Air of Tenderness
-04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204024   (785350) от 04.02.2018
-
-The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura (3:32)
- 02. I'm Always Chasing Rainbows (3:44)
- 03. Hey There (3:46)
- 04. Moon Love (4:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD62E0AFCCFBD47B37DA17F17D74951370F868B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276824   (785332) от 20.01.2019
-
-VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Botti - Lisa (5:06)
-02. Roxy Music - Avalon (4:17)
-03. Nirvana - Come As You Are (Live) (4:00)
-04. Dire Straits - Brothers In Arms (6:52)(   Читать дальше...   )Жанр: Demonstration & testПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
 ```
 
 https://mybot314.ru/tekegram_catalog/

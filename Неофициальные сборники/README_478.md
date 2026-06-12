@@ -1,3 +1,38 @@
+###  Публикация: 572336   (378699) от 11.11.2012
+
+VA - Zabaw'ный рассадник (2012) [MP3|128-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Beat aka Dj Ритм Feat. Oops Djs - Мама шила мне штаны ( 2009 ) (02:45)
+2. DJ SLON KATYA - Я не дам ( Original radio edit ) (02:51)
+3. dj stiff - Валера настало твое время (electro mix 2012) (03:42)
+4. Tiffany Macphail Tina Moris - Анарексичка я (03:03)
+5. Афродита - Валера (классный микс) (06:35)
+6. Балаган Лимитед - ах уехал (03:01)
+7. Барбарики - Дружба (02:34)
+8. Виктория Дайнеко и Гарик Харламов - Закалебала (02:52)
+9. Виталий Лаврентьев - Клиническая Смерть(качественней чем было)(03:29)
+10. Владимир Высоцкий - Диалог у телевизора (04:25)Жанр: PopПродолжительность: 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F654C2F960E9957A940419E254C81A4BF021707C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327004   (378652) от 23.09.2019
 
 VA - не Громкие новинки недели 36 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -779,35 +814,6 @@ Mystic Diversions - Лучшие хиты (2014) [MP3|320 кб/с]<Chillout, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0741D38A85270EC290955D1980CB30FAF733C2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254012   (377162) от 12.10.2018
-
-VA - Private Dance: Jazz & Blues (2018) [MP3|320 Kbps] <Jazz, Blues, Romantic>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Big Mike Griffin - He Can't Do It
-002. Goce Stevkovski Septet - Monday
-003. Brad Kelsey - Nasty Weather
-004. Marty Elkins - Day In, Day Out(   Читать дальше...   )Жанр: Jazz, Blues, RomanticПродолжительность: 09:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3330A71F470DE8611FF5C292D65D5738472A44A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

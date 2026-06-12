@@ -1,3 +1,29 @@
+###  Публикация: 1564408   (249811) от 18.07.2022
+
+Universal USB Installer 2.0.1.4 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal USB Installer – портативная программа для создания загрузочных USB-накопителей с операционными системами Windows и Linux, а также другими загрузочными программами. Утилита поддерживает запись на USB-устройство загрузочных образов Windows 10 / 8.1 / 7 и Vista, а также операционные системы Ubuntu, Linux Mint, CentOS, Debian, Fedora, OpenSUSE, Puppy Linux (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6EA6986E63A932B08B6A4384DAFCDDACFE6B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538352   (249809) от 20.03.2022
 
 FileMenu Tools 7.8.4 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -651,32 +677,6 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CDD15B5086C6E3C07DC682F433F7664988115A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564734   (249638) от 20.07.2022
-
-Google Chrome 103.0.5060.134 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9BBF660FCC25F834581A8ACD8DAC9BCAEB4658
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1668018   (175036) от 10.10.2023
+
+VA - Осень на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANNA ASTI - Царица (3:35)
+02. Rita Ora - Don't Think Twice (2:49)
+03. Troye Sivan - Rush (2:36)
+04. Jony - Воздушный Сарафан (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E14432C16D28A8C25636C23EAB8778B99DC573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429834   (175035) от 08.12.2020
+
+VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематический сборник рок музыки "900 Days" выдержан в едином стиле неприятия и непримирения. Бунтарский дух – это когда душа горит огнём, когда испытываешь жажду быть свободным от условностей, когда есть смелое и бескомпромиссное желание быть тем, кто ты есть.001. Status Quo - The Anniversary Waltz
+002. No Love For The Middle Child - Frozen
+003. The Galileo 7 - Dandy In Aspic
+004. Tyler Bryant - Couldn’t See The Fire(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 07:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DC0A55BDAECBF7614206CDCB75DF1B3B7B095D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429849   (174940) от 08.12.2020
+
+VA - La Ballade Du Coeur (2020) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь старательно собраны самые лучшие и трогательные песни, которые напоминают нам о прекрасной и противоречивой любви. Эту музыку можно слушать бесконечно.001. Tété - Les Blédards Célestes
+002. Andréanne Warren - Thanatos
+003. Jean Ferrat - Mes Amours
+004. Whitney - Sur Un Fil(   Читать дальше...   )Жанр: ChansonПродолжительность: 08:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1D03F11C0F48EA05EDB4246FDEF5C81BEA99BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595601   (174931) от 06.12.2022
 
 VA - Christmas Dance Party 2022-2023 (2022) [MP3|320 Kbps] <House, Dance>
@@ -658,93 +745,6 @@ VA - Club Beats (2023) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2857007FEAB4ADD37D5BAC3E55824AEDAF3501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669166   (172791) от 16.10.2023
-
-Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Kawn Janni Maak
-02. Sokkar
-03. Fenee
-04. Ana Lahale(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD0E7FAA6E59BC81FE3D25F56FF4BF3BF4AF696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669206   (172789) от 16.10.2023
-
-VA - Electronic compilation part 38 (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Gamid - Staying faithful
-02. Redfeel - Nobody Cares You
-03. DJ Gamid - Maybe
-04. Redfeel - Something(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83A883164B7CF802520C3D2502D5EDE55BC530F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669699   (172632) от 17.10.2023
-
-The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buy Beg Or Steal
-02. Drive This Truck No More
-03. Maniac Lover
-04. Walk Italian(   Читать дальше...   )Жанр: RockabillyПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
 ```
 
 https://mybot314.ru/tekegram_catalog/

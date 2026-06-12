@@ -1,3 +1,90 @@
+###  Публикация: 1794215   (19791) от 30.04.2025
+
+Gary Moore - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back on the Streets (Live) [05:29]
+02. If The Devil Made Whiskey (Live) [03:21]
+03. Oh, Pretty Woman (Live) [04:36]
+04. Shapes of Things (Live; 2003 Masters of Rock) [05:02](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F555A328806D00EE6142B7C403AD8B426F6F902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794897   (19652) от 01.05.2025
+
+VA - Music News For Forum vol.080 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helene Sio - Les Ratures (03:17)
+ 002. ALEX ANDREEV - Ему на зло (03:30)
+ 003. Alexander Eder & RIAN - Herzinfarkt (02:19)
+ 004. ALLESS. - Wer Anders (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6891D19D7A35C3B55D3E8DBE383781FF900C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795311   (19510) от 03.05.2025
+
+VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Feargal Sharkey - A Good Heart(04:28)
+002 Human League - Don't You Want Me Baby(03:57)
+003 Kim Wilde - Kids In America(03:25)
+004 Simple Minds - Don't You (Forget About Me)(04:20)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795094   (19482) от 03.05.2025
 
 VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
@@ -658,93 +745,6 @@ KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A49E6AB54912649149D8A5AAA0286502A21FCE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797076   (18315) от 14.05.2025
-
-VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. East 17 - 50 Shades
-002. OneRepublic - All Fall Down
-003. Blue - All Rise
-004. OneRepublic - All The Right Moves(   Читать дальше...   )Жанр: PopПродолжительность: 12:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38EB69510646416A8314302D18D155B33FB45F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797042   (18312) от 14.05.2025
-
-VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sofia Camara - Said It All - (03:00)
- 002. Blumele - Gomma - (03:31)
- 003. Gobbi - Risorto - (02:43)
- 004. The Boyz - Vvv - (03:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796007   (18241) от 15.05.2025
-
-Юрий Сучков - Old Music Collection (2025) Remaster, 2025, driver 3 studio Юрия Сучкова [MP3|320 Kbps] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Запретная зона [00:04:00]
-02.Кирпичи [00:03:14]
-03.Арестантское танго [00:02:26]
-05.Прости меня родная 01 [00:03:23](   Читать дальше...   )Жанр: ChansonПродолжительность: 02:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409922BC69F1FB3F459870A664DAA4494B284400
 ```
 
 https://mybot314.ru/tekegram_catalog/

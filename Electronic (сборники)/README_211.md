@@ -1,3 +1,32 @@
+###  Публикация: 1696221   (119863) от 01.02.2024
+
+VA - Compilation Electronic part 50 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Galaxy
+02. Enza - Maldives
+03. Umar Keyn - Last Minute
+04. Dndm - Not Mine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 08:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95D4D083481A8A762A7DC875D9F28B3AA3736DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696827   (119421) от 04.02.2024
 
 VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
@@ -716,35 +745,6 @@ VA - Electronic compilation part 67 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007AFBC8553D80B514DFF1BCC1C284FE0BE1D4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712906   (112038) от 04.04.2024
-
-VA - Trance In Motion Vol.372 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allende - Fading Light (Original Mix)
-02. Andy Elliass & ARCZI - Life Is An Odyssey (Extended Mix)
-03. C-Systems & Aina - Take Me Home (Extended Mix)
-04. Davey Asprey - Catch (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D64A6895701DD9AF6978600DEED0F060E738DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

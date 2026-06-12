@@ -1,3 +1,29 @@
+###  Публикация: 1717271   (59217) от 19.04.2024
+
+Office Installer & Office Installer+ 1.14 by Ratiborus [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A65090DC8FDD4A8A7CA125237DBB3F950EFD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717392   (59216) от 19.04.2024
 
 R-Drive Image Technician 7.2 Build 7201 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -646,32 +672,6 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19ECC2C4D0F77FE4C2054D6C1222E0A29A7CD11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717758   (59012) от 21.04.2024
-
-Abelssoft Win11PrivacyFix 2024.3.51621 (акция Abelssoft) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abelssoft Win11PrivacyFix - позволяет включать и выключать различные настройки одним щелчком мыши в Windows 11. Инструмент Win11PrivacyFix предотвращает, например, постоянную активность микрофона или постоянную передачу записей с клавиатуры. Серверы сбора данных Microsoft заблокированы, а важные службы просто деактивированы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A7A327972FDE4CC3BEBBE615230684847879CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

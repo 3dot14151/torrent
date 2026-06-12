@@ -1,3 +1,32 @@
+###  Публикация: 1045738   (557732) от 24.08.2016
+
+Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Blowin' In The Wind [02:48]
+ 2 - The Times They Are A-Changin' [03:14]
+ 3 - Don't Think Twice, It's All Right [03:40]
+ 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305718   (556144) от 01.06.2019
 
 Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
@@ -619,6 +648,92 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369163   (527549) от 29.07.2011
+
+Taqasim & Layali - Tradition du Caire (1991) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527549.jpg" />
+</div>
+
+
+###  Подробнее
+
+[15:02] 01. Layālī & mawwāl1991Жанр: world, ethnicПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369157   (527537) от 29.07.2011
+
+VA - Ocora - Egypt. The Musicians of the Nile (2001) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527537.jpg" />
+</div>
+
+
+###  Подробнее
+
+[12:27] 01.  Aamedat el Karnak (The Pillars of Karnak)
+[10:04] 02.  Ya faraoule (O, Strawberry)
+[08:24] 03.  Zarhat el Loxor (Rose of Luxor)
+[14:54] 04.  Abou Zeпd el Hilali
+[03:34] 05.  Taksim with small arghul
+[02:06] 06.  Tayyara (medium arghul)
+[13:02] 07.  Taksim (mizmar)
+[05:12] 08.  Sibs (small high-pitched mizmar)2001Жанр: world, ethnicПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369145   (527449) от 29.07.2011
+
+De Organographia - Music of the Ancient Sumerians, Egyptians & Greeks (1996) [FLAC|Lossless] <world, ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527449.jpg" />
+</div>
+
+
+###  Подробнее
+
+GREEK MUSIC FROM EGYPT
+01. Musical Excerpts1996,Жанр: world, ethnic,Продолжительность: 00:48:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258557   (524220) от 08.07.2019
 
 Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks] <Neofolk, Experimental, Ritual Folk, Rune Singing, Shamanic>
@@ -641,131 +756,6 @@ Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266C6DAF71F001E5814CA54824B430F6B359A6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536439   (513188) от 19.08.2012
-
-Мельница - Ангелофрения (2012) [FLAC|Lossless]<Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562044   (512509) от 07.07.2022
-
-Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bakeina's Dream (00:04:45)
-02 - Golden Cage (00:04:22)
-03 - Quicksand Blues (00:05:29)
-04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539784   (504400) от 28.08.2012
-
-Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fado Vianinha (Fado Vianinha) [02:31]
-02. Promete, Jura (Fado Sergio) [03:53]
-03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
-04. Mais Uma Lua (Fado Varela) [03:38]
-05. Dona Rosa (Fado Bailarico) [02:16]
-06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
-07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
-08. Rosa Da Madragoa (Fado Seixal) [01:54]
-09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
-10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538889   (504061) от 28.08.2012
-
-Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Опасное лето (04:24)
-02. Далеко (04:13)
-03. Шелкопряд (04:14)
-04. А если бы он (04:01)
-05. Ведьма (04:54)
-06. Кувшин (04:27)
-07. Княже (05:46)
-08. Ветер (04:46)
-09. Шаман (06:15)
-10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

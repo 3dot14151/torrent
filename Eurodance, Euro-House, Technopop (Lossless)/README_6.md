@@ -1,3 +1,30 @@
+###  Публикация: 1756245   (39674) от 21.10.2024
+
+One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man Sound - It's My Life (Extended Mix) (3:59)
+02. One Man Sound - It's My Life (Radio Edit) (3:19)Жанр: Dance, EurodanceПродолжительность: 00:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B26822944CD5BF76139CB48CB66F6AE0AC74169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769221   (32850) от 27.12.2024
 
 VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>

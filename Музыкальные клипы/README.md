@@ -1,4 +1,34 @@
 https://t.me/izofen
+###  Публикация: 1875227   (1072534) от 
+
+C.C. Catch - Сборник видеоклипов (1985-2024) WEBRip, HDRip [H.264/720p-1440p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делюсь частью собственной коллекции клипов с Вами. Приятного просмотра!
+(Реставрация видео и звука)C.C. Catch - Are You Man Enough (NDR, Die Spielbude Aus Dem Mic Mac In Kaltenkirchen, 13.05.1987).mkv
+C.C. Catch - Are You Man Enough (Sábado Noche, 13.06.1987).mkv
+C.C. Catch - Are You Man Enough (ZDF, Helfen ohne Grenzen, 10.05.1987).mkv
+C.C. Catch - Are You Man Enough (ZDF-Hitparade, 24.06.1987).mkv(   Читать дальше...   )Жанр: DiscoПродолжительность: 05.57.08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202E980AF5D7C0A36BDD069DA3C75E6C1342A873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873811   (1071372) от 30.05.2026
 
 aespa - Lemonade (2026) WEBRip [H.265/2160p] [60fps]
@@ -671,32 +701,6 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E60C75A4CBF0D9DE034E4FAABF914BB5287407C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854024   (1060461) от 11.03.2026
-
-RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F1C87276C5119E1C0BAA062104FE6A0A826DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

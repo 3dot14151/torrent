@@ -1,3 +1,32 @@
+###  Публикация: 1617682   (201492) от 09.03.2023
+
+VA - The Ethnic Electro House (2023) [MP3|320 Kbps] <Ethnic House, Afro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201492.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mi.La - Sun [06:42]
+002. Rick Sanders - Absurdity [05:01]
+003. Alan De Laniere - The Adventure [04:49]
+004. Czwe - Machine Room [07:15](   Читать дальше...   )Жанр: Ethnic House, Afro HouseПродолжительность: 10:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE07B4D2B106E08571CC2C72DE44B7C44A43FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618460   (201395) от 11.03.2023
 
 VA - Fantasy Friday: Future House Party (2023) [MP3|320 Kbps] <Future-House, Electro>
@@ -716,35 +745,6 @@ VA - The Inspiring Chill (2023) [MP3|320 Kbps] <Chillout, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E84E5C8825D94C001D1922997614F2A13BA00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633158   (198471) от 13.05.2023
-
-VA - Synthwave NME Mix (2023) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vincent Vossen - Venus
-002. Ruth Mascelli - One For The Voyeurs
-003. Zaratustra - Coming Of Age
-004. Steven Flynn - Substance(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 10:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8668F528483A3D887CF483325BE949518E1CD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

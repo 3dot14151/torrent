@@ -1,3 +1,107 @@
+###  Публикация: 551385   (453324) от 24.09.2012
+
+Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubStepПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB504065C09E284A569DEB9588DC5E1893F3536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551388   (453319) от 24.09.2012
+
+Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9FD177EE015E37D8B471FF1BA7C4CD3C54056F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551375   (453317) от 24.09.2012
+
+Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF37E63A28282B455859465B1D91157CC07907D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408650   (453283) от 13.09.2020
+
+Квартирник НТВ у Маргулиса. Александр Розенбаум (12.09.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве сольного артиста Александр Розенбаум вышел на большую сцену в первой половине 80-х. Известность ему принес так называемый «одесский цикл» песен – с тех пор популярность артиста не снижается, его песни известны как его ровесникам, так и современной молодежи, а такие композиции как, например, «Вальс-бостон» и «Ау» по праву можно назвать вечными. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90E050B39E5B03068364C94886BFCF9A9A63CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551378   (453120) от 24.09.2012
 
 Booba - Caramel (2012) [H.264/720p] WEBRip
@@ -101,6 +205,41 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69685E22BD73416FC7763E257CD5FF611A63DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389547   (451421) от 20.09.2011
+
+Yes - Symphonic Live (2011) [ 1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_451421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Yes 22 ноября 2001 года в сопровождении European Festival Orchestra под управлением Wilhelm Keitel.1. Overture
+2. Close To The Edge
+3. Long Distance Runaround
+4. Don't Go
+5. In the Presence Of
+6. Gates of Delirium
+7. Steve Howe Guitar Solo: Lute Concerto In D Major, 2nd Movement
+8. Mood For A Day
+9. Starship Trooper
+10. Magnification(   Читать дальше...   )Жанр: Музыка,  progressive rockРежиссер: Aubrey PowellПродолжительность: 02:47:46
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,142 +700,6 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E5F511E9F011E837CD3D4FD2C3F392CEF24B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553019   (446087) от 27.09.2012
-
-Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552689   (445770) от 27.09.2012
-
-Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552894   (445677) от 27.09.2012
-
-Свит / The Sweet-Video Collection 1971-1980 (2CD) (2008) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445677.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом видео наиболее полная видео коллекция The Sweet -кумиров 70х (видео и звук разный по качеству (разных лет съемки) но в основном все достойно.)Жанр: Музыка, Glam RockПеревод: ОтсутствуетПродолжительность: 01:08:02+01:14:42.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC4C4FCD8354363394909911BAA79E1775CB5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943852   (444752) от 05.10.2015
-
-VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
-2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
-3. Alex Adair - Heaven (Official Video) (00:03:07)
-4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706263   (444038) от 02.10.2013
-
-Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444038.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 50 Cent - Outta Control 1080p (3:23)
-2. Aircraft & Miss Palmer - Dont Ever Let Go 1080p (3:23)
-3. Alchemist Project Feat.Angie - Don't let me down 1080p (3:10)
-4. Alex C feat. Lisa Rowe - Feed Me Diamonds 1080p (3:38)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E87DB59ECAB6DFB15A6A4359C593CAEC047E173
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1414242   (387743) от 07.10.2020
+
+Federico Mosconi - Il Tempo Della Nostra Estate (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electroacoustic, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un Istante Sospeso 05:50
+2. Di Luminosa Calma 07:50
+3. La Giostra Nel Vento 06:13
+4. Il Tempo Della Nostra Estate 07:34(   Читать дальше...   )Жанр: Ambient, Electroacoustic, MinimalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AD52C6439DEBA6795CBAA699EC2839E0CC1715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414441   (385622) от 08.10.2020
 
 VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Contemporary, Techno, Ambient>
@@ -711,35 +740,6 @@ Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denov
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA0F30690BA21120734314DFAE69F264F56B50DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418384   (349296) от 24.10.2020
-
-VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Dub>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenchord & Infinity Dots – One Summer Day (Rita & Vlada at sea) (10:00)
-02. Heavenchord – Qertg 6 (06:29)
-03. Skytechnic & Minor Noise – Detachment (Minor Noise remix) (16:56)
-04. Infinity Dots – Sizhu Doma, Slushayu Dom (07:14)(   Читать дальше...   )Жанр: Ambient, Dub Techno, DubПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B38A193030214F6870332A57F7B97E8836F797
 ```
 
 https://mybot314.ru/tekegram_catalog/

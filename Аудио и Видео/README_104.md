@@ -1,116 +1,3 @@
-###  Публикация: 1529173   (733064) от 05.02.2022
-
-Эдуард Артемьев - Инструментальные кинохиты (2021) [AAC|~300 Kbps] <Film Scores>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поход (Из кинофильма Сибириада) (4:45)
-02. Поклонники (Из кинофильма Раба любви) (4:32)
-03. Финал (Из кинофильма Свой среди чужих, чужой среди своих) (5:03)
-04. Пикник (Из кинофильма Раба любви) (3:07)(   Читать дальше...   )Жанр: Film ScoresПродолжительность: 02:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2968E28C57FC623B1C3AE0B6D68883E802C6554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789547   (732779) от 25.05.2014
-
-Крокодил Данди / Crocodile Dundee (1986) BDRip (Ipad)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская журналистка приезжает в глубинку Австралии, и охотник на крокодилов знакомит ее с местными достопримечательностями. Она же приглашает его в Нью-Йорк, и там отважный охотник попадает в неведомые ему джунгли...Жанр: Комедия, ПриключенияРежиссер: Питер ФэйменАктеры: Пол Хоган, Линда Козловски, Джон Майллон, Дэвид Галпилил, Ричи Сингер, Мэгги Блинко, Стив Рэкмен, Джерри Скилтон, Терри Гилл, Питер ТернбуллПеревод: ДублированныйПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA573230DA3DD39F7574D37A2E0069C14F468719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529526   (732737) от 06.02.2022
-
-Herve HB KING Bissereth - God's Art (2022) [AAC|~285 Kbps] <Smooth Jazz, Contemporary Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Vibrations (3:18)
-02. Hervé HB KING Bissereth, Mc Cain, Damien Bruno, Jésus-Lord Hyppolyte - Magenta (4:08)
-03. Hervé HB KING Bissereth, kelyan horth - Faith (4:03)
-04. Hervé HB KING Bissereth, Dj Drumz, Mc Cain - Source De Vie, Pt.1 (2:15)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B84B8340D4650BB922231E7ABEED20D4D9189D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529532   (732733) от 06.02.2022
-
-VA - Chillout Orange, Vol. 8: Relaxing Chillout Vibes (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Half-Light (4:16)
-02. Martin Hiska - Fatuh (5:12)
-03. Schwarz & Funk - Communication (Original Mix) (4:36)
-04. Dave de Tommaso, Davide Aru, Dacosta - Keep Coming (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17200460C9F745318ECF519C497082B918D61EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529530   (732727) от 06.02.2022
 
 Natalie Cole - Unforgettable...With Love (2022) [AAC|~341 Kbps] <Jazz, Soul>
@@ -718,6 +605,122 @@ VA - Divas of Pop Lounge - Smooth Breathtaking Vocal Selection (2018) [AAC|~313 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A864F8A28DE6B4B6ACAAE92F2F2DC1FCA6E9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530005   (730900) от 09.02.2022
+
+VA - Chillout & Lounge Classics, Volume One (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leisure Pleasure - Grape Leaves (5:54)
+02. Diario - The Love That Remains (6:01)
+03. Aqua Mundi - Chuchaqui (5:47)
+04. Crossing Colors - Bright Sun Rays (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891C8101FD33DFD588D47FAF3EB6C14CD162F8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529999   (730899) от 09.02.2022
+
+Blank & Jones, Julian & Roman Wasserfuhr - Relax - Jazzed 1 (2012) [AAC|~324 Kbps] <Jazz, Chill Out, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Life (Jazzed) (2:57)
+02. Perfect Silence (Jazzed) (5:39)
+03. Relax (Your Mind) (Jazzed) (6:24)
+04. Hideaway (Jazzed) (5:48)(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19437559F4B9DBCBAA7F8803686DA20716B87C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529763   (730898) от 09.02.2022
+
+VA - Cooked, Vol. 3 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann - Green Earth (2:15)
+02. Living Room - Waikiki Beach Dreaming (Short Dreaming) (1:42)
+03. Area Code 51 - Chasing Stars (3:14)
+04. Chillson - It s Allright (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A1ED8060E7998D02D3FF91A3346384DA37FADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530009   (730897) от 09.02.2022
+
+VA - Ibiza Sunset Disco Session, Vol. 1 (2022) [AAC|~322 Kbps] <House, Nu Disco, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy P - Last Knockers (Mr. Tea Remix) (6:42)
+02. Jayl Funk, Quincy Jointz, Georges Perin - Give Me Love (4:11)
+03. Lakeshouse - Firkanta (6 AM Sensual Dub Mix) (9:59)
+04. The Funk District - Let's Rock Some More (Original Mix) (7:07)(   Читать дальше...   )Жанр: House, Nu Disco, Deep HouseПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B44C21468D2234C4645324BDDF850BB196A64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

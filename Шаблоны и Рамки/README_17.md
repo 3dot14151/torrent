@@ -1,3 +1,29 @@
+###  Публикация: 1038068   (610038) от 26.07.2016
+
+Шаблоны - CreativeMarket - Mobile App Flyer [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610038.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 флаера с полным редактированием и обрезом для печати.Формат: PSDРазрешение файлов: 2539х3567\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44E0478B43F72FF6284121F523D77D434AEC955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038075   (610029) от 26.07.2016
 
 Шаблоны - CreativeMarket - Mobile App Flyer 02 [PSD]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:598D50BB18ABE966873D80A159638B12E53A0D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045403   (559113) от 23.08.2016
-
-Шаблоны - Freak Show - Flyer Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 851х315 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1A65A406435BC8D5E42AB267D14BF3D0186CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

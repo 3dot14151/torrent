@@ -1,32 +1,3 @@
-###  Публикация: 1024290   (713803) от 10.06.2016
-
-Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Брайана Ферри 25.07.2011 на Nuits de Fourviere Festival в лионском колизее в ходе мировых гастролей 2011 года Ferry's Olympia tour.01. I Put a Spell On You
-02. Slave to Love
-03. Don't Stop the Dance
-04. Just Like Tom Thumb's Blues(   Читать дальше...   )Производство: Eagle VisionЖанр: МузыкальныйРежиссер: Fabien RaymondАктеры: Bryan Ferry & bandПеревод: ОтсутствуетПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004820E36ECEAE11D70619E3C4DCEBACCBC4E547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 328939   (713269) от 27.04.2011
 
 Елена Ваенга - "Песни военных лет" (2009) TVRip - DVD5
@@ -747,6 +718,35 @@ W.A.S.P. - Live At The Lyceum, London (1984) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43035F9452832926703F3DEF1A19CD0F2898AF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032327   (645449) от 07.07.2016
+
+Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из двух концертов Vaya Con Dios 2005-2006 гг.AVO Session (Live 03.11.2005)
+01. Take Heed
+02. La Llorona
+03. Je L'ame Je L'ame(   Читать дальше...   )Жанр: Jazz/BluesРежиссер: Roli BaerlocherАктеры: Vaya Con DiosПеревод: ОтсутствуетПродолжительность: 01:53:45 (01:06:05 + 00:47:40)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

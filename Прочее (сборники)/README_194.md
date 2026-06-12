@@ -1,3 +1,177 @@
+###  Публикация: 1792792   (20785) от 20.04.2025
+
+VA - Music News For Forum vol.076 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20785.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Girls Like You - Dance All Night (02:32)
+ 002. 4eholl & SHALUTA - Просто люби (02:50)
+ 003. AASTRO - У меня (01:57)
+ 004. AIDA - Vetrom (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC52CF1A485B4225ADEACE335548792650BFE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792870   (20736) от 21.04.2025
+
+VA - National Pop Dance Music Vol.104 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Munyon - Song For Cher (04:25)
+ 002. Alec Benjamin - I Sent My Therapist To Therapy (03:01)
+ 003. Massimo Di Cataldo - Scusa Se Ti Chiamo Amore (04:16)
+ 004. Calvin Harris - Giant (03:49)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0F70FD487E5E9E1347DFB0A9836085DC5A6FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792867   (20713) от 21.04.2025
+
+VA - National Pop Dance Music Vol.105 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20713.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. M?ss Keta - Divorziata (02:13)
+ 002. Alec Benjamin - King Size Bed (02:44)
+ 003. Massimo Di Cataldo - Solo Se Ci Sei Tu (04:12)
+ 004. Love Regenerator - Hypnagogic (03:14)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221716563412DAFA4941B54E3436AB50B20916F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794137   (20071) от 27.04.2025
+
+VA - Music News For Forum vol.078 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dasha Ross - Мальчик, отдыхай (02:37)
+ 002. 10AGE & НАРОДНЫЙ СТИЛЬ - Воин (Рыцарь) (02:46)
+ 003. ADA - Кошки-мышки (02:06)
+ 004. ADA - Не нужен (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC35CE3FB138484D32447F43FDAD5F857194D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794248   (19964) от 28.04.2025
+
+VA - Music News For Forum vol.079 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19964.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Isabel LaRosa - See You Again (03:26)
+ 002. Саша Носач - Миражи (02:34)
+ 003. Родион Газманов feat. Алена Мальцева - Перекрестки (03:45)
+ 004. 5 мостов - Реквием (04:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A76FB1F1B7C9808CC32514DE594EEB5376D57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794382   (19876) от 29.04.2025
+
+VA - Assorted Remixes Compilation Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa V Modern Talking - Brother Houdini
+02. Deep Waves - Fade in Waves
+03. Spatial Vox - Lost in Shadow
+04. Stive Morgan - To Stars(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E169264921F93A10FE28FB5C0F0C48EF2B675C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794897   (19652) от 01.05.2025
 
 VA - Music News For Forum vol.080 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - SHAZAM TOP HITS 2025 [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C43D7AE28B8CCE9C398ADAB9FBE03981D16B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799015   (16863) от 26.05.2025
-
-VA - Compilation Part 164 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, Instrumental, Piano>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - Autumn Rain
-02 - Giovanni Marradi - Summer
-03 - Giovanni Marradi - La Vie En Rose
-04 - Nikos Ignatiadis - I Love You(   Читать дальше...   )Жанр: Easy listening, Instrumental, PianoПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BE4ED68F4FD3ADBC9FC36C1092F7D2DEE1919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799116   (16861) от 26.05.2025
-
-VA - Assorted Compilation Part 9 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - Out of Rain
-02 - The Sound of Love - White Sea
-03 - Sergey Grischuk - Land of a Dream
-04 - The Sound of Love - Magical Fly(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B50C4DAF064B28526F4D56CFEA7F9109F41DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799110   (16815) от 26.05.2025
-
-VA - Compilation Part 165 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, Instrumental, Piano>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abel Korzeniowski - Charms
-02 - Giovanni Marradi - A Chilly Wind From the North
-03 - Giovanni Marradi - Angelitos Negros
-04 - Edgar Tuniyants - We Are Not Alone(   Читать дальше...   )Жанр: Easy listening, Instrumental, PianoПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085AD9375244E4BE98D66AE66BDF71F7612CC153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799018   (16812) от 26.05.2025
-
-VA - Assorted Compilation Part 8 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zero Project - Shades of Purple
-02 - Sergey Grischuk - Wonderland
-03 - The Sound of Love - Flowers for Your Smile
-04 - George Kopaliani - World of Flowers(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 02:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236D5CFB10C302B10DDDDC8092D3B3CD75FD09BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799380   (16706) от 27.05.2025
-
-VA - Music News For Forum vol.093 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16706.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. TIANA - Я твоя первая такая (DVNIAR Remix) (01:50)
- 002. ALEX ANDREEV & ILONA - Оторва (02:18)
- 003. Alex Mica - Zayra (02:51)
- 004. Alex Rasov - Lambo (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72757640F0EB53292FD9C66E2EAFD881A4A03713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800000   (16063) от 31.05.2025
-
-VA - Music News For Forum vol.095 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karna.val - Кофеин (Slowed) (02:25)
- 002. 4К - 17 (03:02)
- 003. 5mewmet - Дисклеймер (01:22)
- 004. 5mewmet - Чипсики доритос (02:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD9E2C37408D481187F54341ADD5C8E0D965E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

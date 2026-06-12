@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875523   (1072614) от 
+
+Apollo Brown - Elevator Music (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Beats>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diary (3:27)
+02. Lucky Seven (3:12)
+03. Shallow Breaths (3:12)
+04. Actuality (3:38)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, BeatsПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73989307593EEF4A91B07D46F7D97F559F114C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874507   (1071991) от 02.06.2026
 
 VA - Chillhop Essentials Summer (2026) [FLAC|Lossless|Web-DL|tracks] <Chillhop, Trip Hop, Jazz Fusion>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86BFDAEA0142955B874855F904FD93743AD4440C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601880   (1046316) от 02.01.2023
-
-Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Великий Питер
-2. Мания величия
-3. Танец с саблями
-4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
 ```
 
 https://mybot314.ru/tekegram_catalog/

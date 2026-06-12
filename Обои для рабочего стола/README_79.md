@@ -1,3 +1,29 @@
+###  Публикация: 1270907   (154298) от 21.12.2018
+
+Обои - Wallpapers - Nature Winter 02 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему ЗимаФормат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B580E73E2A432A847C6075055EEF4B14F547480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270896   (154293) от 21.12.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (203) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E58979D68A7F0C656F141249DCC3E6C7FC999E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347583   (151594) от 23.12.2019
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 410 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151594.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BCFB06E10CE3AB6C3CFF19DF0D38F655B1074E
 ```
 
 https://mybot314.ru/tekegram_catalog/

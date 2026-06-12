@@ -1,3 +1,102 @@
+###  Публикация: 812633   (573060) от 13.08.2014
+
+Babe - Hollands Glorie (2003) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drunken Sailor
+02. Ooh La La I'm Falling
+03. Mister Blitzer
+04. Wanna Do (What Mamma Said)
+05. Please Me Please Do
+06. (Never Listen To A) Bouzouki Player
+07. I'm A Rocking Machine
+08. Wonderboy
+09. Billy Joe
+10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D71006148022159E3693D791A0CEF33C7365AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812632   (573034) от 13.08.2014
+
+Babe - Never Listen To A Bouzouki Player (2001) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Never Listen To A) Bouzouki Player
+02. Break Away
+03. Do You Know What Love Means
+04. It's Only A Matter Of Time
+05. L.O.V.E.
+06. Only A Woman
+07. Ooh La La I'm Falling
+08. Please Me, Please Do
+09. Rain In Spain
+10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465C69FC5E42ECB83971A7ED6D145659036177F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303549   (572887) от 21.05.2019
+
+VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabel - Don't Call Me Up
+02. Shawn Mendes - If I Can't Have You
+03. Mark Ronson - Nothing Breaks Like a Heart
+04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151502   (572797) от 19.07.2017
 
 Модель поведения - Ночные ошибки (2017) [MP3|320 Kbps] <Synthpop, Indie Pop>
@@ -676,99 +775,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043627   (570633) от 17.08.2016
-
-Wham! - The Final (1986) K2HD Mastering, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham Rap! (Enjoy What You Do?) (6:42)
-02. Young Guns (Go For It!) (5:12)
-03. Bad Boys (3:20)
-04. Club Tropicana (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BC2B87163A75B03C7508586EB50161D71A1C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151373   (570510) от 20.07.2017
-
-Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover To Lover (For Sale) (AV Version) (08:13)
-02. Take My Heart (Vocal Version) (05:13)
-03. Recollection (Vocal Version) (07:03)
-04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361781   (570405) от 13.07.2011
-
-Czerwone gitary / Червоны Гитары - 16 альбомов (1966-2007) [MP3|320 kbps]<поп, бит, поп-рок>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Es brennen die Berge und Walder
-02. Weisses Boot
-03. Madchen, deine Augen
-04. Der Flotenspieler
-05. Gehen
-06. Laut Statistik
-07. Ich stech' hier und warte
-08. Launisches Madchen
-09. Kusse bei Nacht
-10. Waschsein im Dunkel(   Читать дальше...)Жанр: поп, бит, поп-рокПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3008E0025A1D73CC2B2E86FC1E41EC7A5E43C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

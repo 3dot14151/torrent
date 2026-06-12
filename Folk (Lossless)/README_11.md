@@ -1,3 +1,119 @@
+###  Публикация: 1513159   (227324) от 27.11.2021
+
+Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Here We Come A-Caroling
+2. It Came Upon A Midnight Clear
+3. O Little Town Of Bethlehem
+4. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE9C83C88CD9D98F94857189E545956CE93C5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267558   (226423) от 11.12.2018
+
+Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartaches By The Number (3:06)
+02. I'll Be There (If You Ever Want Me) (2:11)
+03. Faded Love (5:24)
+04. It Always Will Be (3:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8968F1947959AF561CA334FAF49CBB7B5EE984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651158   (223211) от 05.08.2023
+
+Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Dark Cabaret, Nihilist, Suicide Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Ill [00:03:23]
+02. Ask [00:03:25]
+03. There Is A Light That Never Goes Out [00:04:04]
+04. How Soon Is Now? [00:04:56](   Читать дальше...   )Жанр: Neofolk, Dark Cabaret, Nihilist, Suicide PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425643   (220574) от 21.11.2020
+
+Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else’s Dream (3:38)
+ 02. Let’s Go to Vegas (3:10)
+ 03. It Matters to Me (3:17)
+ 04. Bed of Roses (3:04)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D0F606A43E7539030EAF62CF8AA1AA61B0CBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652021   (219500) от 09.08.2023
 
 Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
@@ -629,122 +745,6 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5BD8E37C69A688C6CD360E2744D7D909875CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595409   (169849) от 10.12.2022
-
-Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Etherial, Pagan, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. древо [00:04:20]
-02. дом (remastered) [00:06:04]
-03. зима [00:02:23]
-04. лютень (remastered) [00:04:33](   Читать дальше...   )Жанр: Neofolk, Etherial, Pagan, AmbientПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52197C819A9B6425EF2A13017AA5989A162B96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595849   (169837) от 10.12.2022
-
-Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthpop, Power Electronics>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristal [00:03:55]
-02. Accords perdus [00:05:30]
-03. Sirene automatique [00:06:08]
-04. En espagne [00:04:02](   Читать дальше...   )Жанр: Neofolk, Synthpop, Power ElectronicsПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595975   (169782) от 10.12.2022
-
-African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Neo Folk,  Power Electronics>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundjata [00:05:55]
-02. Shaka kaSenzangakhona [00:05:35]
-03. Kaocen Ag Geda [00:05:13]
-04. Ekang Nna [00:05:57](   Читать дальше...   )Жанр: Industrial Neo Folk,  Power ElectronicsПродолжительность: 4 CD, 02:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4CA2ECD650F830684F2B0080AB4356741E9DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431059   (168819) от 12.12.2020
-
-Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Kiss (3:15)
- 02. You Give Me Love (3:35)
- 03. Let Me Let Go (4:25)
- 04. Love Ain't Like That (3:50)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1378823   (842976) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night [03:13]
+02. All You Ever Wanted [03:55]
+03. Sleeper [03:04]
+04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379063   (842972) от 27.04.2020
+
+Владимир Пресняков - Первый снег (Моральный Кодекс Cover) (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первый снег (Моральный Кодекс Cover)Жанр: PopПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDF7D8AE801CE0A0F89F7241E467A8C8E8F5AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379060   (842911) от 27.04.2020
+
+Демо - Rarities (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я не знаю (Version 2)
+2. На краю света (Arrival project Remix)
+3. Всё просто (VideoClip Mix)
+4. Я не знаю (Arrival project Remix 1)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7161C5F91CBDDBE0552C03C2D4E97C2159068150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378820   (842910) от 27.04.2020
+
+a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (Video Version) (3:44)
+02. Train Of Thought (Early Mix) (4:12)
+03. Hunting High And Low (Early Mix) (3:43)
+04. The Blue Sky (Alternate Long Mix) (3:41)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379057   (842806) от 27.04.2020
+
+Дима Билан - Перезагрузка (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Океан
+2. Там за рекою лес
+3. Весна
+4. Химия(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7845F1F798B1A79CD3BE76760FA51E529C5A939C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500148   (842707) от 05.10.2021
 
 VA - TechnoBase.FM – Best Of (2021) [MP3|320 Kbps] <Electronic, Dance, Techo>
@@ -606,151 +748,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004272   (839754) от 05.04.2016
-
-Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again    03:39
-02. Every Time I See You    03:06
-03. Make Believe    03:56
-04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995107   (839619) от 05.04.2016
-
-VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-Spoon – Sex On The Beach (3:44)
-02. Robin Cook & Bluedream – Comanchero (3:33)
-03. Los Umbrellos – No Tengo Dinero (3:37)
-04. Touché – I Can't Get No Sleep (3:56)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EB24B97CF1C33077EC3E513044CE91C9B0ADF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879073   (838832) от 17.03.2015
-
-Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1978 - Friday Night (Arabesque)
-1979 - Peppermint Jack (Arabesque II / City Cats)
-1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113554   (838627) от 11.03.2017
-
-Yvonne Catterfeld - Guten Morgen Freiheit (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guten Morgen Freiheit (3:24)
-02. Irgendwas (feat. Bengio) (3:34)
-03. Was bleibt (2:43)
-04. Besser werden (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2BB00FD8924798A40CC9159EB2DCCDF04C1D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113533   (838549) от 11.03.2017
-
-VA - JP Music Project Prasentiert Die Besten Discofox Hits (2017) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jp Music Project - Vielleicht (Dance Remix 2017) 03:25
-02. Jenny Fankhauser - Die Zeit Steht Still 03:14
-03. Nic - Ich Geb Nicht Auf 03:39
-04. Peter Reichinger - Engel Der Nacht (Rmx 2K16) 03:16(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBE436131DFE0DF185B92C5D05C8C28C8CD4ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

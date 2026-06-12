@@ -1,3 +1,29 @@
+###  Публикация: 1570370   (240808) от 17.08.2022
+
+Шаблоны - Creative Market - Leggings and Tank-Top Mock-Up Set - 6790394 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект-макет леггинсов и маек.Формат: PSDРазрешение файлов: 3975x5962-6720x4480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2650822C239C5282A6B6C8415ABE0EE85424014D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832954   (230432) от 31.10.2025
 
 Шаблоны - Mockup Cloud - Premium MacBook Mockup 1 [PSD]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7363E4FD5DA0D6FBDD3D130AFE84CA465029EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596016   (196400) от 30.06.2023
-
-Шаблоны - Фотокниги, планшеты серии GBA от EllaDesign [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотокниги на школьную тему для Вашего творчества.Формат: PSDРазрешение файлов: 4724х3602, 6850 x 3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3BB480C220434A2397A86E561F81E6C01E8C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

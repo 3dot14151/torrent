@@ -1,3 +1,32 @@
+###  Публикация: 1417572   (358064) от 20.10.2020
+
+Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz & Coffee Part 4 (ft DJ Million Faces) (3:01)
+02. It's All Good (ft DJ Million Faces) (3:23)
+03. Raw.Lofi (ft DJ Million Faces) (2:55)
+04. Real Talk (ft Predominance & DJ Million Faces) (3:28)(   Читать дальше...   )Производство: Revolutionary RhythmЖанр: Hip-Hop, Jazz Hop, Underground Hip-HopПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256511   (351892) от 23.10.2018
 
 6ix9ine - Day69: Graduation Day (2018) Mixtape [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
@@ -716,35 +745,6 @@ VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269717   (219860) от 15.12.2018
-
-Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taboo | Ta13oo (3:17)
-02. Black Balloons | 13lack 13alloonz (feat. GoldLink | GoldL1nk & Twelve'len | Twelve'len) (3:30)
-03. Cash Maniac | Cazh Man1ac (feat. Nyyjerya | Nyyjerya) (3:18)
-04. Sumo | Zumo (3:45)(   Читать дальше...   )Производство: Loma Vista – LVR00243Жанр: Hip-Hop, TrapПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
 ```
 
 https://mybot314.ru/tekegram_catalog/

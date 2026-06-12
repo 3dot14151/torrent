@@ -1,119 +1,3 @@
-###  Публикация: 1496273   (831086) от 13.10.2021
-
-VA - Blueberry Café, Vol. 2 (2016) [AAC|~329 Kbps] <Downtempo, House, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jett Ricks, Adefunke Fayehoust - Lose You (Lemongras's Deep House Remix) (5:25)
-02. Marie Therese - Below the Horizon (6:16)
-03. Deepanima - Shine (Radio Edit) (4:31)
-04. Ingo Herrmann - Underground (Make Time) (4:18)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CC6487CCE9FE0C1536F233D88DB36CB038F448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495981   (831085) от 13.10.2021
-
-VA - Chill out Magnifique, Vol. 2 (2019) [AAC|~339 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glam Sam & His Combo - Charmy (Original Mix) (3:10)
-02. Peter Pearson - Seeing in the Dawn (Original Mix) (5:27)
-03. L' Art Mystique - Romancing the East (Original Mix) (5:42)
-04. Beach Hoppers - I'm Right Here (Original Mix) (6:25)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61DF75135B10484DA3E3C782F31BD5A451B52F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496295   (831084) от 13.10.2021
-
-VA - Blueberry Café, Vol. 5 (2019) [AAC|~322 Kbps] <Downtempo, House, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Trend - So Hurt Inside (Original Mix) (4:18)
-02. SENES - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix) (4:30)
-03. Alex & Chris, Shatti - With You (Collioure and Alex & Chris Re-edit) (8:19)
-04. Soul Trend - To Fall in Love Is so Easy (Original Mix) (3:53)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D2596D43A41C6DB904ADD52224FBDEAE01848B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496044   (831083) от 13.10.2021
-
-VA - Chill out Magnifique, Vol. 4 (2020) [AAC|~322 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genna Bell - Life Is Sweet (Original Mix) (4:21)
-02. Steen Thottrup - I Hope Yesterday Never Comes (Original Mix) (6:43)
-03. Paola Livia - Losing You (Original Mix) (5:14)
-04. Roberto Sol - Duality (Original Mix) (4:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CBF6DB3C60AFD2B525A2A2BBFF99BCC2989110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496043   (831082) от 13.10.2021
 
 VA - Chill out Magnifique, Vol. 3 (2020) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
@@ -742,6 +626,122 @@ Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497187   (830931) от 13.10.2021
+
+VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Don't Want Your Love (3:06)
+02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
+03. Five Seasons - Caminho De Amor (5:16)
+04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497138   (830930) от 13.10.2021
+
+VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twins In Mind - Intro (1:24)
+02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
+04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498524   (830929) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
+02. Slow World - Caravan (Original Mix) (4:58)
+03. Marc Hartman - Into the Stone (Original Mix) (4:16)
+04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496947   (830928) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Mars - Walking on the Street (Original Mix) (3:31)
+02. Florent Campana - Pentimento (Original Mix) (3:00)
+03. CaPa - To Be Thoughtful (Original Mix) (4:39)
+04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

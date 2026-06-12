@@ -1,3 +1,90 @@
+###  Публикация: 1677667   (150552) от 18.11.2023
+
+VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Brothers On The 4th Floor feat. Des'Ray And D-Rock - Come Take My Hand
+02.  Rytmica - Up To The Sky
+03.  Interface - There Are No More Limits
+04.  Erica C. - Voice Of Fortune(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677579   (150551) от 18.11.2023
+
+VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bass Bumpers - Keep On Pushing
+02.  Uc Colours feat. Cool Reg - U Got The Rhythm
+03.  Holetzky - Lato
+04.  Plaza - Wild Is The Night(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1496DE8F155ABFC8F147C92926EB4F67014D5934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677594   (150549) от 18.11.2023
+
+VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Egma - Tell It To My Heart
+02.  Chak - Summer Party
+03.  Fun Factory - I Wanna B With U
+04.  Paradisio - Un Clima Ideal(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4169A66D92628507588FA9101FD99099A6346D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271413   (150289) от 23.12.2018
 
 Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -655,93 +742,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348219   (145231) от 27.12.2019
-
-Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Kommissar (Rap' That) (3:51)
-02. Maschine Brennt (3:40)
-03. Auf Der Flucht (4:15)
-04. Wiener Blut (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4679CFC107F8956F5B7F3D7F103DF310E77A1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348215   (145070) от 27.12.2019
-
-Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo (2:42)
-02. Take A Chance On Me (4:03)
-03. Knowing Me, Knowing You (3:58)
-04. Super Trouper (4:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F74523151B308043523F2FE5BB45D8C6E86945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348252   (144863) от 27.12.2019
-
-VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - Good as Hell (BNDR Remix)
-02. Panic! At the Disco - High Hopes (Don Diablo Remix)
-03. Dua Lipa - IDGAF (Young Franco Remix)
-04. Portugal. The Man - Feel It Still (Coldabank Remix)(   Читать дальше...   )Жанр: Pop, Rock, EDMПродолжительность: 06:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
 ```
 
 https://mybot314.ru/tekegram_catalog/

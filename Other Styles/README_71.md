@@ -1,3 +1,119 @@
+###  Публикация: 1289030   (686641) от 16.03.2019
+
+The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Principles of Salt (03:10)
+2. Frozen Through (02:35)
+3. She's Alright (03:12)
+4. Crooked Pines (04:29)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403895   (686579) от 22.08.2020
+
+VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’ll Be The Day (Unedited Film Version) [01:50]
+02. Mockin’ Bird Hill (Film Version) [01:30]
+03. Rock Around With Ollie Vee (Unedited Film Version) [02:14]
+04. Tennessee Waltz [01:53](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289563   (686476) от 16.03.2019
+
+VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Hand In Hand
+2.	Medley: Golden Slumbers, Carry That Weight, You Never Give Me Your Money, The End
+3.	Orinoco Flow
+4.	The First Time(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288699   (686470) от 16.03.2019
+
+VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Rock Me Amadeus / The Classic Touch
+02.	Kyrie
+03.	Brothers In Arms
+04.	St. Elmo´s Fire(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288923   (686469) от 16.03.2019
 
 VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -648,122 +764,6 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D0963D2485CF651B7591FBA8F347692AE85917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029321   (682343) от 26.06.2016
-
-Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opar (by Zoe Mthiyane) (03:29)
-02. Diamonds (04:51)
-03. Togetherness (01:45)
-04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028929   (682204) от 26.06.2016
-
-Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cry ! Cry ! Cry ! (2:26)
- 02.  Hey Porter (2:12)
- 03.  Blue Train (2:01)
- 04.  Hey Good Lookin' (1:41)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029120   (682194) от 26.06.2016
-
-Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Blue
-02. I Am Sailing
-03. Memories
-04. Words(   Читать дальше...   )Жанр: Classical, Romantic, InstrumentalПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289569   (681977) от 18.03.2019
-
-James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La vie en rose
-02. Spanish Eyes
-03. Lili Marleen
-04. Überall blühen Rosen (L'important C'est La Rose)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
 ```
 
 https://mybot314.ru/tekegram_catalog/

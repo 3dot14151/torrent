@@ -1,32 +1,3 @@
-###  Публикация: 942736   (449288) от 03.10.2015
-
-Handel - Water Music, Music for the Royal Fireworks (Trevor Pinnock & The English Concert) (1997) [FLAC|image +.cue]<Classical, Orchestral, Baroque Period, Symphonic, Ouverture, Adagio, Air>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Music - Suite in F major, HWV 348
-01. Ouverture (Largo - Allegro) (03:19)
-02. Adagio e staccato (02:14)
-03. (Allegro) - Andante - (Allegro da capo) (07:49)(   Читать дальше...   )Жанр: Classical, Orchestral, Baroque Period, Symphonic, Ouverture, Adagio, AirПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999F37D5CA396176398EFF9A7D672EAC1CE7AD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247943   (448314) от 17.09.2018
 
 Charles Gounod - Faust (Plácido Domingo,Mirella Freni,Nicolai Ghiaurov,Georges Prêtr) (1986)(3CD) [FLAC|Lossless|image + .cue] <Classical,Opera>
@@ -752,6 +723,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1B18FAEAEF6507B5A9F8D702DD4F49F9A7425D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324136   (427332) от 08.09.2019
+
+Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427332.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ensemble for Piano and Violin No. 4 in H Major, Op. 5: IV. Moderato
+2. Ensemble for Piano and Violin No. 5 in D Minor, Op. 6: IV. Moderato
+3. Ensemble for Piano and Violin No. 6 in F Minor, Op. 7: IV. Andande con molto
+4. Ensemble for Piano and Violin No. 7 in D Minor, Op. 8: IV. Andante(   Читать дальше...   )Жанр: Modern classical, ensemble, pianoПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ADB8484E92DCFA641F38A84097C806001EB168
 ```
 
 https://mybot314.ru/tekegram_catalog/

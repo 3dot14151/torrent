@@ -1,119 +1,3 @@
-###  Публикация: 1510708   (790396) от 18.11.2021
-
-VA - Eclectic Ethno 2 by Nikko Sunset (2020) [AAC|~326 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nasser Shibani - Never (4:49)
-02. Clive Vaz - Desert Moon (8:06)
-03. Christos Papadopoulos, Dim Angelo, Alex Mihalakis - Sunset In Aegean (3:51)
-04. Dj Sergee - Garden of Heaven (6:13)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C94668CE03C7B7FE6F4B19EABD279A2FB6B1D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510709   (790393) от 18.11.2021
-
-VA - Legends of Modern Jazz (2021) [AAC|~300 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Coltrane - Syeeda's Song Flute (7:06)
-02. Charles Mingus - My Jelly Roll Soul (6:48)
-03. Art Blakey & Jazz Messengers, Thelonious Monk - Purple Shades (7:40)
-04. The Modern Jazz Quartet - It Don't Mean a Thing (If It Ain't Got That Swing)Жанр: JazzПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10249E91AF56ADE02FC294D506D0B4540C833B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510662   (790390) от 18.11.2021
-
-VA - Jazzy Summer Nights (2021) [AAC|~339 Kbps] <Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beegie Adair - Orange Colored Sky (3:25)
-02. Leif Shires - Unforgettable (4:36)
-03. Denis Solee, The Beegie Adair Trio - That Old Black Magic (4:28)
-04. Stephen Kummer - The Summer Wind (4:08)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 03:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C587D6D7277AB84A202546A31C5C24798462D7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510811   (790388) от 18.11.2021
-
-VA - I'll Be Home for Christmas - Christmas Jazz (2021) [AAC|~323 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Rogers - I'll Be Home for Christmas (3:04)
-02. Kylie Minogue - Santa Baby (3:23)
-03. Natalie Cole - Winter Wonderland (2:49)
-04. Joanie Sommers - Baby, It's Cold Outside (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E603139BDA7BCE42EEAB775CE2EE55450D84F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510710   (790387) от 18.11.2021
 
 VA - Music To Drive With Open Mind (2021) [AAC|~326 Kbps] <Nu Jazz, Soul, Lounge>
@@ -713,6 +597,120 @@ Obsqure - Au Palais (2021) [AAC|~340 Kbps] <Psychill, Downtempo, Cinematic Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05E10E3DED4074BB2CA8F0E35637AA49534B395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511169   (789478) от 20.11.2021
+
+Obsqure - Oriental Banquet (2019) [AAC|~317 Kbps] <Psychill, Downtempo, Cinematic Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Oriental Banquet (4:34)
+02. Sufi Bazaar (4:29)
+03. Shores of Orion (4:10)
+04. Machinery (4:57)(   Читать дальше...   )Жанр: Psychill, Downtempo, Cinematic ElectronicПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4B8130839A79773EBCF675FE1ACC0CF4238141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511172   (789476) от 20.11.2021
+
+Obsqure - Eight (2020) [AAC|~299 Kbps] <Psychill, Downtempo, Cinematic Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight (4:30)
+02. Kissing the Sky (3:53)
+03. A Foolish Game (3:43)Жанр: Psychill, Downtempo, Cinematic ElectronicПродолжительность: 00:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB662C649DFF9937356A0E24B1C9D600E3DDBBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511158   (789474) от 20.11.2021
+
+Bev Lee Harling - Little Anchor (2021) [AAC|~291 Kbps] <Nu Jazz, Nu Soul, Vocal Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Dragonfly (3:55)
+02. Beautiful Life (4:16)
+03. Is It OK? (3:40)
+04. If I Told You (4:01)(   Читать дальше...   )Жанр: Nu Jazz, Nu Soul, Vocal JazzПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC58981B63F33DC2EFA18BAA2CACBA0FD8D7E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511174   (789473) от 20.11.2021
+
+Obsqure - Silk Roads (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Cinematic Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamulks (3:59)
+02. Dusk (5:22)
+03. Silk Roads (6:13)Жанр: Psychill, Downtempo, Cinematic ElectronicПродолжительность: 00:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600CFAE5DDE2B2F82F97EA182B1C7AB237BCF25F
 ```
 
 https://mybot314.ru/tekegram_catalog/

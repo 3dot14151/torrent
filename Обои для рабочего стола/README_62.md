@@ -1,3 +1,33 @@
+###  Публикация: 570253   (390978) от 04.11.2012
+
+[Wallpapers] Moto Desktop Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390978.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Moto Desktop Wallpapers Pack 1
+Название: Moto Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60221F043CF8AE1204CBB18951134F50167C3109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570257   (390845) от 04.11.2012
 
 Вампиры, ангелы, демоны (04.11.12) [Wallpapers]
@@ -651,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:759CB1CCC5183B1E1DFF73582EC55CBBE12EE7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950529   (370043) от 26.10.2015
-
-Обои - Computer Desktop Wallpapers Collection 1355 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые обои на ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AC5F17F6156B7E6A79372C483CFE16ECD903FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

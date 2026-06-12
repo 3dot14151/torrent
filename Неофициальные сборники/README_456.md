@@ -1,3 +1,32 @@
+###  Публикация: 1573198   (414389) от 30.08.2022
+
+VA - Highway to Yell (2022) [MP3|320 Kbps] <Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filter - Take a Picture (7:12)
+02. Alter Bridge - Open Your Eyes (6:46)
+03. Deep Purple - Highway Star (6:32)
+04. Judas Priest - Painkiller (6:04)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 04:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF768C1A66A5AB360B971F2D0EA00CE2CF6D6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167669   (414378) от 21.09.2017
 
 Chris Rea - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Blues Rock>
@@ -716,35 +745,6 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. Volume 2 - 2003-200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC5B4703CD0E192517B391F1F291ADE244DBF6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325488   (412703) от 15.09.2019
-
-VA - Autumn Groove: Dj Electro House Mastermix (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Che Cherry - Oblivious (Radio Edit)
-002. Nogroove - Deep Sound (Suspendd Mix)
-003. Oli.Versum - Tryptamoon
-004. Flatless - Mystical (Radio Edit)(   Читать дальше...   )Жанр: HouseПродолжительность: 11:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADEFCA3E806E6DC37BDAB7DC806C40365C0FD02
 ```
 
 https://mybot314.ru/tekegram_catalog/

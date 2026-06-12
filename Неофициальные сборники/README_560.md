@@ -1,3 +1,99 @@
+###  Публикация: 497813   (253745) от 17.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 44 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F33D3E7A0C34C280AA00C1281BB651754FB519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497945   (253744) от 17.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 45 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.Findon - Andante, Andante
+02. F.Papetti - Melodia
+03. ДиДюЛя - Фламенко
+04. G.Marradi - A Chilly Wind From The North
+05. Downbeat Corp - Satori
+06. DJ Грув - 9 рота
+07. J.Last - Summchor
+08. F.Goya - If I Fell
+09. B.Sarius - Kustennebel
+10. Keiko Matsui - Dawn Opener (edit)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD32EA11D532784AE514F833AA9DDF5E5F91901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495734   (253713) от 17.05.2012
+
+VA - Музыка для хорошей компании Vol .2 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253713.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Заря Андрей - Храни Тебя (3:55)
+2. Виктор Калина - Давай Угоним Самолет (3:26)
+3. Владислав Медяник - Судьба-Судьбинушка (4:31)
+4. Бумеr - Самая Нежная (3:49)
+5. Андрей Бандера - Жемчужина (4:00)
+6. Борис Шварцман - Ты Уходишь (3:53)
+7. Леонид Телешев и Андрей Калинин - Тверь-Москва (3:07)
+8. Валерий Курас - Давай Лавэ (3:56)
+9. Марсель Давлетов - Лолита (4:00)
+10. Маша Вакс - Комарово (3:21)2012Жанр: ШансонПродолжительность: 06:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4991AEEEE6133AF70BEA5E869969679359ADB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497471   (253696) от 17.05.2012
 
 VA - The Best Sixties Album In The World...Ever! Vol. I - IV (1995-1998) [MP3|320 кб/с]<Pop, Rock, Blues>
@@ -736,111 +832,6 @@ VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496920   (253143) от 15.05.2012
-
-VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dr. Alban - Look Who's Talking (Movie Theme)
- 02 F. Jay Feat. Olesya - Держи Меня За Руку
- 03 Akcent Feat. Ruxandra Bar - Feelings On Fire
- 04 140 Ударов В Минуту - На Расстоянии Дыхания (Dj Fisun Remix)
- 05 On T.V. - Just A Dream (Club Dance Mix)
- 06 Oksi - Безумная (Makhno Project Radio Edit)
- 07 Jay Adams Feat. Clara Sofie - Serenity (Original Mix)
- 08 Quest Pistols - Ты Была Светом
- 09 Klaas Feat. Carlprit - Do What You Do (Original Mix)
- 10 Арина И Размер Project - My Moscow Love(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 05:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F800607C43D1DF65506FEB36BDF004EB2DA9D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496753   (253123) от 15.05.2012
-
-VA - Клубный Танцпол Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tocadisco - That Miami Track feat. Julian Smith (Bassjacker Remix)
-02. Remo feat. Doniu & Amila - Without You (Extended Mix)
-03. Mike Indigo - Some (Extended Mix)
-04. Jessie J feat. David Guetta - Laserlight (Extended Mix)
-05. Сергей Жуков & Opium Project - Я Буду С Тобой (Haaski 'Downpour' Remix)
-06. Djane Housekat Feat. Rameez - My Party (Club Mix)
-07. DJ Save feat. Neon - Everyone (Original Mix)
-08. Dony feat. K-Brown - Only Love (Extended Mix)
-09. Eleftheria Eleftheriou - Aphrodisiac (DJ Pantelis Remix)
-10. Дискотека Авария, Джиган (Geegun) и Вика Крутая - Карнавал (Anton Orf & DJ Gladiator Remix)2012Жанр: Dance, ClubПродолжительность: 04:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720B738BF66E2D8653DD47BB616736392ED79A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496486   (252951) от 14.05.2012
-
-VA - Русский рок - Баллады (2012) [MP3|192-320 кб/с]<Heavy, Progressive, Power, Gothic Metal, Hard Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azazello - Осень
-02. De'cadenta - Босиком
-03. Materia Prima - Царство Теней
-04. R-Genium - Будь со мной
-05. R.D. - Бескрылая
-06. Аркона - Там, за туманами
-07. Воздух - На лезвии бритвы
-08. Восьмой день - Странник
-09. Margenta - Настроение
-10. Коrsика - Пустой перрон2012Жанр: Heavy, Progressive, Power, Gothic Metal, Hard RockПродолжительность: 03:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E6AA95289D3AB51084F81D71A8D6E9BB43EA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

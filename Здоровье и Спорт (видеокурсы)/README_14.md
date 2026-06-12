@@ -1,32 +1,3 @@
-###  Публикация: 1644303   (63317) от 11.03.2024
-
-Дарья Ермишина | Здоровье женщины изнутри с учетом биохимии. Тариф Базовый (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы спросите: Зачем это мне?
-И уже к 30 годам 80% женщин имеют конкретный диагноз или жалобы, которые пока сложно оформить в классический диагноз.
-Разберитесь в своих проблемах на глубинном уровне, с учетом максимального внимания к каждой биохимической реакции, а не через рекомендации-"попей КОК, вот родишь и все пройдет"
-(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 32:49:49Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549AF9FF70AE7FAE18324EAB69B830E739B87EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706490   (63083) от 13.03.2024
 
 Правое Полушарие Интроверта, Анастасия Кулькова |  Как устроен мозг. Всё о работе главного органа (2022) WEBRip [RU]
@@ -715,6 +686,34 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB6516C0A3FCF0D8044279E64B6A2068ED29184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803551   (13298) от 27.06.2025
+
+Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13298.jpg" />
+</div>
+
+
+###  Подробнее
+
+The best way to get better at chess is to build level by level, floor by floor. You have to master each level before you can move up to the next one.
+
+This course is the embodiment of that idea. Candidate Master Can Kabadayi has worked through thousands of amateur games to put this specialized training program together. A cognitive scientist by training, he has taken (   Читать дальше...   )Производство: ChessableЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: АнглийскийПродолжительность: 11:10:57Реклама: нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

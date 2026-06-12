@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1875500   (1072674) от 
+
+VA - Proud To Be Loud (2000) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Colour - Cult of Personality (4:54)
+02. Judas Priest - Breaking the Law (2:34)
+03. Marillion - Kayleigh (3:33)
+04. Queensrяche - Silent Lucidity (5:46)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238BA7D6B1FE21C93ED1F806500EC6124BBA26B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875208   (1072355) от 07.06.2026
+
+Vanity Insanity - Insanity Fair (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Night
+02. Insanity Fair
+03. Hider
+04. Wheel Of Misfortune(   Читать дальше...   )Жанр: Hard Rock, SleazeПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E487FEA4E7B425D3E6DEF0B0BAE84A48921157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874546   (1071974) от 03.06.2026
 
 Jayler - Voices Unheard (2026) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
@@ -688,64 +746,6 @@ Bachman-Turner Overdrive - BTO's Greatest - 1986 (1996), FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7F70BFF78371AA0CF928576128E5D6B5003452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860697   (1062054) от 21.03.2026
-
-Axel Rudi Pell - Ghost Town (2026) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист, композитор и продюсер Axel Rudi Pell с помощью своих верных соратников - вокалиста Johnny Gioeli, барабанщика Bobby Rondinelli, басиста Volker Krawczak и клавишника Ferdy Doernberg, преподносит своим поклонникам очередную порцию классического рока, вдохновленного творчеством таких великих мастеров, как Rainbow, Deep Purple, Jimi Hendrix и Black Sabbath. (   Читать дальше...   )01. The Regicide (intro) (1:44)
-02. Guillotine Walk (4:38)
-03. feat. Udo Dirkschneider - Breaking Seals (5:04)
-04. Ghost Town (5:02)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F0A755680AAC5991E91654CCC796962D8BA4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859816   (1061440) от 17.03.2026
-
-Blind Revolution - Far From The Sun (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far from the Sun (4:17)
- 02. The Gang (3:36)
- 03. Christine (3:39)
- 04. Message of Love (4:11)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083CE294DCF55738CD3AB4CA10145D5C8FCF6FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

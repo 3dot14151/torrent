@@ -1,3 +1,56 @@
+###  Публикация: 1133462   (692839) от 13.05.2017
+
+Проекты - VideoHive - Creative Desk - 11553474 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект АЕ для создания видео-презентации.
+К вашим услугам: 8 заполнителей для текста/графики, 6 заполнителей для фотографий, 1 заполнитель для видеоматериала.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABED0E1991F1A412CCF91D6A67DD4B44B7A68EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674457   (692510) от 30.06.2013
+
+Проекты - VideoHive - Promote Your Business / Product / Service [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный проект для продвижения вашего бизнеса, продукта или услуг, с этим удивительным видео вы можете объяснить своим клиентам те преимущества, которые они могут получить.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E4D8CF8B143C5F36B33DA9DB69DC1FA0FF48BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674646   (692500) от 30.06.2013
 
 Проекты - VideoHive - Night Club - 4507917 [AEP]
@@ -615,58 +668,6 @@ VideoHive – My Wild Journey - 6967328 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52C3CF17CC31C7A44FFDBCAA4B2D309B6EB0067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796348   (683245) от 15.06.2014
-
-VideoHive – The World Of Particles - 3689142 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full HD проект с частицами для After Effects CS5.5Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D87406BF7E9E079D8FF5F14C514FD7B5C1B35FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134798   (682395) от 18.05.2017
-
-Проекты - VideoHive - Elipses Slides - 19888624 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elipses Slides - абстрактный проект, который подойдет для различных видео-презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DC4BF48891E52B6269692FFABE6C661FD9DA86
 ```
 
 https://mybot314.ru/tekegram_catalog/

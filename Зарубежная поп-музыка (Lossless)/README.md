@@ -1,4 +1,178 @@
 https://t.me/izofen
+###  Публикация: 1875664   (1072803) от 
+
+VA - Future Nu Disco (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Favorite - Body Back (Original Mix) (2:52)
+2. The Chocolate - Runnin Time (Disco Mix) (3:09)
+3. Dave Jayden - This Is Real (Original Mix) (2:34)
+4. Rachel Wins - For You (Disco Pop Mix) (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B67D7BF5C21D4ACB3120CD22639D62EC8E8707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875308   (1072800) от 
+
+The Carpenters - The Carpenters (1971) Reissue, 1993,	Karussell [FLAC|Lossless|image + .cue] <Pop Rock, Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainy Days And Mondays (3:39)
+02. Saturday (1:19)
+03. Let Me Be The One (2:26)
+04. (A Place To) Hideaway (3:41)(   Читать дальше...   )Жанр: Pop Rock, Ballad, VocalПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0EE3ACDC0BAE915C3F4AE5480BE379D23943A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874952   (1072696) от 
+
+VA - 101 80s Hits (2008) 5 CD, Compilation [FLAC|Lossless|image + .cue] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belinda Carlisle - Heaven Is A Place On Earth (3:52)
+02. Bros - When Will I Be Famous? (3:59)
+03. Richard Marx - Endless Summer Nights (4:24)
+04. Taylor Dayne - Tell It To My Heart (3:36)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B11622C6445CE5AF27534D71ED036EFDC1BCF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875013   (1072695) от 
+
+VA - 80s: The Box Set Series (2014) 4 CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Medley & Jennifer Warnes - (I've Had) The Time of My Life (6:48)
+02. Dolly Parton & Kenny Rogers - Islands In the Stream (4:10)
+03. Martika - Toy Soldiers (4:50)
+04. Patrick Swayze - She's Like the Wind (3:54)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB841242055DCCBC6F8B1D67521823C322E281CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875344   (1072489) от 
+
+VA - Mega Hits 2026 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HUGEL - Jamaican (Bam Bam) (2:36)
+02. Olivia Dean - So Easy (To Fall In Love) (2:49)
+03. mikeeysmind - Papaoutai (Afro Soul) (4:40)
+04. The Killers - Mr. Brightside (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD31AE847153563F453F1DFA42381DFE9E030FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875056   (1072291) от 
+
+Barry Manilow - What A Time (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Before I Go
+02. What A Time
+03. Sun Shine
+04. Another Life – 2026(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A993E8F12297172599E2CBF561C76AB41563E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873061   (1071706) от 01.06.2026
 
 Sandie Shaw - The Collection (2007) Compilation [FLAC|Lossless|image + .cue] <Pop>
@@ -572,180 +746,6 @@ Carpenters - The Singles 1969-1973 (1973) Compilation, Reissue, 1995, A&M Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F154D798B4915D74C5B7241BAA9D6EA902F5F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868089   (1067700) от 02.05.2026
-
-Carpenters - A Song For You (1972) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067700.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		A Song For You 4:42
-2		Top Of The World 2:58
-3		Hurting Each Other 2:47
-4		It's Going To Take Some Time 2:54(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7D078555647FC83644364A2B8C2EBA69F694F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868613   (1067697) от 02.05.2026
-
-Cilla Black - You're My World - Her Greatest Hits (1995) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067697.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Anyone Who Had A Heart	2:49
-2		You're My World (Il Mio Mondo)	2:57
-3		You've Lost That Lovin' Feelin'	3:07
-4		Night Time Is Here	2:12(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE066926801AA83E0559437BAFE74BF05D964B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868243   (1067695) от 02.05.2026
-
-Carpenters - Carpenters (1991) Compilation, A&M Records [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		(They Long To Be) Close To You 3:38
-2		Top Of The World 2:58
-3		Superstar 3:46
-4		I Won't Last A Day Without You 3:48(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E001D81DE02A529238FA79EAB1D109FEB54DC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868328   (1067478) от 30.04.2026
-
-VA - Shout-Out Pop (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - APT. (2:49)
-02. Ed Sheeran - Shape of You (3:53)
-03. Alex Warren - Ordinary (3:06)
-04. Coldplay - Viva La Vida (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477C395CB1CE31585C2A45842D11BB8F859B8A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867734   (1067281) от 26.04.2026
-
-Anne Murray - Croonin' (1993) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Old Cape Cod	3:02
-2		The Wayward Wind	3:43
-3		Secret Love	3:56
-4		Fever	3:22(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4643807EF89A5CC464F076198E4F663A30E23A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867343   (1066945) от 25.04.2026
-
-Sydney Youngblood - Sydney Youngblood (1990) [FLAC|Lossless|image + .cue] <Electronic, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		If Only I Could	3:31
-2		Don't Keep Me Waiting 3:42
-3		Not Just A Lover But A Friend	3:54
-4		I'd Rather Go Blind 4:02(   Читать дальше...   )Жанр: Electronic, Funk, SoulПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F689F4BCFBBF9C953A2953BFF77B242C0D2E28E
 ```
 
 https://mybot314.ru/tekegram_catalog/

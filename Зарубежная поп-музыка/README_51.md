@@ -114,6 +114,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554681   (436439) от 01.10.2012
+
+Nelly Furtado - Soak It Up (2012) [MP3|256 кб/с]<R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parking Lot
+ 02. Play
+ 03. End Game
+ 04. Waiting For The Night
+ 05. Bucket List
+ 06. Enemy
+ 07. Hold Up
+ 08. Believers (Arab Spring)
+ 09. Skylight
+ 10. Cry(   Читать дальше...   )Жанр: R'n'BПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44595E9850FD7B9DABA6ABA690669A883CC892F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571105   (436188) от 20.08.2022
 
 Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
@@ -332,6 +367,32 @@ Inna - Hot (2009) [MP3|320 kbps]<Рop>
 ###  Подробнее
 
 Жанр: РopПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245073   (434248) от 13.10.2010
+
+George Michael - Greatest Hits [2CD] (2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_434248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
 
 ## Скачать торент
 ```bash
@@ -684,64 +745,6 @@ Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:458BD2D7DDF131FD71A3455621792659DC723F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571804   (429664) от 23.08.2022
-
-The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helpless (You Took My Love)
-02. He's A Lot Like You
-03. Temptation
-04. Time Is Right(   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6A08C8538B751051F3EF4D340BD71B12128EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064198   (428062) от 19.10.2016
-
-Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Goes out to You
-02. Live On
-03. Stone in My Pocket
-04. Sand and Water(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B598BDE791CA28147DC5106944A5D98D0EB9872D
 ```
 
 https://mybot314.ru/tekegram_catalog/

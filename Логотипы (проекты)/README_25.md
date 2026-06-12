@@ -1,3 +1,55 @@
+###  Публикация: 800568   (639944) от 29.06.2014
+
+VideoHive - Chrome Logo - 7011777 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хромированный логотип, текст.Проект имеет три разных стиля и прост в редактировании.Формат: AEPРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF68699ABBDCFF6408CBD36BECD36593C74F44B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033481   (637768) от 11.07.2016
+
+Проекты - VideoHive - Logo Glass Distortion - 11296078 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Glass Distortion - показ логотипа через искажение стекла.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EF459A5704C3C8DDF04285D47E676D6B029CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033478   (637657) от 11.07.2016
 
 Проекты - VideoHive - PhotoMask - Animation Logo Tool - 14483179 [AEP]
@@ -623,58 +675,6 @@ Space Logo Reveal - красивая, простая в использовани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA49A0C4D68AD0CD7765A5ACCE6FBB5EF7D4351C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146833   (612466) от 30.06.2017
-
-Проекты - VideoHive - Platinum Logo - 17930183 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Platinum Logo - проект для демонстрации вашего логотипа или названия в эпическом стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF459C231A2520B19E72729A5CD3402D8695115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037718   (611673) от 25.07.2016
-
-Проекты - VideoHive - Light Logo Reveal - 16858409 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Logo Reveal - покажите ваш логотип в "играющих" вспышках света.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC22B26454B1A9CB078EAD334691ABFE9A2486EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

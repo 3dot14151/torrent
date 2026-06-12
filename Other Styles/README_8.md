@@ -1,3 +1,119 @@
+###  Публикация: 1476023   (1011928) от 09.06.2021
+
+ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду-доеду
+02. Две сестры
+03. Танго добрых ветров
+04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476442   (1011493) от 12.06.2021
+
+Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something in the Heart 07:13
+02. The Eye of God 02:16
+03. The Universe 04:23
+04. Caruso 05:43(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08223BB4C7CADFD716A88BF98E3B5F893829D4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477076   (1011359) от 13.06.2021
+
+The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Dixie
+02. Mama Has Gone
+03. Heads Turn
+04. Handsome Boy(   Читать дальше...   )Жанр: Pub RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC7D905BD5FD17E51BCE57FF164BB9FC4E7EE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478902   (1010005) от 21.06.2021
+
+Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le prince de Myvatn - The Prince of Myvatn
+02. Le cirque d'Asbyrgi - The Cirque of Asbyrgi
+03. Quand la terre mijote - When the Earth Bubbles
+04. Les cygnes chanteurs - Whooper Swans(   Читать дальше...   )Жанр: NatureПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479927   (1009293) от 26.06.2021
 
 Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
@@ -625,122 +741,6 @@ Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486968   (1003860) от 04.08.2021
-
-Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Of Dawn (3:48)
-02. Headed For A Fall (4:09)
-03. Getaway (3:46)
-04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487213   (1003786) от 04.08.2021
-
-Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянский Фестиваль в Сан-Ремо - одно из самых ярких событий в мире популярной музыки. В 1967 году исполнилось 17 лет этому музыкальному празднику, на котором за это время прозвучало столько красивых песен и мелодий, которых с лихвой хватило бы на три подобных фестиваля. На этом альбоме Caravelli собрал подборку лучших песен, спетых в Сан-Ремо в последние годы, (   Читать дальше...   )Caravelli At San Remo (1967)
-01. Io Ti Daro Di Piu (Can I Trust You) (2:54)
-02. Le Colline Sono in Fiore (The River) (3:00)
-03. Io Che Non Vivo Senza Te (You Dont Have to Say) (2:45)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2582822A0CB718FB27D3AA3F22787C9DDF904C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349731   (1003775) от 04.01.2020
-
-Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sementes de Esperanca (4:48)
-02. Vaga Lume (4:48)
-03. Brisa de Lavanda (4:04)
-04. Domingo no Parque (4:27)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349992   (1003772) от 04.01.2020
-
-Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental, Experimental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003772.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. intro 	1:12
-2. snow in midsummer 	8:26
-3. wind flower 	05:56
-4. kumoito 	5:32(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBB1224A6EAE170C22B3FFB33359A1260CE57A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

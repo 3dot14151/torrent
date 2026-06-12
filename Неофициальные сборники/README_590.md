@@ -1,3 +1,90 @@
+###  Публикация: 1650352   (207355) от 01.08.2023
+
+VA - Trance Energy 2023: New Tracks July [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themina - Genesis (Extended Mix) (8:41)
+02. AFTERUS - Cheat Codes (Extended Mix) (6:38)
+03. Somna & Julie Thompson - Pretty Lies (AMIDY Remix) (4:12)
+04. 0Gravity - Edge Of Space (Extended Mix) (7:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4985BAB6B4B590635069935B45BFF108CB0FE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650591   (207290) от 02.08.2023
+
+VA - Music News vol.286 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alpha Annette feat. Techno Bear - Просто Звёзды  (04:24)
+ 002. 3-ий Январь - Тёмная Ночь (03:06)
+ 003. 84 feat. Rekudo & LOOKBUFFALO - Мой Район (03:13)
+ 004. 89ers feat. Michael Rivera & Nikolai - Fever (Ready To Flow) (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECD7EF2E5F6DAB889570CADFC4469D5F8B4A15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650842   (207225) от 03.08.2023
+
+VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta Rhythm Section - So Into You (6:55)
+02. Al Stewart - Time Passages (6:43)
+03. Fleetwood Mac - Everywhere - 2017 Remaster (5:49)
+04. TOTO - Rosanna (5:31)(   Читать дальше...   )Жанр: RockПродолжительность: 04:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651051   (207169) от 04.08.2023
 
 VA - Summer House 2023 [MP3|320 Kbps] <House>
@@ -658,93 +745,6 @@ Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Medi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC1858D59BF87E66AA2333433733ED0C992CD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653520   (205963) от 19.08.2023
-
-Oliver Shanti - Beating Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Huanqiutan Garden [03:59]
-02. Chenresie, Flame of Peace and Compassion [06:44]
-03. Tang Xingqing Park [05:00]
-04. Tai Chi Ch'uan Way and Meditation [07:23](   Читать дальше...   )Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 05:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9F3039CC76D95CD95D374AA6CC2C575CB94C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654373   (205857) от 20.08.2023
-
-VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205857.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kontra K feat. Lana Del Rey - Summertime (3:15)
-002. Udo Lindenberg & Apache 207 - Komet (2:47)
-003. Luca-Dante Spadafora, Niklas Dee, Octavian, Peter Plate & Ulf Leo Sommer - Mädchen auf dem Pferd (2:37)
-004. Sira, Bausa & badchieff - 9 bis 9 (2:11)(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F8F5D6CA43F91B48E1ED9F0B9AEA9640423461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616972   (205798) от 05.03.2023
-
-VA - Музыка для машины Vol.12 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie Abrams  - I Know It Wont Work (04:06)
-02. Валерий Новиков  - Два Одиночества (03:05)
-03. Nicky Youre  - Shut Me Up (02:21)
-04. Armin Van Buuren & Matoma Feat. & Teddy Swims  - Easy To Love (Matoma Vip Mix) (03:21)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E91FC0C792A81438482A6E73622BE09F22B4CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

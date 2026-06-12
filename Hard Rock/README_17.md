@@ -523,6 +523,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372518   (520177) от 08.08.2011
+
+Bruce Kulick - 4 Albums (2001-2010) [MP3|320 kbps]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_520177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fate (3:31)
+2. Ain’t Gonna Die (4:09)
+3. No Friend Of Mine (4:07)
+4. Hand Of The King (4:55)
+5. I’ll Survive (4:46)
+6. Dirty Girl (3:59)
+7. Final Mile (4:13)
+8. I’m The Animal (4:41)
+9. And I Know (3:16)
+10. Between The Lines (3:54)(   Читать дальше...   )2001-2010Жанр: Hard RockПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929311   (519587) от 19.08.2015
 
 Whitford / St. Holmes - Whitford / St. Holmes (1981) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -610,6 +645,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372362   (518766) от 09.08.2011
+
+Ace Frehley - 5 Albums, 4 Live, 3 Demos and Unreleased (1978-2009) [MP3|320 kbps]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_518766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sister (4:27)
+2. Don't Wanna Loose You (3:30)
+3. Take me to the City (3:21)
+4. Dancin with Danger (3:48)
+5. Into the Night (4:06)
+6. Heard an Angel (3:13)
+7. Back on the Streets (5:41)
+8. Stranger in a Strange Land (3:58)
+9. Dolls (2:56)
+10. Back Into My Arms (4:51)(   Читать дальше...   )1978-2009Жанр: Hard RockПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929801   (518402) от 20.08.2015
 
 AC/DC - BBC Live 1976-1979 (1998) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
@@ -690,70 +760,6 @@ Lynch Mob - Rebel (2015) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400988C3FAB1DBAD4B5DDB15F220C681A0DFBE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315039   (515880) от 17.07.2019
-
-Deep Purple - This Time Around - Live In Tokyo (2001) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love [05:47]
-02. Soldier Of Fortune [01:47]
-03. Jon Lord Solo [09:43]
-04. Lazy & Drum Solo [13:34](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 02:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36778997CAC2370F402F64683EA7A1F3F7349324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536902   (513460) от 19.08.2012
-
-Lynyrd Skynyrd - Last Of A Dyin' Breed (Special Edition) (2012) [MP3|320 кб/с]<Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Of A Dyin' Breed
-02. One Day At A Time
-03. Homegrown
-04. Ready To Fly
-05. Mississippi Blood
-06. Good Teacher
-07. Something To Live For
-08. Life's Twisted
-09. Nothing Comes Easy
-10. Honey Hole(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A284EA938697CD78DB49590D1D11C22FF6961B
 ```
 
 https://mybot314.ru/tekegram_catalog/

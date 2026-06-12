@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1874788   (1072704) от 
+
+Boney M. - Remix 2005 (2005) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Cool (Radio Edit) 3:42
+02. Sunny 4:12
+03. Ma Baker 3:53
+04. Hearts Of Gold 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3941B2E5906870F28BC5D0EC7F2B3334C2BDDDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874923   (1072702) от 
+
+Mode-One - The Fourth Album (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me (5:31)
+02. Angels In The Night (4:18)
+03. Don’t Tell Me Lies (4:48)
+04. Can You Hear Me Crying (feat. Lian Ross) (3:28)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADD45E4F8A1CB114DC86C3E9D9B3E8FB70C5033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875170   (1072693) от 
+
+Giorgio Moroder - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - From Here to Eternity - 4:42
+02 - Baby Blue - 4:52
+03 - E=MC2 - 4:34
+04 - Chase - 4:22(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D9F85F9FE511786FCE57124B2AA81B6AD32BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874476   (1071850) от 02.06.2026
 
 Mirko Hirsch - The Instrumental Versions, Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -228,64 +315,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605410   (1044851) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm And Energy (3:04)
-02. Blanch A Voil (3:20)
-03. Aspects Of Sport (3:23)
-04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605408   (1044846) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synchronity (3:22)
-02. Turbolights (2:10)
-03. Its Just Illusion (4:04)
-04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606361   (1044541) от 21.01.2023
 
 Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -308,64 +337,6 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606166   (1044527) от 21.01.2023
-
-RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Night In Brazil (with Andy Bell & Boy George) (4:56)
-02. Crazy Wold Of Love (with Scarlet Fantastic) (4:04)
-03. The River (with Rago & Farina) (5:43)
-04. Far From Here (4:28)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606400   (1044389) от 22.01.2023
-
-VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musique - In the Bush (3:32)
-02. Shalamar - The Second Time Around (3:41)
-03. Sharon Redd - In the Name of Love (4:10)
-04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -743,6 +714,35 @@ VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443197   (1035707) от 28.01.2021
+
+Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What the Future Holds (Single Mix) [03:49]
+02. Something in Your Eyes [03:02]
+03. Clouds [03:55]
+04. To the Beat of My Heart [03:10](   Читать дальше...   )Жанр: Dance Pop, Euro DiscoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8374C7A1593273BFD1997E5DA150BBEA712AC74B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -454,6 +454,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552351   (440664) от 29.09.2012
+
+Kosheen - Independence (2012) [MP3|320 кб/с]<House / Techno / Dubstep / Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_440664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Addict (4:46)
+2. Get A New One (5:17)
+3. Tightly (3:55)
+4. Bella Donna (3:24)
+5. Dependency (6:54)
+6. Manic (3:13)
+7. Zone 8 (3:16)
+8. Mannequin (6:30)
+9. Something New (Visionz Mix) (4:06)
+10. Out There (4:21)(   Читать дальше...   )Жанр: House / Techno / Dubstep / Drum & BassПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870E730DFCD8AA7C38E186B1AC0DDC3BB24B1C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165359   (434426) от 12.09.2017
 
 Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
@@ -708,35 +743,6 @@ VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F0DDA02DDCA7148A2D68ACACEDA9AB56CC00B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177099   (360503) от 26.10.2017
-
-ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambient Just Think
-02. Voices
-03. Filling 1
-04. When the Head Grey Autumn(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, TrapapПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

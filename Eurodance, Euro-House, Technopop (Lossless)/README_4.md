@@ -1,3 +1,32 @@
+###  Публикация: 961140   (300637) от 01.12.2015
+
+Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro House, Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give My Life (3:57)
+02. Venus and Mars (3:31)
+03. My Army of Lovers (3:28)
+04. Ride the Bullet (3:27)(   Читать дальше...   )Жанр: Leftfield, Euro House, DiscoПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7576F7F59C25EEEA6B66AA2438CF564230BAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269926   (287917) от 14.12.2010
 
 Mr. President - A Kind Of... Best! (2000) [FLAC|Lossless]<Pop, Eurodance>
@@ -704,35 +733,6 @@ VA - Retro Megadance Party (2009) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3C243AF1E64E2DF4A2EA34F2553C85EE9AF0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272627   (141733) от 28.12.2018
-
-C.C. Catch - Greatest Hits (2018) Ear Music [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Cause You Are Young (3:30)
- 02. Heaven And Hell (3:39)
- 03. Heartbreak Hotel (3:36)
- 04. I Can Lose My Heart Tonight (3:50)(   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F42F7770E7CCDC237F6C5707648C5DD783B889
 ```
 
 https://mybot314.ru/tekegram_catalog/

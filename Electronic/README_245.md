@@ -1,3 +1,148 @@
+###  Публикация: 1037859   (610313) от 26.07.2016
+
+VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiteout -  Washed Away (feat Vika - Original Mix) 5:16
+02. Ruta & Lucid Blue -  Like A Dream (Original Mix) 4:24
+03. Roman Messer -  Imagination (feat Ange - Denis Airwave Remix) 6:30
+04. Adagio Sensus & Ellie Lawson -  Easy For You (Frainbreeze Remix) 6:11(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037982   (610311) от 26.07.2016
+
+VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
+02. Soundsome - Intentional Delay (Original Mix) [07:38]
+03. Die Hoehenregler - Lust (Original Mix) [07:25]
+04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296527   (610248) от 18.04.2019
+
+VA - Synthwave, Vol. 3 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina - My Mistake (4:04)
+02. Le Matos - The Kid (6:00)
+03. Das Mortal - Hotline Miami II (3:47)
+04. Germany Germany - With You (feat. Kotomi) (4:16)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5B0A92E62170B5AF01D10F0F075F1E633EEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296533   (610226) от 18.04.2019
+
+VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LGHTNNG - Desert King (3:58)
+02. Neon Nox - Checkpoint (feat. Rebecka Stragefors) (5:25)
+03. Sellorekt / LA Dreams - Remnants (3:51)
+04. NINA - Beyond Memory (3:35)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5A94C72FF45BD732868EEC69F37463E7D52C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188676   (610200) от 15.06.2018
+
+TEVOL - Label-Pack 4 Releases (2016-2017) [FLAC|Lossless|tracks] <Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greev (08:49)
+ 02. Greev (Idealist remix) (06:35)
+ 03. Sofar (08:36)
+ 04. Sofar (Andre Kronert remix) (06:54)Жанр: Techno/Deep TechnoПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10C1D197D8071CD87C77FE8B7A6AE8E038405D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296119   (610135) от 18.04.2019
 
 VA - Made In Germany Vol. 1 - A German Synthwave Compilation (2017) [FLAC 2.0|44.1, 48/16, 24|tracks] <Synthwave, Retrowave, Outrun>
@@ -596,154 +741,6 @@ VA - Kiez Beats: Synthwave, Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8082BED0A059F1ED64C8EA82730FC026F064FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296872   (608402) от 19.04.2019
-
-VA - Kiez Beats: Synthwave, Vol. 4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LGHTNNG - Desert King (3:58)
-02. Neon Nox - Checkpoint (feat. Rebecka Stragefors) (5:25)
-03. Sellorekt / LA Dreams - Remnants (3:51)
-04. NINA - Beyond Memory (3:35)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33AAE3A10DB2F8AA795C9FBE39421338824B1C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546392   (607994) от 23.04.2022
-
-ScAnDroid Experiment's - Neosynthetic (2022) авторская раздача [MP3|320 Kbps] <Experimental, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neosynthetic (Intro)
-02. Sweet Chase (Original Mix)
-03. Retroholic (Original Mix)
-04. Easy Winter Walk ... Without Snow (Original Mix)(   Читать дальше...   )Жанр: Experimental, Synthwave, RetrowaveПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F2782D98E3162565AEC442B959A4FD3D23C4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546346   (607563) от 23.04.2022
-
-Ic3peak - Discography 19 Releases (2014-2022) [MP3|320 Kbps] <Coldwave, Darkwave, Witch House>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Червь _ Worm (Single) [00:02:54]Жанр: Coldwave, Darkwave, Witch HouseПродолжительность: 19CD, 05:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3825AA794BCFF75E869BD948D26E3C84C00214AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147632   (607419) от 03.07.2017
-
-Goldie - The Journey Man (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Experimental>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizons (ft. Terri Walker and Swindle)(07:09)
- 02. Prism (06:07)
- 03. Mountains (05:14)
- 04. Castaway (04:30)(   Читать дальше...   )Жанр: Drum & Bass, ExperimentalПродолжительность: 03:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B025477589760E4F02E4887919F9FCC00360B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525595   (607162) от 21.07.2012
-
-VA - Razormaid! 7th Anniversary Box Set (1992) 7CD Limited Edition[FLAC|Lossless]<Synth-pop, New Beat, Disco, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607162.jpg" />
-</div>
-
-
-###  Подробнее
-
-В состав данного сборника от Razormaid Records вошли такие именитые исполнители 80-90х годов, как: Ofra Haza, Erasure, Depeche Mode, Den Harrow, Boytronic, Off, Telex и т.д. Все 84 трека и более девяти часов звучания - для настоящих ценителей и поклонников стилей Synth-pop и New Beat!01. Ofra Haza - In 'Nim Alu :: 07:12
-02. St. Che - (Be My...) Power Station :: 06:20
-03. Elevation - Traitor :: 06:10
-04. Sinead O'Connor - Lay Your Hands :: 06:46
-05. Depeche Mode - Breathing In Fumes :: 05:27
-06. T 99 - Invisible Sensuality :: 07:16
-07. Style - Telephon :: 06:23
-08. Erasure - Heavenly Action :: 05:51
-09. Eighth Wonder - I'm Not Scared :: 06:56
-10. Kim Wilde - Hey Mister Heartache :: 07:05(   Читать дальше...   )Жанр: Synth-pop, New Beat, Disco, Italo-DiscoФормат: 7xCD, CompilationПродолжительность: 09:15:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

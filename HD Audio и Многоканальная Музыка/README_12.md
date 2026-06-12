@@ -1,90 +1,3 @@
-###  Публикация: 1366628   (921559) от 12.03.2020
-
-Various Artists – Total Music Immersion – Philips Super Audio CD Sampler (2002) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <sampler>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Destiny’s Child – Independent woman N°1 -03:41
-02. Céline Dion – It’s all coming back to me now -05:31
-03. Carel Kraayenhof, Bandoneon – Astor Piazzolla : Adiòs Nonino -04:39
-04. Herbert Grönemeyer – Halt Mich -03:58(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Latin, Funk / Soul, Pop, ClassicalПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4E4448D5D474015443F9FBE0B52BE43FF77D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490232   (920531) от 19.08.2021
-
-Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44.1|tracks|Vinyl-Rip] <Drum n Bass>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude / Slam (06:33)
- 02. Plastic World (feat. Fats/TC) (06:19)
- 03. Fasten Your Seatbelt (feat. The Freestylers) (06:32)
- 04. Through The Loop (06:11)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E7F5014F40410E1CED1645AFAF56121A552F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989049   (918670) от 21.02.2016
-
-Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Season Of The Dead (7:22) (DR14)
-02. Cry All Night (6:58) (DR13)
-03. Take Me Home (4:57) (DR13)
-04. Isolated Man (5:31) (DR13)Жанр: RockПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989015   (918389) от 21.02.2016
 
 Круиз - 4 альбома (1987-2013) Мелодия, WEA, Мирумир [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash, Heavy Metal>
@@ -744,6 +657,94 @@ AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4402E00C2965C9DE3615437D75E4B3D42CC85956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867143   (902548) от 08.02.2015
+
+Джеймс Ласт - Счастливый летний вечер (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Копакабана · Copacabana  3:44
+2. На южной границе · South Of The Border  3:30
+3. Валенсия · Valencia  2:38
+4. Однажды воскресным утром · Quando Sali Di Cuba  3:24(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE303B00CBC13483740D48F7574FE7A8EB76D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761003   (899541) от 26.02.2014
+
+John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine
+02. Crippled inside
+03. Jealous guy
+04. It's so hard(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EEFA9C46FE6ADBC4807C403290638F74F3B251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992847   (899279) от 03.03.2016
+
+Артур Эйзен - Романсы русских композиторов (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classical, Romance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Сомнение (М. Глинка, Н. Кукольник)  5:06
+2. Клубится волною кипучею кур (А. Рубинштейн, Мирза Шафи)  5:04
+3. Я вас любил (Б. Шереметьев, А. Пушкин)  2:46(   Читать дальше...   )Жанр: Classical, RomanceПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD68544BFE11D32C0EA513950027E7FEB0E9E34
 ```
 
 https://mybot314.ru/tekegram_catalog/

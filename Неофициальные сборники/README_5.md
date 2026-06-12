@@ -1,3 +1,292 @@
+###  Публикация: 1862715   (1063872) от 01.04.2026
+
+Anya Blaze & One1 - Favorites Compilation (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One1 - More Love
+02 - Anya Blaze - I Just Loved It
+03 - One1 - I'm Tired
+04 - Anya Blaze - Broken Love(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, OtherПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370332926184CBB833CDF1E85A53D8900F794B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862826   (1063821) от 01.04.2026
+
+Axel Rudi Pell - Compilation (1989-2026) [MP3|320 Kbps] <Hard rock, Melodic heavy metal, Power metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon Pyramid ❂ Black Moon Pyramid 1996
+02. All The Rest Of My Life ❂ Shadow Zone 2002
+03. Beautiful Day (& U2) ❂ Diamonds Unlocked 2007
+04. Before I Die ❂ Circle Of The Oath 2012(   Читать дальше...   )Жанр: Hard rock, Melodic heavy metal, Power metalПродолжительность: 10:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D798CE5E2D223D41666B51ABD1C1CE2F3EEA868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862873   (1063746) от 02.04.2026
+
+Daniele Gazzarin - Favorites Collection (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallelujah
+02 - Don’t Leave This Voice Alone
+03 - Still More Road Ahead
+04 - Stay Here(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE30270E8FD3161F8B4E2B85CED95986EBB25B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863218   (1063628) от 03.04.2026
+
+DJ Calma - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Still Us
+02 - Ser Ser
+03 - Boring
+04 - Te Quiero(   Читать дальше...   )Жанр: Pop, Dance, Electronic, OtherПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C407AA1245A516698915DF5E6FAB7F979C744D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862929   (1063619) от 03.04.2026
+
+Fancy best (1985-2023) [MP3|320 Kbps] <electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063619.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:06] . 001-Colder Than Ice
+[5:28] . 002-Slice Me Nice
+[5:41] . 003-In Shock
+[5:33] . 004-Get Your Kicks(   Читать дальше...   )Жанр: electronicПродолжительность: 06:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3D985DBDD0A841087A6851F7504D9824730703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863418   (1063495) от 04.04.2026
+
+VA - Music - Pop vol.Three (2026) [MP3|320 Kbps] <Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REFLEX - Наша весна (02:46)
+ 02. MOTYA - Пропадаю (02:31)
+ 03. NICOLE - Розы (02:16)
+ 04. Mephistopheles - Hungarian city (03:44)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CF0EDFCF53563A690A334C10C79D6E5B034FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863308   (1063478) от 04.04.2026
+
+Hanwave - Favorites Collection (2026) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love in Bus
+02 - Feel Me
+03 - I'm Sorry
+04 - Stay Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-Disco, OtherПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E7D71FA30FBE43358BA2606FC2FA4AAB0782B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863461   (1063461) от 04.04.2026
+
+VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
+02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
+03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
+04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863292   (1063440) от 04.04.2026
+
+VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Brother The Holding Company - Piece Of My Heart (4:15)
+002. The Rolling Stones - (I Can't Get No) Satisfaction (Mono) (3:42)
+003. Jimi Hendrix - All Along the Watchtower (4:01)
+004. Bob Dylan - Like a Rolling Stone (6:11)(   Читать дальше...   )Жанр: RockПродолжительность: 05:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA135A0C93B9F8E2A5A2BEC6DFF2CCB1431A8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863377   (1063439) от 04.04.2026
+
+VA - REDISCOVER The '70s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion (4:34)
+002. Tom Petty - American Girl (3:30)
+003. Pink Floyd - MoneyЖанр: RockПродолжительность: 11:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846858505D3EABBFE3A05B698F6A35C6BE7FD8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863385   (1063438) от 04.04.2026
 
 VA - REDISCOVER THE '80s: Rock (2026) [MP3|320 Kbps] <Rock>
@@ -453,296 +742,6 @@ VA - No Name Compilation Simply listen music Part 83 Just Cover (2026) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743E9EE19EEDC86FFC036F371E99C4DB651AB200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864009   (1063033) от 07.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современной обработке (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Вне Времени- Два кусочека колбаски [03:34]
-02.KulMuzika- Пазишен Намба Уан [07:31]
-03.Aleks-Audio- Перекрёсток (Ты ушла рано утром) [04:39]
-04.Master Factory- Девочка Сегодня в Баре [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB1AAF59B564F5DBFF5CA2576737798CDF34998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864029   (1063025) от 07.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Last Curve
-02 - The Hunt in the Night
-03 - Hero
-04 - March 8 - Woman(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987BDA832A39F323BCB062AF11F1D9A5325E3CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861253   (1062925) от 26.03.2026
-
-Frezee - Favorites Collection Part 7 (2026) [MP3| 320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мы Стали Другими
-02 - Синий Экспресс
-03 - Песенка-Чудесенка
-04 - Мама(   Читать дальше...   )Жанр: OtherПродолжительность: 00:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED9C7B0DEE71B008128D2D967D09B239A218B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861683   (1062777) от 27.03.2026
-
-Сплин best (1994-2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062777.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:37] . 01-Звери
-[5:36] . 02-Сказка (remake 1994)
-[5:05] . 03-Что ты будешь делать?
-[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861252   (1062605) от 24.03.2026
-
-Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Galaxy
-02 - Sea
-03 - Old Love
-04 - Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792CA59B77A1D8DC66EAFE2B40887230170692FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861212   (1062599) от 24.03.2026
-
-Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062599.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:20] . 001-Алло, попс!
-[2:32] . 002-Девушки эмансипэ
-[3:54] . 003-Кассетный мальчик
-[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E859BC9B168A0CC68E1C533B16BEBB931436BC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861518   (1062435) от 30.03.2026
-
-VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062435.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aerosmith - Dream On (4:27)
-002. Fleetwood Mac - Go Your Own Way (2004 Remaster) (3:43)
-003. Tom Petty - Don't Do Me Like That (2:41)
-004. Eagles - Hotel California (2013 Remaster) (6:31)(   Читать дальше...   )Жанр: RockПродолжительность: 18:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F62341D78ABB239CFD82DA5EFCA53D6AED0BD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861598   (1062390) от 26.03.2026
-
-VA - No Name Compilation Part 78 Other (2026) [MP3|320 Kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aureno - I Need Your Love Again
-02 - Lovrite - My Heart
-03 - Bellara - Madonna
-04 - Xeron - Moon of Fire(   Читать дальше...   )Жанр: OtherПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F733B57D240E2884A09380E8CD854AFBEB9C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860857   (1062351) от 22.03.2026
-
-Maya Tune - Favorites Collection (2026) [MP3|320 Kbps] <Emotional deep house vibes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No More Tears
-02 - Time to Let Go
-03 - Take Me Higher
-04 - I Don't Want the World Without You(   Читать дальше...   )Жанр: Emotional deep house vibesПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0786B1F37E7DBDA63E59BA3BD99C44815B1AE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860861   (1062329) от 23.03.2026
-
-7Б - best (2001-2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062329.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:17] . 01-Кино
-[4:23] . 02-Молодые ветра
-[3:28] . 03-Осень
-[4:43] . 04-Знаю! Будет!(   Читать дальше...   )Жанр: rockПродолжительность: 06:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFB3F7F9B710CE07C6F0EBB8315F72FE79BDB80
 ```
 
 https://mybot314.ru/tekegram_catalog/

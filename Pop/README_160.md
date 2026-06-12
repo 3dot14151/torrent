@@ -1,3 +1,148 @@
+###  Публикация: 1038896   (599536) от 30.07.2016
+
+Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkman (5:30)
+02. One More Round (4:37)
+03. On The Sea (3:27)
+04. I Wanna Know (4:43)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039062   (599526) от 30.07.2016
+
+VLNY - Откровения (2014) [MP3|320 Kbps] <Indie Pop, Dream Pop, Acoustic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привет
+02. Давай
+03. Притяжения больше нет
+04. И нам останется осень(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, AcousticПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EEDCC1A3A2253D26B7644A7BFF02462AD68F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038845   (599525) от 30.07.2016
+
+Bee Gees - Living Eyes (1981) 1983, RSO [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Eyes [04:22]
+02. He's a Liar [04:05]
+03. Paradise [04:21]
+04. Don't Fall in Love With Me [04:57](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A70D1E26095DD2B572906F5FB0B3AD3F6E972E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039053   (599407) от 30.07.2016
+
+VLNY - Помни (2015) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Зима
+03. Проснись
+04. Запоминай меня(   Читать дальше...   )Жанр: Indie Pop, Synth Pop, Dream PopПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69A5714269E901CADF5FCE84ED2E48E32819B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580563   (599303) от 02.05.2022
+
+Dzidzio (Дзідзьо) - 3 Albums + 1 Remix + 10 Singles (2012-2022) [MP3|320 kbps] <Pop, Dance, Hip-hop-dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный и неординарный на западной Украине коллектив DZIDZIO, характеризует свой стиль как треш-хип- хоп-денс. Мегапопулярний чувак с бородой та усами, как сам себя називает Дзідзьо. Антигламурний певец, композитор, философ, драматург, бард2012 - Ха-Ха-Ха
+2014 - Хіти
+2015 - Dance (DJ Ozeroff & DJ Sky Remix)
+2018 - DZIDZIO SUPER-PUPERЖанр: Pop, Dance, Hip-hop-dance |Продолжительность: 02:38:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B424491D9F38EFCBDFCA5F0C4470C40CC2DC50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222316   (599248) от 30.07.2010
 
 Валерий Ободзинский - Любимые песни от Музыкального огонька (2009) [MP3|320 kbps]<retro>
@@ -642,148 +787,6 @@ Maren Elise - Think About It And Say Yes! (2015) [MP3|320 кб/с]<Alternative, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FFC10B5EAD6D1BC0F140F6708AD283BA127D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914737   (596504) от 03.07.2015
-
-Jule Vera - Friendly Enemies (2015) [MP3|320 кб/с]<Alternative, Pop Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1896 (01:12)
-02. Chemical Machine (03:34)
-03. Light the Night (03:51)
-04. One Little String (02:47)(   Читать дальше...   )Жанр: Alternative, Pop Rock, Female VocalПродолжительность: 00:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F087209696BB1960D1287CA2FA731CFDFA8A503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687788   (596431) от 09.08.2013
-
-VA - 100 Hits - Disco Classics (2011) 5CD Box set [FLAC|Lossless]<Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диско сборник из 99 песен. Почему 99 а не 100? Было бы 100, но есть довольно странная ошибка. На CD2 трек№9 Terri Wells - I'll Be Around и на CD4 трек№8 должна быть The Detroit Spinners - I'll Be Around оригинальная версия этой песни, но на самом деле - это лишь расширенная версия в исплнении Terri Wells (до 02:17 это совершенно одинаковые треки). И уж точно - не (   Читать дальше...   )Жанр: Disco, FunkФормат: 5хCD Box set, Compilation, FadeMixПродолжительность: 06:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5937332871FAC4B56D0814A0EDA999D9FC117B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232693   (596350) от 26.06.2018
-
-VA - Hot Parade Dance Summer 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596350.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Axwell  Ingrosso - Dreamer
-02. Alice Merton - No Roots
-03. Bob Sinclar - I Believe - Radio Edit(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6118F53B2AB7DE693F6AD4AEF54A6555634BF74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914918   (596285) от 03.07.2015
-
-VA - Golden Romantic Hits (2006) [FLAC|image + .cue]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demis Roussos - Forever and Ever [3:37]
-02. The Mamas & The Papas - Step out [3:04]
-03. Astrud Gilberto - Fly Me to the Moon [2:21]
-04. Stevie Wonder - My Cherie Amour [2:53](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAAE99A804A30FFAEA5CA3B3F22929F3C1A5177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548765   (596272) от 04.05.2022
-
-Carlo Maria Cordio - Shadows And Memories (1979) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon Sacrifice (3:54)
-02. Flying Into The Sunshine (3:26)
-03. Seagulls Flight (3:25)
-04. Theme For A Dream (4:15)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB8D5B44F4EDE03EB15EB983F1FAF7EEFA19A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1818019   (2619) от 15.09.2025
+
+VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - Magic
+02 - Jumanov - District
+03 - Umideep - Unspoken Love
+04 - Jumanov - Old Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777205E6BA53D0BBAEA9FA519F206B39806C50DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818115   (2618) от 15.09.2025
+
+Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Stop This Love Inside (C.C.Catch - I Can Lose My Heart Tonight)
+ 02 - Midnight Heartbeat
+ 03 - Baby, Baby, Hold Me 2 (Modern Talking - Cheri Cheri Lady)
+ 04 - You're My Heaven (Alternate Version) Bad Boy Blue - You're a Woman(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818173   (2616) от 15.09.2025
+
+VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jambeats - Autumn Love
+02 - Rodle - No More Words
+03 - A-Sultan - No Reply
+04 - Dova Music - Broken Promises(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5811CFEBD549BAB8A72E06D554A78BCF1C0554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818152   (2613) от 15.09.2025
 
 VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -659,93 +746,6 @@ P.S. Раздачи из серии Premium Playlist - симбиоз жанро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFAE2A54A40B4F2F696C671FC45DDC45E431BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819419   (1460) от 22.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [c001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C.C. Catch - Cause You Are Young (Johnny Clash Radio Remix).mp3
-002. C.C. Catch - Heaven and Hell (Index-1 Remix).mp3
-003. C.C. Catch - I Can Lose My Heart Tonight (Silver Nail Extended Mix).mp3
-004. Caglar Bal - In My Mind.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445DEE42130FC8B0957B08935F73A8CCA8FE4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819421   (1450) от 22.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [c002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chaёl feat. kaii - Don't Speak (Amice Remix).mp3
-002. Che Cherry, Sands Live - Oblivious (Scalambrin & Sgarro Remix).mp3
-003. Cheat Codes & Little Mix - Only You.mp3
-004. Cheb Khaled - Aicha (Alexander Holsten & Andrey Vertuga Remix) (Radio Version).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C720C94C1DDB734D5B19C18A475804D3D53828A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819422   (1443) от 22.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1443.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cocino - Where Do We Go.mp3
-002. Coco, Joezi, Pape Diouf - 7 Seconds.mp3
-003. Code Beat feat. Snoop Dogg, T.I. & Beat Frequency - I Like It (David May & Ebbyman Mix).mp3
-004. Code Breakerz - POISON.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11128B1277B8C182C47F3E0AC5EF0E9DFD1385F
 ```
 
 https://mybot314.ru/tekegram_catalog/

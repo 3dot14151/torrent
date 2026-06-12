@@ -1,3 +1,119 @@
+###  Публикация: 1356230   (978728) от 30.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD49267E11A442D8AC11F59FCE585FCBC8826B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356124   (978723) от 30.01.2020
+
+VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia tailfeathers - Buffalo Songs
+02. Asani - Niwiciwakan
+03. Asani - Oti Nikan
+04. Sandy Scofield - Layla's Lulaby(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B167B3A7F7FC8B8294D93F1F4D78907F22ED3180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356321   (978608) от 30.01.2020
+
+Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Never Free (06:59)
+02. Kashmir (04:30)
+03. Fate Whispers To The Warrior (03:54)
+04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4080FDEE7FE3F36E9A380C8C3C1543EA5C176D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356322   (978544) от 30.01.2020
+
+Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Never Free (06:59)
+02. Kashmir (04:30)
+03. Fate Whispers To The Warrior (03:54)
+04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B84431847C3354E2C710F09778A0802D61C50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355357   (978539) от 30.01.2020
 
 Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Score) (2020) [MP3|320 кб/с] <OST, Score>
@@ -640,119 +756,6 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357346   (973157) от 04.02.2020
-
-Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973157.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:29| 01. Ballade in C# Minor: Coronation
-|01:16| 02. Estampie - Eastcheap
-|05:12| 03. Song of Hal: Strings in C# Minor
-|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357340   (973155) от 04.02.2020
-
-Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Ready or Not Overture (04:24)
-02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
-03. Brian Tyler - Family Members Only (03:42)
-04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30891C3B1899422CD06F4EB111F863C91B63DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929291   (973131) от 14.01.2016
-
-Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrack, Bonuses, Singles (2012-2015) [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Soundtrack, ScoreПродолжительность: 06:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F17F67E53E209356CA5972ED01F857B964FDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357339   (973091) от 04.02.2020
-
-Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Ready or Not Overture (04:24)
-02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
-03. Brian Tyler - Family Members Only (03:42)
-04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6459EC20B29C9D32EAE310F6FB7D8B90937B6FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1871922   (1069825) от 19.05.2026
+
+Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069825.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Thank You For The Music
+A2 What I Did For Love
+A3 Are You Lonesome Tonight
+A4 I Wonder(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDEA9689B180D5720506128F657577942AC03E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871269   (1069768) от 16.05.2026
+
+Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Baroque, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069768.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fantasia And Fugue In G Minor - "The Great" (BWV 542)
+A2 Choral Prelude "Wachet Auf" (BWV 645)
+B1 Choral Prelude "Kommst Du Nun, Jesu, Von Himmel Verunter" (BWV 650)
+B2 Choral Prelude "Von Himmel Hoch, Da Komm Ich Her" (BWV 606)(   Читать дальше...   )Жанр: Classical, Baroque, OrganПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D4952CF4D87E618BF69F1B5C2DE58345985814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871078   (1069334) от 15.05.2026
+
+Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069334.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 White Cliffs Of Dover
+A2 Red Sails In The Sunset
+A3 It's A Sin To Tell A Lie
+Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8996DA4B48CAAD502164BDA7B940F9E888F643C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871135   (1069289) от 15.05.2026
 
 Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Orchestra [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -653,93 +740,6 @@ A4 Silver Eagle(   Читать дальше...   )Жанр: Folk, World, & Coun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3B79AED564766A788A176A0B6A241594E656D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865193   (1065367) от 14.04.2026
-
-Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065367.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Working Man Can't Get Nowhere Today
-A2 Making Believe
-A3 Blues Stay Away From Me
-A4 Got A Letter From My Kid Today(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E1377EB2F8EA098AFA95678670F6DBA684C5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864556   (1064814) от 
-
-Enforcer - Studio Albums (6 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enforcer - метал-группа из Стокгольма, Швеция, основана в 2004 году2008 - Into The Night
-2010 - Diamonds
-2013 - Death By Fire
-2015 - From BeyondЖанр: Heavy/Speed MetalПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370CDFA5432186F5E0B675F21439B489BBB13CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864270   (1064615) от 
-
-Gorguts - Studio Albums (6 releases) (1991-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Avant-garde Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorguts - канадская метал-группа, основана в 1989 году в Ричмонде, Квебек.1991 - Considered Dead
-1993 - The Erosion Of Sanity
-1998 - Obscura
-2001 - From Wisdom To HateЖанр: Technical/Avant-garde Death MetalПродолжительность: 03:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDB279E60BDAEFA5B6C8E4CEDE2986592D304B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

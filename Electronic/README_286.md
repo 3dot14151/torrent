@@ -1,3 +1,61 @@
+###  Публикация: 1559337   (527182) от 24.06.2022
+
+Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell - INTO THE UNKNOWN
+02. Hardwell - BLACK MAGIC
+03. J Balvin & Skrillex - In Da Getto (Hardwell Bootleg)
+04. Oxia - Domino (Hardwell Bootleg)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FF70D1E7473FBD19A0A0838790B4669BCD9DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559209   (527145) от 24.06.2022
+
+VA - Sensation Seekers Vol 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kojun & Susana - Caught In A Memory (Mike Zaloxx Remix) (6:36)
+02. Activa - Luminosity (Sean Tyas Extended Remix) (8:00)
+03. EverLight - Disco Death Machine (Extended Mix) (7:41)
+04. Richard Durand & Christian Burns - Almost Home (Extended Mix) (6:30)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1FD9A5B35B6674889C7D42246BB59B9F7726C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559241   (527105) от 24.06.2022
 
 VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -686,64 +744,6 @@ Valdi Sabev - Imagined Vol. 2 (2017) [MP3|320 Kbps] <Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:536E694B010A7BA9EF499FB7FC07553EC7008EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313295   (524575) от 08.07.2019
-
-VA - Iris Eclipse (2019) Dusk Notes [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ASC - Barycentre (08:07)
- 02. Imugem Orihasam - Anacasico (06:48)
- 03. Soramimi - The Lightworker (06:19)
- 04. Cory James - C61 (06:36)Жанр: TechnoПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47481D5F9BD82AB8AF2E6F41DC492DD9D956C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240555   (524463) от 12.08.2018
-
-VA - Best Of Del Mar Vol.7: 30 Beautiful Chill Sounds (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - Summer Breeze (7 Miles Beach Cut) 7:52
-02. Retro Rider - Rock The Sea (The Spacetraveler Cut) 6:00
-03. DJ Maretimo, reo Gringos - Ipanema Injection (The Bossa Master Mix) 5:51
-04. Poolwave - Soul Of Water (Balearic Dreamgroove Mix) 5:20(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, Easy ListeningПродолжительность: 05:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45441D7C77083E906BB38BD5923EC82ACA8930ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

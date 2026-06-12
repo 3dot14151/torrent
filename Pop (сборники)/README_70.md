@@ -1,3 +1,32 @@
+###  Публикация: 921174   (577168) от 24.07.2015
+
+VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Профилактика - Это Не Сон
+002. Cheryl Cole - I Dont Care
+003. Mozgi (Потап) - Хлам
+004. Selena Gomez - Mas(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920942   (577153) от 24.07.2015
 
 VA - Попсовая Сотка MTV. Русский выпуск (2015) [MP3|320 кб/с]<Pop>
@@ -481,41 +510,6 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22407C47F9447448CE4A276E198BCE90A9BB9938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362147   (573322) от 12.07.2011
-
-VA - German Top 100 Single Charts (11.07.2011) [MP3|~232 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_573322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Stan - Mr Saxobeat
-02. Jennifer Lopez Feat Pitbull - On The Floor
-03. Pitbull - Give Me Everything
-04. Lmfao Feat Lauren Bennett - Party Rock Anthem
-05. Sarah Engels And Pietro Lombardi - I Miss You
-06. Lady Gaga - The Edge Of Glory
-07. Tim Bendzko - Nur Noch Kurz Die Welt Retten
-08. Snoop Dogg Vs David Guetta - Sweat
-09. Rihanna - California King Bed
-10. Bruno Mars - The Lazy Song(   Читать дальше...)Жанр: PopПродолжительность: 06:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3150163558FEED0A4C5F6682D9E5C0160525D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,116 +1,3 @@
-###  Публикация: 1522196   (760438) от 06.01.2022
-
-VA - Study Sounds 011 (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takle Brusko - FAKE (2:28)
-02. Ildrealex - Retreat (3:34)
-03. Martin Jarl - Deep Seas & Dark Oceans (5:45)
-04. Lonk - Pintos (1:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4D4969F697FA6D13877DBA7190E26FCF6A322E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522184   (760437) от 06.01.2022
-
-VA - Study Sounds 004 (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oded Nir, Saskia Laroo - Rooftop Conversations (Bohemian Remix) (7:23)
-02. Extreme Wa Zb - Swords (Reprised Intro) (3:39)
-03. Ethiopian Chyld - Tranquillity (5:24)
-04. Pools - Eye Deer (2:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D71A70DA8C8F336C8DB7ABB6DCFBA746475EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280588   (760419) от 03.02.2019
-
-Вдовы / Widows (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760419.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о жёнах грабителей, погибших при неудачном налёте. Новоиспечённые вдовы берутся сами закончить начатое, разобраться с полицией и конкурентами, а главное — выяснить, кто же подставил их мужей.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Стив МакКуинАктеры: Виола Дэвис, Мишель Родригес, Элизабет Дебики, Синтиа Эриво, Колин Фаррелл, Брайан Тайри Генри, Дэниэл Калуя, Лиам Нисон, Кэрри Кун, Роберт ДюваллПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74838BF4389D3FFB396FB3B0A00CF732ABF4D5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522186   (760376) от 06.01.2022
-
-VA - Study Sounds 005 (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scot & Millfield - Dark Lantern (7:14)
-02. Blue Pearl - Your Door To The Stars (6:40)
-03. Robotanni - Blue Ritz (5:01)
-04. Luis Hungria - Raining In Blanes (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4655796F701FAA359AE452F6A791EA99F226E417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522194   (760375) от 06.01.2022
 
 VA - Study Sounds 010 (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
@@ -733,6 +620,122 @@ VA - Ufo Lounge (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE067E11A823C34F9C7823D48DA86A4B263070C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522368   (758668) от 07.01.2022
+
+VA - Christmas Chill Out: Best for the Year 2022 (2022) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelo-K - Whatever You Need (Original Vocal Mix) (7:01)
+02. S.A.T - Awakening (Original Mix) (4:00)
+03. DJ Artak, Natune - I Am Saved (Original Mix) (4:35)
+04. Angelo-K - Along the Coast (Extended Mix) (8:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF4DA4552FC3D67A63C02CB4767A76E64AC504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522405   (758663) от 07.01.2022
+
+VA - Yoga Music Session 2: Music for Relaxation & Meditation (2019) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerforest - Bellefontaine (Original Mix) (5:34)
+02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
+03. Elmara - Northern Lights (Original Mix) (3:38)
+04. Eskadet - Te Revoir (Original Mix) (6:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F102D1BF77FFCB9C6129FE01E400B5F42FB1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522406   (758657) от 07.01.2022
+
+VA - Yoga Music Session 3: Music for Relaxation & Meditation (2022) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - A La Sombra De Un Roble (4:25)
+02. Dyan Garris, Sherry Finzer - Forest Whispers (5:20)
+03. Dellasollounge - Fantasy (Original Mix) (5:23)
+04. Ann Grace - Intromotion (1:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2884C8FD91A67D2BDC5B70C153F8C215FA02F097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522404   (758655) от 07.01.2022
+
+VA - Yoga Music Session 1: Music for Relaxation & Meditation (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Matterhorn (Original Mix) (4:05)
+02. Prana Tones - Eastern Zen (Original Mix) (3:12)
+03. La Estación Del Mar - Punta Begona (Original Mix) (3:35)
+04. Velvet Dreamer - Mystic Traveller (Eskadet Remix) (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9270C4D30489C236D28BF1C2DD1FE9D114A1B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

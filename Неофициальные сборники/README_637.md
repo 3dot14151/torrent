@@ -1,3 +1,96 @@
+###  Публикация: 489364   (129270) от 28.04.2012
+
+VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy P - Take My Hand (Flashtunez Remix Edit)
+02. Quickdrop - Dont Go Away (Original Edit)
+03. Nero feat. Sub Focus - Promises
+04. David Guetta feat. Usher - Without You (Redtzer Remix Edit)
+05. Dancecore Deejay - S&M (Jweb Remix)
+06. Nova Scotia feat. Jenny Johnston - Kaliedoscope Skies (Club Edit)
+07. Bangbros - Stampfen (Nachgeladen) (Sunset Project Remix Edit)
+08. Kato Jimenez feat. Luis Vazquez vs. Jesus Sanchez - Wannabe (Miguel Valbuena Hands Up Club Mi
+09. Dash Berlin feat. Emma Hewitt - Disarm Yourself (Shibbybangs vs. R-Boy Bangleg Mix)
+10. Jens O. vs. Ti-Mo - Give & Take (Radio Edit)2012Жанр: Dance, ClubПродолжительность: 06:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9568692BAD42A9891BC700683FFCECA2BCE24963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525421   (129252) от 21.01.2022
+
+VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный глубоким и плотным звучанием мелодического техно, «Techno Minimal: Special Party» предлагает плейлист оригинальных, сотрясающих пространство мелодий и непосредственное вдохновение для Ваших творческих идей.001. Ran-D - Dance With The Devil
+002. Bastinov - No Regrets
+003. Refuzion - Good Time
+004. Coone Ft. Atilax - Yours Truly(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 08:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525380   (129247) от 21.01.2022
+
+VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep House, Soft Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы не любите работать в тишине, а ваши пальцы лучше всего стучат по клавишам под фоновую музыку, тогда новый 395-й релиз от Beatport именно для Вас. Такая музыка позволят Вам зарядиться энергией для работы и эффективно реализовать свои творческие замыслы.001. Bliz Nochi - Tender Touch
+002. Owen Ni - Instant Message
+003. State Of Low - Kikimora
+004. Peter Mac - Flying(   Читать дальше...   )Жанр: Chill, Deep House, Soft ElectronicПродолжительность: 10:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489135   (129245) от 28.04.2012
 
 VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
@@ -690,93 +783,6 @@ HilalDeep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E629AB8FEF2E974256235910CCE2700B7DB18081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684133   (127980) от 14.12.2023
-
-VA - CarMusic 2 for man (2023) [MP3|320 Kbps] <House, G-House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fugees - Ready Or Not (E.Y. Beats Remix) (4:42)
-02. Afrika Bambaataa - Just Get Up And Dance (Kirasinka & Green Flash Mash Up Radio Edit) (3:00)
-03. The Bestseller, Rammstein - Gangsta, Du Hast (Kirasinka & Green Flash Mash Up) (5:03)
-04. 666 - Alarma (DBL Techno Flip) (5:56)(   Читать дальше...   )Жанр: House, G-House, OtherПродолжительность: 04:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216A941E2C294192064EF18D7E627D0C49C9BBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684116   (127962) от 14.12.2023
-
-VA - Music News vol.323 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. CHINCHILLA - Cut You Off (03:33)
- 002. 33 Below feat. Chrystel - Hold Tight (03:19)
- 003. ABI - Мама (03:19)
- 004. Adrianne Lenker - Ruined (04:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEDF404103F98CE3F80A34F3E72167142430AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683944   (127858) от 15.12.2023
-
-VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127858.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Twisted Sister - Heavy Metal Christmas (The Twelve Days of Christmas) [05:15]
-002. L.A. Guns - Merry Xmas Everybody [04:11]
-003. Cheap Trick - Christmas Christmas [02:17]
-004. Alice Cooper, John 5, Billy Sheehan, Vinny Appice - Santa Claws Is Coming To Town [04:20](   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

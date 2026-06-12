@@ -1,29 +1,3 @@
-###  Публикация: 1321180   (463259) от 22.08.2019
-
-Mystery Case Files 19: Moths to a Flame (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое расследование приводит вас в Zenith Museum of Oddities. Скоро вы начинаете понимать, что попались в паутину обмана и лжи. Кто-то хорошо изучил ваше прошлое и все ваши расследования. Но что нужно неведомым злодеям и сколько невинных людей, оказавшихся на их пути, может пострадать? Вам понадобятся все навыки детектива, чтобы остановить врага, который угрожает (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472ADECF79E2BC2E4F9B15E7453C710F4D995718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941294   (462514) от 27.09.2015
 
 Nevertales 4: Legends (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -667,6 +641,32 @@ Which [En] (RePack) 2010 | braindead1986
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C831229B96F735244F0964EF2C1F2076D0882EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060838   (447748) от 10.10.2016
+
+Five Nights at Freddy's: Sister Location (2016) [En] (1.02) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Nights at Freddy’s: Sister Location — это новая часть из популярной серии игр от разработчика Скотта Коутона. В этот раз мы попадем в пиццерию Circus Baby's Pizza World в роли ночного техника, которому предстоит пережить все ужасы этого места, которые ему обеспечат милые, на первый взгляд, аниматроники. Из аниматроников нас ждет модифицированный Freddy Fazbear, (   Читать дальше...   )Тип издания: RepackРазработчик: Scott CawthonЖанр: Adventure (Survival horror), IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E57E59A45355D1DBF8BCB2A5FEBF18AE605BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

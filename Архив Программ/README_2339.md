@@ -1,3 +1,29 @@
+###  Публикация: 1802616   (14250) от 18.06.2025
+
+Microsoft  Visual C++ Runtimes AIO v0.92.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802619   (14232) от 18.06.2025
 
 Adobe Photoshop Lightroom Classic 2025 14.4.0.8 RePack by KpoJIuK [Multi/Ru]
@@ -647,33 +673,6 @@ AnyDesk 9.5.6 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0046D0E52107A62A94A8012A382EAE274153C471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803168   (13811) от 22.06.2025
-
-Auslogics Windows Slimmer 5.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.
-Windows Slimmer поможет вам в удалении ненужных компонентов Windows, деинсталляции приложений и оптимальной настройки параметров, чтобы снизить размер операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFF748247FCC61A8FCAF80D9E5E568BAF3F06DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

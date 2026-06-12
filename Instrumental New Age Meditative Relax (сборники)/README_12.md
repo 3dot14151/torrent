@@ -97,6 +97,76 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554898   (436348) от 01.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 91 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Mauriat - Love Story
+02. Arabian Night - Love In The Summer
+03. Mario Battaini - Sopra Del Onde
+04. G.Marradi - Autumn Leaves
+05. М.Таривердиев - Музыка на воде
+06. Armik - Via Veneto
+07. В.Резников - Дворик
+08. Bank & Jones - Beyond Time
+09. Carlos Areias - A Festa Do Ze
+10. Stefan Nicolas - All By Myself(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726A6378A1B009E4036B5C933CDBB7C94A034A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554735   (436311) от 01.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 90 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Mauriat - From Souvenirs To Souvenirs
+02. Gary Moore - The Prophet
+03. Оскар Строк - Голубые глаза
+04. G.Marradi - Etude
+05. Ray Hamilton Orchestra - Still Got The Blues For You
+06. Armik - Fire Dance
+07. J.Last - Hotel California
+08. Karunesh - Coming Home
+09. П.Дранга - Besame Mucho
+10. В.Кузьмин - Простой сюжет (инстр-л)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FEC7288F583AFC53FD609220C6D7D63183F936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554730   (436310) от 01.10.2012
 
 VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 кб/с]<Instrumental>
@@ -435,6 +505,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145854   (426904) от 13.10.2009
+
+VA - Лучшие мелодии на свете. Музыка для отдыха (3 CD) (2006) [MP3|320 кб/c]<Инструментальная, Сборники>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_426904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Инструментальная, Сборники
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572127   (425401) от 25.08.2022
 
 VA - Relax (2022) [MP3|320 Kbps] <Easy Listening, Neo Soul, Vocal, Ballad>
@@ -729,99 +825,6 @@ VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:588A4C5041D2FB5A72A76A45713A7E5730E2F192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169019   (401474) от 29.09.2017
-
-VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eugene Kushner - That I (Original Mix)
-002. Vitaly Beskrovny - If I? (Feat Simon Latham - Original Mix)
-003. Max Denoise - Bring To Me Life (Feat Claire Willis - Original Mix)
-004. Latham & Quano - Fallen Angel (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 08:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EF9BEF40DC1458DB56236E2B066C48BCEFC889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170427   (399353) от 01.10.2017
-
-VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jupiter Panic - Sunrise
-002. Greg Maroney - Lake Song
-003. Indiajiva - Awakening
-004. Glenn Main - Equinoxe, Part 1(   Читать дальше...   )Жанр: New Age, Relax, DowntempoПродолжительность: 10:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EED9F5EDAC267241D9358E3EB9604BDAD140FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568811   (393687) от 01.11.2012
-
-VA - Романтические мелодии (2012) [MP3|192-256 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001_Fausto Papetti - Emmanuelle
-002_Nino Rota - Goodfather
-003_Francis Goya - Love Story
-004_James Last - Ballade For Adeline
-005_Candy Dulfer & Dave Stewart - Lilly Was Here
-006_Giorgio Moroder - Flash Dance
-007_Vangelis - Girl Of Sea
-008_Paul Mauriat - Toccata
-009_Michel LeGrand - Les Parapluies de Cherbourg
-010_Santana - Europa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E005D01625EE73B82ADB845FD8BB4E9B69AD3944
 ```
 
 https://mybot314.ru/tekegram_catalog/

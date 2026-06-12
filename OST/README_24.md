@@ -1,32 +1,3 @@
-###  Публикация: 1665949   (177874) от 06.10.2023
-
-Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prognosis
-02. Henry Hope
-03. Meet Gabriela
-04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162682   (172542) от 17.10.2023
 
 Геннадий Гладков - Джентльмены удачи (1971) Переиздание 2002 [MP3|320 kbps] <Soundtrack>
@@ -777,6 +748,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682058   (132055) от 05.12.2023
+
+Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Estrella
+03. Fairy of Water
+04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
 ```
 
 https://mybot314.ru/tekegram_catalog/

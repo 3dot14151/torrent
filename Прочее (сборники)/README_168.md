@@ -1,3 +1,177 @@
+###  Публикация: 1346826   (155088) от 21.12.2019
+
+VA - не Громкие новинки недели 48 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alexandra - Новогодняя (3:39)
+2.Andro - Моя Душа (2:35)
+3.ARi & Sam Vii - Больше Не Жду Тебя (3:27)
+4.Ars-N - Принцесса (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD593640F56FB92D761CB014AE1CD5F46E28520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331352   (154927) от 14.11.2023
+
+VA - Понемногу отовсюду by Yuridar #E-F (1956-2022) Compilation Album [MP3|128-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth - Omens and Portents 1: the Driver
+02. Eguana - Cry for the Night
+03. Eilera - Face Your Demons
+04. Eilera - Frozen Path (Finnvox version)(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7C18289970CEE8B093DF286F0C0857CF536EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086104   (154834) от 23.12.2016
+
+VA - All I Want For Winter Is Bass (2016) [MP3|320 Kbps] <Drum And Bass, Dubstep, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmozfears & Energyzed - WAT 4:43
+2. Da Tweekaz - Tequila 4:00
+3. Refuzion & Noiseshock - Another World 4:03
+4. Atmozfears ft. David Spekter - Keep Me Awake 4:12(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, DanceПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B59F4E40421349B43CA58A68CB4F3CC16B4A4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085926   (154708) от 23.12.2016
+
+VA - Sensitive Deep House (2016) [MP3|320 Kbps] <Deep House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Man Without Country Feat. White Sea - Laws Of Motion
+002. Wild Culture - Summer Swaggin
+003. Gray Rhythms - Rapid Breathing (Alexandre Lotus's Urban Mix)
+004. Roter & Lewis - Slow Down(   Читать дальше...   )Жанр: Deep House, Electro, DanceПродолжительность: 09:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8310BF6F013BC92BE6B4CAD185FDE9CBA7C4D600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433750   (154373) от 22.12.2020
+
+VA - Зайцев.нет Лучшие новинки Декабря (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alina Pash - Делай как я (2:35)
+02. Anti-flag - The War On Christmas Is Over (If You Buy It) (2:24)
+03. Ayzha Nyree - Holy Class (3:25)
+04. Besomorph, Lunis, Behmer - What I've Done (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08B06B6D135E3B2FB7D6D00CC9AD541E8689B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194732   (154318) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 18) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Мои года, моё богатство  3:11
+02.  Олег Даль  -  Дороги  4:08
+03.  Юрий Гуляев  -  Из-за острова  4:33
+04.  Галина Ненашева  -  Калинка  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E24E9C091E4A44266269D688C235F9C977A486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194676   (154313) от 26.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 16) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
@@ -569,180 +743,6 @@ VA - Зайцев.нет Новогодняя вечеринка (2020) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B44E0E9651CADC970564F0819A2A9F7ACCB73F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677903   (149120) от 19.11.2023
-
-VA - Music News vol.315 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149120.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A'MELI - Невеста (01:42)
- 002. A R I Z O N A - Graveyard (Shoffy Remix) (03:06)
- 003. Able Faces feat. Treetalk & Fini - All That You Need (02:13)
- 004. Adel' - Мглою (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FC11EE29CA66495658514A2BB0CE097E3EE7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677934   (149045) от 19.11.2023
-
-VA - Music News vol.316 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149045.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nataleess - Временно (03:01)
- 002. A R I Z O N A - Pressure (Malibu Cathy Remix) (02:39)
- 003. Acid Arabfeat feat. Ghizlane Melih - Habaytak (R3hab Remix) (02:26)
- 004. Adi - Vegas (OST Miami Bici 2) (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FBE81A656759D3BA353C307A3B94B09263B5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678004   (148849) от 19.11.2023
-
-VA - Music News vol.317 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dina Vladi - Голубые Глаза (03:52)
- 002. 2 Chainz & Lil Wayne feat. Usher - Transparency (03:15)
- 003. Сергей Владимир - Anna Oanna (03:07)
- 004. Alexander Stewart - He Never Will (02:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B3D0D79F41461870FA2EAACE6D1826E20243E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271782   (148813) от 24.12.2018
-
-VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steve Angello, T.D. Jakes - Rejoice (Vitalic Remix)
-002. Maluma, Becky G, Anitta - Mala Mía (Remix)
-003. Jojo - Note To God
-004. Castel - The Past And The Future (Fabio Salerni Remix)(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404BDB937CA8CB196DB6B94BBF262282FFC0BA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347605   (148731) от 24.12.2019
-
-VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148731.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.12 Stones - Crash (3:42)
-2.Blur - Song 2 (2:01)
-3.Disturbed - Stricken (4:07)
-4.DJ Muggs - Trap Assassin (2:54)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 02:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15709A80A54F02863ED0D55ED585FECC2C0350DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271521   (148680) от 24.12.2018
-
-VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Selena Gomez - Back to You
-03. Ed Sheeran - Shape of You
-04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
 ```
 
 https://mybot314.ru/tekegram_catalog/

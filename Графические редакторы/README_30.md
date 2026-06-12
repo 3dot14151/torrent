@@ -1,3 +1,55 @@
+###  Публикация: 1595465   (175336) от 05.12.2022
+
+HitPaw Watermark Remover 2.1.0.15 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_175336.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Watermark Remover предоставит возможность вам удалять водяные знаки с видеороликов и изображений, легко удалит дату, какой угодно объект, мешающих в кадре прохожих и прочее.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6591A7B434D94C7803B88FAF9CED75F993A76E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667900   (175112) от 10.10.2023
+
+CameraBag Pro 2023.4.0 RePack (& Portable) by elchupacabra
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175112.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить один из сотен прекрасных пресетов к вашим фотографиям (и видео с помощью CameraBag Pro), а затем погрузиться глубже с помощью ультраинтуитивных профессиональных настроек. Что действительно отличает CameraBag, так это мощные продвинутые инструменты, которые при этом понятны и просты в освоении. Поддержка множества RAW форматов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC52A3C1C0B3A401A967BC8A1A9D0A2F3C7B5351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595959   (174309) от 07.12.2022
 
 Фото на документы Профи 9.35 Portable by zeka.k [Ru]
@@ -6,7 +58,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_174309.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Fotosizer Pro 3.17.2.584 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_172260.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ FotoWorks XL 2024 24.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_171369.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ TurboCollage Advanced / Home / Professional 7.2.11.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_171313.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ DxO PureRAW 3.6.2 build 26 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_171135.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_170781.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Fransiz AIFilter #1 Professional  v1.11.03926 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_164175.jpg" />
 </div>
 
 
@@ -623,61 +675,6 @@ WidsMob AI Retoucher 2.3.0.112 RePack by OctaneS [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F701E29E773905CF6295F8838D84F9DCE566F9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967723   (158367) от 21.12.2015
-
-EximiousSoft Banner Maker 5.43 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158367.jpg" />
-</div>
-
-
-###  Подробнее
-
-EximiousSoft Banner Maker – программа для создания рекламных баннеров, веб кнопок…
-Поддерживает создание слоев для каждого элемента создаваемой веб графики.
-Для создания графики могут быть использованы растровые изображения и векторные формы.
-В программе имеются заранее приготовленные градиенты и текстуры различных стилей, фоновые изображения для заполнения формы (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04530DF130A12B3202805F907FB9788B9272250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676392   (157280) от 13.11.2023
-
-SILKYPIX RAW Converter 1.0.7.1 (x64) Portable by 7997 [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157280.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX RAW Converter — это программное обеспечение, которое преобразует данные изображений формата RAW, снятые цифровой камерой, в данные RAW (DNG) с более высоким разрешением и качеством изображения, чем обычные данные RAW. После получения наилучшего изображения его можно импортировать и настроить с помощью программного обеспечения других компаний или старых продуктов (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27834081194559F4F18F88F776F72D3F2CB30603
 ```
 
 https://mybot314.ru/tekegram_catalog/

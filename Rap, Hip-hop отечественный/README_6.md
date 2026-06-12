@@ -1,32 +1,3 @@
-###  Публикация: 1220431   (704312) от 19.04.2018
-
-Лигалайз - Молодой король (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маклауд
-02. Не Верь Хайпу
-03. Молодой Король
-04. Проклятый Рэп(   Читать дальше...   )Жанр: RapПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63E51B3AE78ED5B2137B36129919DB5DDE9E1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220663   (702334) от 20.04.2018
 
 Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C1E750224B1CFA4CCD56280026715F371E986F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227511   (646587) от 26.05.2018
+
+MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима
+02. ОМО
+03. Там, где
+04. Медуза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F61D5932EBA4F093857E6F2EA6D2B89579CC3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

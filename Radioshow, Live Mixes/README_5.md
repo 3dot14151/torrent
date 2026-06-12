@@ -1,3 +1,90 @@
+###  Публикация: 1496891   (869931) от 19.09.2021
+
+Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiffer - Memento
+02. Charlotte de Witte - Ensemble
+03. Vinicius Honorio - Erasure
+04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469279   (867398) от 20.03.2016
+
+Martin Grey - Solitudes Episode 001 - 127 (2009-2016)[MP3|320 кб/с]<Chillout, Ambient>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1 - Martin Grey:
+01. Simon Le Grec feat. Denise Guttenbach - There Must Be A Reason (Original Mix)
+02. Tim Deluxe - Surya (Reprise)
+03. Owen Ear - Inside(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Dark Ambient, Easy Listening, Psy Chill, LoungeПродолжительность: 284:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C987E35F4811A823925DD4BA3B1CAD99796C139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497313   (864946) от 22.09.2021
+
+Trance Wax - Live @ Atlantis Ibiza, Spain (2021-09-16) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
+02. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix)
+03. ID - ID
+04. Above & Beyond - Far From In Love (Trance Wax Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851852A93D8E28F10EAC337053D9D711A31973E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497562   (864882) от 22.09.2021
 
 VA - Live @ Supersonic Festival (2021) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
@@ -661,93 +748,6 @@ VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199386   (801836) от 15.01.2018
-
-VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorgio Kioris - Linda (Ziger Remix)
-02. Chris Llopis - Platonic Shower (Dmitry Molosh Remix)
-03. Chris Bekker - Klangstunde
-04. POok - Lola(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2204A58F0CD0B742137B2AD5BCA669B28DC502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199490   (801094) от 16.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam & Spoon - Follow Me (Luis Flores Remix / Markus Schulz Big Room Reconstruction)
-02. Jam El Mar - Four Full Moon Days
-03. Hilight Tribe - Free Tibet (Markus Schulz vs. Arkham Knights Remix)
-04. Ayla - Ayla (Ben Nicky & Luke Bond Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CA1896F2966E343DA577CA4C27186BFA257928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199568   (801037) от 16.01.2018
-
-VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Mashkov - Melilla (Extended Mix)
-02. ROMM & Alex BELIEVE feat Roxy Charming - Blind Feelings (Sundrowner Remix)
-03. M11 - All The Same Way (Kago Pengchi Remix)
-04. Yan Space feat. Christian BurnsPlanet Earth (Omnia Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A6448F9E705FC280A7CB62E5725635473F1CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

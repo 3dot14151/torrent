@@ -1,3 +1,293 @@
+###  Публикация: 1868978   (1067924) от 03.05.2026
+
+VA - Sexy Bath 8 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isabel LaRosa - Pretty Boy (2:03)
+02. 7latenights, Flyy Armani - GIRLS NEED LUV (2:03)
+03. Artemas - how could u love somebody like me (2:06)
+04. NYNE - Playboy (2:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5043DB1B599A674AAEE0A291B534D26117D7BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869019   (1067886) от 03.05.2026
+
+Ai - Russian poets covers 10 compilation (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Блок, Wps - Я Помню Нежность Ваших Плеч
+02 - М. Цветаева, Neura Eon - Колдунья
+03 - Ф. Сологуб, Поющий Поэт - Чёртовы Качели
+04 - Р. Рождественский, Poetica Soul - Отдать Тебе Любовь(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928628E5FB3F6006F3403716F259AAA514F89E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868900   (1067884) от 03.05.2026
+
+Uma2rman (Уматурман) - Compilation (2004-2026) [MP3|320 Kbps] <Pop rock, World>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067884.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Русский Колорит ❂ В Этом Городе Все Сумасшедшие 2011
+002. Хэппи ❂ Пой, Весна ! 2016
+003. Проститься ❂ В Городе N 2004
+004. Кино ❂ А Может Это Сон 2005(   Читать дальше...   )Жанр: Pop rock, WorldПродолжительность: 06:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F781BB9F144F3F074E007D62ECD704C546C081FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868879   (1067881) от 03.05.2026
+
+VA - Russian Hits 2020 [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067881.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:49]. 001-Tim Dian & Eva Harz - Закроем двери
+[2:40]. 0002-Vesna305 - Ватсап
+[2:42]. 003-Кравц & Tony Tonite - Чау чау
+[3:17]. 004-Дима Кэс - Она(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 05:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564D2133799EAB3E65F3B5373CD29E01AFAF541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868862   (1067880) от 03.05.2026
+
+Ai - Russian poets covers 9 compilation (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Александр Блок, Lus Aleksandrs - Ушла. Но Гиацинты Ждали...
+02 - С.Есенин, Leдокол - Дымом Половодье...
+03 - Анна Ахматова, Poetica Soul - Двадцать Первое. Ночь. Понедельник  (Rock Version)
+04 - Сергей Есенин, Poetica Soul - Вот Оно, Глупое Счастье  ( Soul Blues Saxophone)(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4AB2ED1CD4855C90D61F50FF962CACE36201A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869038   (1067847) от 03.05.2026
+
+VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Europe - All Or Nothing
+02. Suicidal Tendencies - Send Me Your Money
+03. Skid Row - Get The Fuck Out
+04. Nickelback - Lullaby(   Читать дальше...   )Жанр: RockПродолжительность: 04:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C1D33204EE49736204C6397251E92CCFB0BF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868758   (1067753) от 02.05.2026
+
+VA - Music - Pop vol.Four (2026) [MP3|320 Kbps] <Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family, Harddope, Nazz Muzik - Раз, два (Remix) (03:08)
+ 02. Нуки - Solve et Coagula (03:45)
+ 03. Phil Ginzburg - Beyond the Sky (03:28)
+ 04. BORIS REDWALL, K.SOUL, SALAME - ANOTHER ONE (02:25)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247345B57AAA06A894D9ABDF58F1A2904A040165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868635   (1067702) от 02.05.2026
+
+VA - No Name Compilation Simply listen music Part 90 Other (2026) [MP3|320 Kbps] <Electronic, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alina Belle - Drawn to You
+02 - Hanwave - You Are My Dream
+03 - Alina Belle - Afraid to Lose You
+04 - Ellie Ray - Only When it Rains(   Читать дальше...   )Жанр: Electronic, Pop, Dance, OtherПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D64E2E5D9F81B7065BCF637537F225F8748C4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868307   (1067459) от 30.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Burn Fast
+ 02 - Truth
+ 03 - It Stays
+ 04 - Childhood Rain(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E015F451D0055E0ED35303ABCE49D817D87856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868381   (1067458) от 30.04.2026
+
+Ai - Russian poets covers 8 compilation (2023) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Блок, Suno Verse Music - Сны
+02 - М. Цветаева, Suno Verse Music - Книги В Красном Переплёте
+03 - Н. Гумилёв, Suno Verse Music - Память
+04 - А. Блок - Ночь, Улица, Фонарь, Аптека(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF8808211B50B20B588EF1806E3EE9F9351D10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868234   (1067449) от 29.04.2026
 
 Кирпичи & Вася Васин - Compilation (1996-2026) [MP3|320 Kbps] <Alternative rap, Funk rock, Hip-Hop>
@@ -455,296 +745,6 @@ VA - Lenivo. Soviett Chill (2022) [MP3|320 Kbps] <Chillout, Downtempo, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CAF64CC39D96AFCFF94F049DEF04194D024FB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866743   (1066437) от 22.04.2026
-
-VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlimkhanOV A. - The City Never Sleeps (Vocal Mix) (5:53)
-02. Mancol - Angel Of Love (Extended) (5:43)
-03. Marc Fruttero & Tiziana Rivale - Time On Your Mind (Modern Mix) (3:39)
-04. Magic System D.J. - Without Your Love (Also Playable Mono Remix) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332BA83DC590B440438598F80811A1FF4791C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866014   (1065940) от 
-
-VA - ЕвроХит Топ 40 Europa Plus 17.04.2026 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker, Isabella Melkman, Katherine O'Ryan - Broken Strings (2:27)
-02. Bruno Mars - I Just Might (3:33)
-03. ZAYN - Die For Me (3:00)
-04. HOLLYFLAME - Тону (2:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A1B19E3E70EC4AD9B89CA8EAD6ED65C57F80EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866231   (1065797) от 19.04.2026
-
-VA - Listen on repeat (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Harlow - Lovin On Me (2:18)
-02. The Kid LAROI - STAY (with Justin Bieber) (2:21)
-03. OneRepublic - I Ain't Worried (2:28)
-04. Charli xcx - Apple (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0BAA33D2596EE4060A12995FD8AAC1FA26CAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866097   (1065789) от 19.04.2026
-
-Ai - Russian poets covers 5 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - М. Цветаева - Отодвинув Мечты
-02 - М. Цветаева - Я Тебя Отвоюю У Всех Земель, У Всех Небес...
-03 - С. Есенин, Dj Malinova - Мы Теперь Уходим Понемногу...
-04 - А. Блок - Клип  Мальчики Да Девочки...Свечечки Да Вербочки...(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49411B9853864000711FAE59FA0E51ECBCAA67CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866067   (1065788) от 19.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 8 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lovers Ii
- 02 - The Chosen One
- 03 - Me and You
- 04 - Take My Hand(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDB5C6F493CC94B9FE393667C3F1B01ABF0AB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866036   (1065775) от 19.04.2026
-
-VA - Russian Hits 2022 [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065775.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:53]. 001-Anna Asti - Повело
-[3:01]. 002-DJ Smash & Nivesta - Позвони
-[2:43]. 003-Dzhivan - Автор
-[4:05]. 004-Мари Краймбрери - Relax(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5DB133A137D080B260E528704E46BD4FC64CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865348   (1065750) от 
-
-Ai - Russian poets covers 3 (2026) [MP3|320 Kbps] <Other, Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Н. Гумилёв - Я И Вы
-02 - Н. Гумилёв - У Камина (Анне Ахматовой)
-03 - Н. Гумилёв - Шестое Чувство
-04 - Н. Гумилёв - Еще Не Раз Вы Вспомните Меня(   Читать дальше...   )Жанр: Other, CoversПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEF42875302E714F425A1F41D3C59F992BB6C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865553   (1065707) от 16.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 3,, В современной обработке (2026) (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleks Audio- Букет [04:09]
-02. A Krotov- Девчонка девчоночка [04:44]
-03. AUTOTUNES- Старый добрый Rock & Roll [03:11]
-04. R.S.Productions- Дожди [04:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F990B1FCE3B0397D014983029C07F8B2080430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865611   (1065654) от 16.04.2026
-
-Ai - No Name Compilation Simply listen music Part 89 Just Cover (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В. Высоцкий - Баллада О Любви (Ai Cover)
-02 - Е. Евтушенко - Остановись! (Проклятье Века -Это Спешка) (Ai Cover)
-03 - Вероника Тушнова - Не Отрекаются Любя (Ai Cover)
-04 - Б. Окуджава - Виноградная Косточка (Ai Cover)(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5844168E9F22B0C9ED33888B45F23C65D86841A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865489   (1065652) от 16.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 7 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Sufferin’ Heart
-02 - Blood
-03 - My Road’s With You
-04 - Unfillable(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E19A280FC910D41F6FCE772AC431997314345D
 ```
 
 https://mybot314.ru/tekegram_catalog/

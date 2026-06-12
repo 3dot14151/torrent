@@ -1,32 +1,3 @@
-###  Публикация: 1375892   (862168) от 16.04.2020
-
-VA - Cay Hume And His Music Productions 1-3 (2016-2017) Remastered [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cay Hume - Call Me Up (House Music Version) (6:46)
-02. Top Secret - Let It Be (12'' Version) (5:59)
-03. Jean & Jill - Blue Blue Eyes (12'' Version) (6:59)
-04. T. Ark - Count On Me (12'' Version) (6:31)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376090   (861791) от 16.04.2020
 
 VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -745,6 +716,35 @@ Baby's Gang - Challenger (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB39570A0F9885EA958661296552C857B40127F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505857   (802840) от 28.10.2021
+
+Hazell Dean - The Dean & Ware Collection (2CD) (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Pop, Dance-Pop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day
+02. Nightlife
+03. Out of Control
+04. Whatever I Do (Wherever I Go)(   Читать дальше...   )Жанр: Euro-Disco, Pop, Dance-Pop, Hi-NRGПродолжительность: 02:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAB51D9C023D36EA45D7135A690B79155895076
 ```
 
 https://mybot314.ru/tekegram_catalog/

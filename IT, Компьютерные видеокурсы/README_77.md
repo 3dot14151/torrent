@@ -1,87 +1,3 @@
-###  Публикация: 1641298   (247431) от 22.06.2023
-
-Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  (2023) WEB-DL [EN, RU / EN Sub]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247431.jpg" />
-</div>
-
-
-###  Подробнее
-
-In 2023, React is still the #1 skill to learn if you want to become a successful front-end developer!
-But it can be hard. There are so many moving parts, so many different libraries, so many tutorials out there.
-That's why you came here... And you came to the right place! This is THE ultimate React course for 2023 and beyond.
-A practice-heavy approach to master React (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 67:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641505   (247409) от 23.06.2023
-
-Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps (2023) WEB-DL [En / En sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Welcome to the ultimate Python learning experience! The Python Mega Course is designed to take you from a complete beginner to a confident Python programmer in just 60 days. Whether you're starting from scratch or want to enhance your programming skills, this comprehensive course is your ticket to mastering Python and building real-world applications.Производство: UdemyЖанр: Информационные технологииЯзык озвучки: АнглийскийПродолжительность: 51:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640456   (247322) от 27.06.2023
-
-Курсы-по-1С.РФ | Расширенный курс по разработке и оптимизации запросов в 1С (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колоссальный курс про построение, анализ и оптимизацию запросов в 1С – более 50 учебных часов!
-Самое подробное рассмотрение нюансов и деталей – и для начинающих, и для программистов с опытом в несколько лет.
-Что Вы изучите на курсе:Механику хранения данных в 1С и модели доступа к данным.
-Полный синтаксис текста запросов – поля, операторы, функции, выражения, группировка (   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 49:34:24Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644836   (247151) от 06.07.2023
 
 Udemy, Андрей Кудлай | Telegram bot интернет-магазин. Веб-приложения в Telegram (2023) WEB-DL [AD] [RU]
@@ -716,6 +632,84 @@ Udemy, Антон Трунович | Основы информационной �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFDA7EFB2F840A7AB7A2C8F47D1ED471DB46188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549723   (236583) от 08.05.2022
+
+Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for 2022 (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс администрирования Linux охватывает все основные темы, включая все важные команды Linux, файловую систему Linux, права доступа к файлам, управление процессами, управление учетными записями пользователей, управление программным обеспечением, работу в сети в Linux, системное администрирование, сценарии Bash, межсетевой экран Iptables/Netfilter, безопасность (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 20:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72678F48F92B771CDCB6FC2B12EE078463507532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549917   (236313) от 09.05.2022
+
+Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы получите подробное пошаговое объяснение классических задач LeetCode, отобранных вручную, где вы узнаете об оптимальных способах решения вопроса на собеседовании по техническому программированию. Это курс, который я хотел бы иметь, когда готовился к собеседованию. LeetCode — это огромный репозиторий реальных вопросов для интервью, заданных самыми популярными (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 29:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550580   (236045) от 11.05.2022
+
+Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение работе с сервисами (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс – пошаговая инструкция для тех, кто хочет начать работать с Amazon Web Services без каких-либо имеющихся знаний. Мы вместе пройдём процесс создания и настройки нашего аккаунта, после чего приступим к работе с ним, параллельно знакомясь с основными сервисами AWS. Вы узнаете, как взаимодействуют различные аспекты облачных вычислений между собой, а также что (   Читать дальше...   )Производство: UdemyЖанр: Amazon AWSЯзык озвучки: РусскийПродолжительность: 04:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBA68F8AD15D307312166F6A67501FF8F152F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

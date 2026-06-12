@@ -1,3 +1,90 @@
+###  Публикация: 498738   (256433) от 21.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 48 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827AB9020B919D4DF26F80FF86D4542D0402B7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497813   (253745) от 17.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 44 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F33D3E7A0C34C280AA00C1281BB651754FB519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497945   (253744) от 17.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 45 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.Findon - Andante, Andante
+02. F.Papetti - Melodia
+03. ДиДюЛя - Фламенко
+04. G.Marradi - A Chilly Wind From The North
+05. Downbeat Corp - Satori
+06. DJ Грув - 9 рота
+07. J.Last - Summchor
+08. F.Goya - If I Fell
+09. B.Sarius - Kustennebel
+10. Keiko Matsui - Dawn Opener (edit)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD32EA11D532784AE514F833AA9DDF5E5F91901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496428   (253473) от 16.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 40 [MP3|320 кб/с]<Instrumental>
@@ -622,93 +709,6 @@ VA - Royal Lounge: Relax Partitura (2016) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA4F132972CD7A69D5651155D198F3AB279EE888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650559   (220752) от 07.08.2023
-
-Paul Mauriat - El Bimbo & Toccata (1973-1975) Remastered, 2019, Vocalion [OGG Vorbis|480 Kbps] <Jazz, Pop, Stage & Screen>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220752.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Bimbo (1975)
-01. El Bimbo
-02. The Way We Were
-03. I Wont Last a Day Without You(   Читать дальше...   )Жанр: Jazz, Pop, Stage & ScreenПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B55E4C1448DBCB5D510D973DDC01B0107BC71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585660   (220314) от 23.10.2022
-
-VA - The Heavenly Wanderers (2022) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Meditation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vektroid - Tesselation A
-002. Rhucle - Ju
-003. From The Mouth - There Was This Fire Inside Me
-004. Sunwarper - Future Fade(   Читать дальше...   )Жанр: Ambient, Downtempo, Relax, MeditationПродолжительность: 11:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FE4B919B3EEA983EB71CB9E51911064FE21896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083822   (219949) от 18.12.2016
-
-VA - Magic Instrumental Music Vol. 3 (2016) [MP3|320 Kbps] <Instrumental, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerd Bingemann - Edelstein
-02. Daveed - Great Morning
-03. Armik - Midnight Bolero
-04. Fomichev - Seeing Off(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 07:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57553CA5EAA85013B2697D5C0452A54175AFE412
 ```
 
 https://mybot314.ru/tekegram_catalog/

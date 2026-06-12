@@ -1,3 +1,177 @@
+###  Публикация: 1814423   (5269) от 30.08.2025
+
+VA - Привет Уходящему Лету (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies, Calum Scott - Where Are You Now - Deluxe Mix (4:14)
+02. Mau P - Drugs From Amsterdam (3:55)
+03. Chrystal, NOTION - The Days - NOTION Remix (3:53)
+04. Peggy Gou - (It Goes Like) Nanana - Edit (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3259B6AF572A882E7A9C65503C98A19E13524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815562   (5191) от 30.08.2025
+
+VA - Music News For Forum vol.131 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva Tronza - Была не была (02:10)
+ 002. 2 Chainz - Thought You Loved Me (02:59)
+ 003. 2 Chainz & Youngboy Never Broke Again - I Wanna Win (03:22)
+ 004. 2DICE - No filters (02:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE99D404A5910CEBCFABF7DF2D10397E6FBFF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815703   (4970) от 31.08.2025
+
+DJ Moralez & Various Artists - Nrg Colabmix compilation part 3 (2025) [MP3|320 Kbps] <Euro-Disco, New Italo, Disco Style>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Davit Barqaia - Tell Me Why
+02 - Jambeats & Dj Moralez - Città Dell'amore
+03 - Gilla & Dj Moralez - Johnny
+04 - Dj Moralez & Nikolaev - Good for You(   Читать дальше...   )Жанр: Euro-Disco, New Italo, Disco StyleПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5223ED887B2F748A83EFF1079D295F4CEB9E6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815678   (4949) от 31.08.2025
+
+VA - National Pop Dance Music Vol.118 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexy Large - Si J'pouvais (02:22)
+ 002. Emma'a - Ca M'a Laisse (02:17)
+ 003. Fifty Fifty - Pookie (02:33)
+ 004. Justice & Tame Impala - One Night (04:36)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37DB7F036CA71D5754F49FD3B8B635F5452FE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815710   (4944) от 31.08.2025
+
+VA - Musical kaleidoscope part 51 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сергей Грищук - Лунная Дорога
+02 - Danekoo1 - In the Blackness of the Soul
+03 - Poem - Giovanni Marradi
+04 - Aleksey Boychenko - The Secret of the Universe(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C93EC523D43CE6015DEC7D22CDEEC9455BC13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815851   (4851) от 01.09.2025
+
+VA - Music News For Forum vol.132 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daria Lupi - Arde (02:22)
+ 002. 2Scratch - Something About U (02:49)
+ 003. 17tess - Гладиатор обосрался (01:46)
+ 004. 383SNOW - Исповедь (01:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FE6B22501ACA1B2DC2ADFB02B6FA0EB2D90947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816051   (4654) от 02.09.2025
 
 VA - Musical kaleidoscope part 52 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
@@ -568,180 +742,6 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b002] (2012-2025) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CCE8D03052BC4513ED3BF952A0FACEDA34DC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819027   (1599) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a007] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arcando, Lunis - Habits (Stay High).mp3
-002. Arcania - Sacrifice (Original Mix).mp3
-003. ArchAngel - Your Absence (Original Mix).mp3
-004. Archelli Findz - Et Si Tu Nexistais Pas.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05506F0781BE4E29576D9E534C4479BD20C1A77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819205   (1597) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [b001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B Jones feat. Jose Am - Infinity 2023 (Radio Edit).mp3
-002. B Jones feat. Stadiumx x Maria Mathea - Dont Forget.mp3
-003. B.G. The Prince of Rap & Chrizz Morisson feat. Timi Kullai - Never Give Up (Mirko Remix).mp3
-004. B.o.B feat. Priscilla - John Doe.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC336C331C5C5823B293331DABF841D7FE7E131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819025   (1595) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a006] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Craig - Shattered Dreams (Original Mix).mp3
-002. Andy Craig, Prodigio - Daddy Cool (Original Mix).mp3
-003. Andy Groove & Sam Vince - The Knot (Ivan Seagal Edit).mp3
-004. Ane Brun - All My Tears (Dj Bobby Evs & Barney Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A499D5CA632AC7339B67CC7D07B24019E2DAA324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819023   (1594) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a005] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AM 1984 - El Condor.mp3
-002. AM 1984 - Walking On The Road.mp3
-003. Amadeus - Breaking Point (Original mix).mp3
-004. Amanda Batista - Praia De Ipanema.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B86C2F9D05F2B2ABDE11EEE4B228E26183F9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819022   (1592) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a004] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1592.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Sheronov - Solar Soul.mp3
-002. Alex Sin - Crazy (Original Mix).mp3
-003. Alex Spite - Camelia.mp3
-004. Alex Spite - Darkness.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F51571DC21FAC75819C7979C4DF591CA7FCB615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819207   (1590) от 21.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Marley - Bad Boys (Arefiev Remix) (Radio Edit).mp3
-002. Boba - Redbone (Kvinn Remix).mp3
-003. Bobby Farrell ft. Monica Bay - Gotta Go Home (Original mix).mp3
-004. Bobina - Invisible Touch (Dmitry Glushkov Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC2D74636EBB855DDB971F817223D77747D822B
 ```
 
 https://mybot314.ru/tekegram_catalog/

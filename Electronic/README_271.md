@@ -1,3 +1,61 @@
+###  Публикация: 1046105   (556984) от 25.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 7 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capa - People & Places
+02. Derrick - Just To Be
+03. Jane Maximova - Late In The Night
+04. Ingo Herrmann - Lala-Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C364592F1E4FE5DA682B9536CC67A15552889F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045881   (556983) от 25.08.2016
+
+VA - Moments - Chill-Out & Lounge Series, Vol. 6 (2015) [MP3|320 Kbps] <Electronic, ChillOut, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - In the Palm of Your Hand (3:45)
+02. Charly'n Black - Sur La Route De Lausanne (4:52)
+03. Marcus Koch - Deeper Space (5:30)
+04. Weathertunes - The New Jazz Five (4:12)(   Читать дальше...   )Жанр: Electronic, ChillOut, LoungeПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57632B247027E0C00EE190BFA073BE9646BF392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045879   (556981) от 25.08.2016
 
 VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
@@ -687,64 +745,6 @@ VA - On Air Deep & Soulful House Tunes (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A22ACDFB245F34AC7861569A3F034605E4731E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306162   (555804) от 03.06.2019
-
-VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye  -  When The Sun Goes Down (Radio Cut)
-02.  DJ Dean & K.Blank feat. Elaine Winter  -  Flashback (Rene Ablaze and Jam da Bass Radio Edit)
-03.  Arcania  -  This Means War (Radio Edit)
-04.  Jay & Symon  -  Aerify (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D26ED15F5BAB5E468103048AF00B38B0095053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306867   (555488) от 06.06.2019
-
-Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Advent (feat. Lysann Zander) (03:50)
- 02. Westfal (feat. Lysann Zander) (02:16)
- 03. Iklahx (02:36)
- 04. Ak-Do 5 (04:41)(   Читать дальше...   )Жанр: Tech House, Minimal, HouseПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF116D9C5A7CBD50D37A5E1E6A7A04F7B236B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

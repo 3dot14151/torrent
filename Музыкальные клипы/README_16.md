@@ -1,3 +1,29 @@
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286385   (708721) от 04.03.2019
 
 Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
@@ -678,32 +704,6 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E8A7762DD51C1C282D6509DDCAD60A907D475E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514948   (656622) от 25.06.2012
-
-DVJ Bazuka - Summer Love (2012) [720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772F12186BDC6DE9660A8EFD3640ED33C77BFB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

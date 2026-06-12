@@ -1,113 +1,3 @@
-###  Публикация: 1505894   (801812) от 29.10.2021
-
-VA - Chillout Orange, Vol. 7: Relaxing Chillout Vibes (2021) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Kay, Samanta Liza - Summer Love / You Are Still Here (Ibiza Mix) (4:21)
-02. Martin Hiska - Intimate (4:28)
-03. The Soul Crusaders - Heroes (5:46)
-04. Ian Otta - Flowerfields (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B16611B2F2C490CA4EE31D8AADA001D7D56415C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505893   (801811) от 29.10.2021
-
-VA - Chillout Orange, Vol. 6: Relaxing Chillout Vibes (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - La Nuit (Original Mix) (5:46)
-02. The Soul Crusaders - In My Dreams (7:31)
-03. Eivissarts - Solaris (Original Mix) (5:05)
-04. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCE14889BF6D23E0673257437E87C6440ACBF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199256   (801708) от 15.01.2018
-
-Борг/Макинрой / Borg McEnroe (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две звезды, один судьбоносный матч и миллионы зрителей. Невозмутимый Борг против вспыльчивого Макинроя. Упорство против упрямства. Борьба двух противоположных характеров, движимых, однако, одной целью — быть лучшим!Производство: Швеция, Дания, ФинляндияЖанр: Драма, биография, спортРежиссер: Янус МецАктеры: Сверрир Гуднасон, Шайа ЛаБаф, Стеллан Скарсгард, Тува Новотны, Лео Борг, Маркус Моссберг, Джексон Гэнн, Скотт Артур, Йен Блэкман, Роберт ЭммсПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2C2CF634686DE1E915E1A0D7658A0E6FAD5551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199414   (801632) от 15.01.2018
-
-Новизна / Newness (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара свободных минут, доступ в интернет и идеальное приложение для знакомств — все что нужно для быстрого поиска партнера на пару часов. 21 век. Своеобразная рулетка для любителей свиданий и дружеского секса без обязательств. Усилий никаких не требуется, вам остается только перемещаться по экрану смартфона легким скольжением пальцев, привередливо сжав губы. Дефицита (   Читать дальше...   )Производство: СШАЖанр: Драма, мелодрамаРежиссер: Дрейк ДоримусАктеры: Николас Холт, Лайа Коста, Дэнни Хьюстон, Кортни Итон, Мэттью Грей Гублер, Пом Клементьефф, Дэвид Селби, Аманда Серра, Джессика Хенвик, Альберт Хэммонд мл.Перевод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36A319DFEFA43310381A314C658FEB00923DDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506017   (801578) от 29.10.2021
 
 Tony Bennett, Lady Gaga - Love For Sale (Deluxe) (2021) [AAC|~294 Kbps] <Jazz>
@@ -706,6 +596,119 @@ VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F173C8919E8EFF7F3F8D758039549F0999583ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506420   (800265) от 31.10.2021
+
+Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
+02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
+03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
+04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506421   (800264) от 31.10.2021
+
+Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
+02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
+03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
+04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121402   (800259) от 02.04.2017
+
+Аисты / Storks (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аисты приносят детей... или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас СтоллерАктеры: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив Гликман, Кристофер Николас СмитПеревод: Дублированный (Blu-ray 3D NORDiC)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E106D6953606BC782EE2681EFAD6A791E059C6C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506449   (800251) от 31.10.2021
+
+VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Can See the Light in Her Eyes (4:50)
+02. Johannes Huppertz - Morning Star (4:22)
+03. Cardinal Zen - Rain and Snow (4:19)
+04. Weathertunes - Smoke and Mirrors (3:48)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1137F7D590D9D1DA43EB2D622E792287B62E0D45
 ```
 
 https://mybot314.ru/tekegram_catalog/

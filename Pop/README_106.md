@@ -1,3 +1,151 @@
+###  Публикация: 780720   (759475) от 26.04.2014
+
+VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
+Продoлжитeльность: 01:14:49
+ 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
+02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018015   (759271) от 18.05.2016
+
+Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский певец, гитарист и продюсер.
+Имел множество хитов в 1970-х и начале 1980-х годов.
+Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
+исполнения невозможно не узнать!01. Slipping Away   (4:22)
+02. Don't You Double   (3:16)
+03. I Want You Bad   (2:36)
+04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280512   (758726) от 04.02.2019
+
+Татьяна Лихачёва - Кофе с перцем (2002) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё теперь не так...
+02. Любовь - холодная война
+03. Кофе с перцем
+04. Я хочу забыть тебя(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054CA2665687AF277DA25D705ECAAEA4B7A3F27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280510   (758724) от 04.02.2019
+
+Анна Резникова - Навсегда (2001) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Навсегда 4:24
+02. Прощальные слова 3:58
+03. Кто в доме генерал? 3:48
+04. Лист любви 4:42(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D56202B7D04F4EB17655BF016E9DC5FB9B4AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662272   (758558) от 29.05.2013
+
+София Ротару - Звездная серия (2CD) (1999) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758558.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1Жанр: PopПродолжительность: 01:19:35
+
+01.Червона рута (3:52)
+02.Черемшина (3:24)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522495   (758252) от 07.01.2022
 
 INNA - Champagne Problems #DQH1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -596,151 +744,6 @@ Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018984   (753633) от 21.05.2016
-
-VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atella feat. O Martin - Mechanical Sparrow (04:32)
-02. Nteibint feat. Rush Midnight - By Your Side (04:31)
-03. Du Tonc - We Can Hold On (Satin Jackets dub) (05:06)
-04. MiddleSkyBoom feat. Eliezer - Slow With The Run (05:52)(   Читать дальше...   )Производство: Eskimo BelgiumЖанр: Disco, Nu-DiscoПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348282993F6E988E1A705373F8E7FCB67C18E582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281202   (753482) от 07.02.2019
-
-The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Words (3:43)
- 02. Slow Drowning (4:29)
- 03. In Trouble and Shame (7:07)
- 04. This Means War (radio mix) (3:28)(   Читать дальше...   )Жанр: Pop Rock, New Wave, 80sПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281228   (753362) от 07.02.2019
-
-VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various (Mixed by Mr. Acetone) - Megamix Version [111-124 BPM] (14:18)
-1.1-Fable Time - Russia
-1.2-Tom Hooker - Feeling Okay
-1.3-Madonna & MC Miker ''G'' & Deejay Sven - Holiday Rap(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018911   (752171) от 22.05.2016
-
-Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Getcha Good! (4:13)
-02. You Win My Love (4:33)
-03. Don't Be Stupid (You Know I Love You) (3:45)
-04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281536   (751955) от 08.02.2019
-
-Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австрийская поп-группа, основанная в 1987 году Лео Корном.01. You (3:24)
-02. Curacao (3:10)
-03. I Feel Good (3:28)
-04. Time Up For Love (4:11)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEF3A6FDA1AC4BDEDD15CCB4FBE8256A858929E
 ```
 
 https://mybot314.ru/tekegram_catalog/

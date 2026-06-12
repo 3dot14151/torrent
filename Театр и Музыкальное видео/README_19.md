@@ -1,60 +1,3 @@
-###  Публикация: 980936   (954667) от 30.01.2016
-
-VA - The Paris Concert For Amnesty International The Struggle Continues… (1999) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Artist - Opening Credits
-02. No Artist - Introduction Presenter – Anita Roddick
-03. Peter Gabriel, Tracy Chapman, Bruce Springsteen & Youssou N'Dour - Get Up, Stand Up
-04. No Artist - Animation Short - Keep The Light(   Читать дальше...   )Жанр: Alternative Rock, Classic Rock, AfricanПеревод: ОтсутствуетПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBDD3D3781DF536B9310A6F8CBA38C56F075D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980587   (954445) от 30.01.2016
-
-Владимир Высоцкий - Кинохроника (2009-2010) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В "Кинохронику Владимир Высоцкий" вошли кадры, где Владимир Семенович поет, рассказывает о своей работе в театре, в кино, о музыке.
-Время не властно над памятью...
-Яркое тому подтверждение-неугасающий интерес к личности и творчеству Владимира Высоцкого. Три десятилетия, прошедших с момента его ухода из жизни, ничуть не отдалили во времени легендарный образ (   Читать дальше...   )Производство: Россия, "Ракурс" & "Квадро-Диск"Жанр: Документальный, Фильм-концертАктеры: Владимир ВысоцкийПродолжительность: 03:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677B1C9628CC5BA0C031BFDE3ABF8D745690DE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980651   (954440) от 30.01.2016
 
 Cerrone - Culture (2004) DVD9
@@ -728,6 +671,64 @@ Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8C91560ED61C57586AEC59B833C6E37B924FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981443   (949798) от 02.02.2016
+
+New Order - A Collection (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Confusion
+2.The Perfect Kiss
+3.Shellshock
+4.State Of The Nation(   Читать дальше...   )Жанр: New Wave, Synth-pop, Indie RockПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCFD2BC53A2B4E37C0AB14DED4EFEB96EF097B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982080   (949645) от 02.02.2016
+
+Joe Dassin - a Toi... Live a L'Olympia (1977) 2005 Sony&BMG, DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ouverture
+01. Le Musique
+02. Oh la la
+03. L'Ete Indien(   Читать дальше...   )Жанр: Pop RockПеревод: ОтсутствуетПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114E2369720A735033DC1335D4218B52718193DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

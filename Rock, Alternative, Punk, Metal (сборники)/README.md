@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874684   (1072316) от 
+
+Александр Иванов & Рондо - Compilation (1984-2024) [MP3|320 Kbps] <Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вселенная (Бледный Бармен) ❂ Убей Меня Своей Любовью 1991
+02. Я Буду Помнить ❂ Баллады 1995
+03. На Одной Земле ❂ Убей Меня Своей Любовью 1991
+04. Белый Бультерьер ❂ Добро Пожаловать в Рай 1994(   Читать дальше...   )Жанр: Pop rockПродолжительность: 05:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADAAF1E9E082A4B9C64793C6DB1CC9B264807A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873206   (1071131) от 27.05.2026
 
 VA - Solo Projects From Europe (1987-2022) [MP3|320 Kbps] <Rock>
@@ -717,35 +746,6 @@ VA - Classic Hits (2026) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51443C0EF228D5A515A5DF2EDCF21C66F247FED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862315   (1064191) от 30.03.2026
-
-VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. PRESIDENT - Mercy (3:49)
-002. Nickelback - Bones For The Crows (4:04)
-003. Pierce The Veil - So Far So Fake (3:56)
-004. Bilmuri - ALWAYS LET YOU DOWN (feat. A Day To Remember) (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 06:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB9CBF265DD2B08D83023171D4CEC64BAA405AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

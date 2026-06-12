@@ -1,3 +1,145 @@
+###  Публикация: 1506803   (799091) от 02.11.2021
+
+Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitch Dark (4:54)
+ 02. Proud (3:56)
+ 03. Jones St. (4:52)
+ 04. Fireworks (4:25)(   Читать дальше...   )Жанр: EDM, Deep House, Chill HouseПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506469   (799087) от 02.11.2021
+
+Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506946   (799049) от 02.11.2021
+
+Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baas - Alter Ego
+02. Gaga & Mateo! - Galvanize
+04. Shouse - Love Tonight (ID Remix)
+04. Chapter & Verse - Lights Go Out (ID Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024375   (798945) от 02.11.2021
+
+Foretaste - 8 Albums (2005-2021) [MP3|320 кб/с] <Electronic, Synthpop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foretaste (Предвкушение) - французская синти-поп группа, малоизвестная в России, по всей видимости из-за лимитированных изданий альбомов, но весьма впечатляющая.Список альбомов:
+01. 2005 - Beautiful Creatures
+02. 2008 - Terrorist TV
+03. 2011 - Love On Demand(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 06:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100A0ED1D62740A2A44994CB4E7A2BA9AD8E0F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230757   (798934) от 02.11.2021
+
+Mehdi Saleh aka: Alphaxone, Inner Place, Monolith Cycle, Spuntic - Discography 50 Releases (2010-2021) [MP3|320 Kbps] <Dark Ambient, Soundscape, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alphaxone:
+Inner Place:
+Monolith Cycle:
+Spuntic:(   Читать дальше...   )Жанр: Dark Ambient, Soundscape, Ambient, Visual Space Music, DroneПродолжительность: 41:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6C1F91AEA17951BFF07964684D7F7D20CFBB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122269   (798886) от 05.04.2017
 
 VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -598,151 +740,6 @@ CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFDDA354A88D13CFB276115614F2E881598319B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507539   (798098) от 06.11.2021
-
-Jean-Michel Jarre - Welcome To The Other Side - Live in Notre Dame VR (2021) [FLAC|Lossless|image + .cue] <Electro, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening (3:30)
-02. Oxygene 2 (JMJ Rework of Kosinski remix) (4:33)
-03. The Architect (3:23)
-04. Oxygene 19 (3:46)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C479799F06CD73BEB98F74B3D60C273CF278E8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508230   (797985) от 07.11.2021
-
-Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redshift (8:28)
-02. Distance (8:15)
-03. Next Steps (7:31)
-04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507881   (797980) от 07.11.2021
-
-Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redshift (8:28)
-02. Distance (8:15)
-03. Next Steps (7:31)
-04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F567C28A382A5B451EAD839B75A1D1292EED5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508227   (797978) от 07.11.2021
-
-VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - MIR (5:34)
-02. Soulstring - Gagarin (5:50)
-03. Ionov - Spacewave (3:16)
-04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D92C76CF29ABE02001E331C50CEAF26856EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507879   (797971) от 07.11.2021
-
-VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - MIR (5:34)
-02. Soulstring - Gagarin (5:50)
-03. Ionov - Spacewave (3:16)
-04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

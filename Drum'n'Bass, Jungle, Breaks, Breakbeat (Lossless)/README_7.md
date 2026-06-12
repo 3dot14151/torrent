@@ -1,3 +1,32 @@
+###  Публикация: 1633511   (234329) от 15.05.2023
+
+Koan - Don Quixote's Passion (Side C.D) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Organic House, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Foggy Labyrinths (Progressive Version) (8:54)
+02. Cracked Spear (8:46)
+03. One Thousand and One Nights (The Whirling Dervish Mix) (10:01)
+04. Disturbing Presence (1958 Mix) (8:22)(   Читать дальше...   )Жанр: Electronic, Organic House, Breakbeat |Продолжительность: 02:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFC6CD86B263074A36DA73F6A7B36929837B16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412458   (228951) от 16.11.2020
 
 Mystic State - Discography 28 Releases (2013-2020) Artikal Music UK, The Chikara Project [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Halftime, Jungle>
@@ -696,35 +725,6 @@ ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704070   (114647) от 02.03.2024
-
-Lee Mvtthews - Exit (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ripple (4:30)
-02. Can't Get Enough (4:30)
-03. Circles (3:48)
-04. Lightspeed (4:36)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46234D2C7B5ED48F6D674D35B6FF19B88EF969A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

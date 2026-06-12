@@ -1,32 +1,3 @@
-###  Публикация: 1505857   (802840) от 28.10.2021
-
-Hazell Dean - The Dean & Ware Collection (2CD) (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Pop, Dance-Pop, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement Day
-02. Nightlife
-03. Out of Control
-04. Whatever I Do (Wherever I Go)(   Читать дальше...   )Жанр: Euro-Disco, Pop, Dance-Pop, Hi-NRGПродолжительность: 02:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAB51D9C023D36EA45D7135A690B79155895076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506093   (801515) от 29.10.2021
 
 Beast In Black - Dark Connection (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Power Metal>
@@ -742,6 +713,35 @@ Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013029   (777914) от 03.05.2016
+
+Gilla - Dance SuperHits (1999) [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cat
+02. The Heat Is On
+03. Johnny
+04. Go Down Mainstreet(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22DCBA9520907D0630384A9BBDCE460903D4165
 ```
 
 https://mybot314.ru/tekegram_catalog/

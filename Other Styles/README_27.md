@@ -1,3 +1,116 @@
+###  Публикация: 867779   (901039) от 09.02.2015
+
+John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vortex (4:44)
+02. Obsidian (8:24)
+03. Fallen (4:44)
+04. Domain (6:33)(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992428   (900906) от 02.03.2016
+
+Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2015) [MP3|128-256 кб/с] <ost, score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alva Noto & Bryce Dessner - Hawk Punished (02:15)
+02. Bryce Dessner - Imagining Buffalo (02:41)
+03. Bryce Dessner - Looking for Glass (02:52)
+04. Ryuichi Sakamoto - Arriving at Fort Kiowa (01:23)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9487F1838B0112A77ED2C62D6129BFD6B77162C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100486   (899532) от 04.02.2017
+
+Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigmatic, Gregorianic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Works Of Charity (11:30)
+02. Love And Faith (9:25)
+03. Faith Is Bliss (9:03)
+04. Faith-Healing (8:49)(   Читать дальше...   )Жанр: New Age, Enigmatic, GregorianicПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284677   (899486) от 25.03.2020
+
+Звуки природы - Океанский прибой (1997) [FLAC|Lossless|image] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Океанский прибой (01:03:07)Жанр: RelaxПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992788   (899214) от 03.03.2016
 
 Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -623,128 +736,6 @@ VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101863   (892929) от 08.02.2017
-
-Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  My Everything [00:04:51]
-02 -  Melting Heart [00:05:02]
-03 -  Meditation [00:07:06]
-04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101989   (892922) от 08.02.2017
-
-Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Churning the Ether (10:30)
-2. The Water of Life (09:34)
-3. Solaris (11:25)
-4. Moontide (08:40)(   Читать дальше...   )Жанр: New-Age, Electronic, AmbientПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCE8F70C7A64C10AF975E9F18E72FDFED67BB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184230   (892528) от 18.03.2010
-
-Русско-Кельтский оркестр Reelroadъ - Дискография [MP3|320 kbps]<Celtic-Slavic Folk/Post-Folk/Instrumental]
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А в нашем садочке (4:36)
-02. Растоплялась парна баенка (4:04)
-03. Верба (4:39)
-04. На дворе дождь! (2:28)
-05. Ты заря (1:55)
-06. Гуляю, гуляю (3:33)
-07. А на горе мак (4:58)
-08. Павлин (5:39)
-09. Тюря (3:25)
-10. Лён (3:41)(   Читать дальше...)Жанр: Celtic-Slavic Folk/Post-Folk/InstrumentalФормат: MP3
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371159   (892019) от 30.03.2020
-
-Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 12 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Рябцев родился 12 марта 1963 году в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 году заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. Make A Wish (4:50)
-02. In Harmony (3:32)
-03. On The Crest Of A Wave (4:06)
-04. Between The Past And The Future (4:48)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

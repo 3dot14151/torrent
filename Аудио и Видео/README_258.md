@@ -1,119 +1,3 @@
-###  Публикация: 1515509   (169575) от 07.12.2021
-
-VA - Finesse Jazz, Vol.1 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~337 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderphazz - The Call Of The Sea (Saxy Edit) (2:46)
-02. Chocolate Drops - Reversed Stars (4:36)
-03. Diamond Duke Band - Crocodile Smile (Midnight Passion Lounge Mix) (4:18)
-04. Kenny Woodwind - Wind In The Wind (2:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EFEE9127CF998D059016BE04A13B7C90DCD922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515437   (169569) от 07.12.2021
-
-VA - Best of Chill Jazz 7 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry - I Can't Stop Loving You (4:22)
-02. Kool&Klean - River Flows in You (4:37)
-03. Chillaxing Jazz Kollektion - The Quiet Lakes (4:27)
-04. Love Suggestions - It’s Our Time (5:46)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82040127D13748158CD9EBB31662DC849AC5140B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515429   (169564) от 07.12.2021
-
-VA - Best of Chill Jazz 2 (2019) [AAC|~343 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Blue Water (4:00)
-02. eJazz Artistry - Angel (4:41)
-03. Kool&Klean - Beautiful Surprise (4:25)
-04. eJazz Artistry - How Will I Know (4:24)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E6EF69D601438A5ECB90D2F6AB4F2629E97C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515428   (169562) от 07.12.2021
-
-VA - Best of Chill Jazz 1 (2019) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Like a River (5:23)
-02. Love Suggestions - Clarity (4:36)
-03. Chillaxing Jazz Kollektion - You and I (4:11)
-04. Kool&Klean - Lost (4:33)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED111849EDF21F79E5B7F8290C3553893143BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515225   (169552) от 07.12.2021
 
 VA - A Tribe Called Kotori 6 (2021) [AAC|~329 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
@@ -739,6 +623,122 @@ VA - Casa of House, Vol. 1 (2021) [AAC|~335 Kbps] <Progressive House, Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49A115033E61357CCF33BA7F18B3E9839F4E73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515681   (168789) от 08.12.2021
+
+VA - Sacred Journey, Vol. 4 (2021) [AAC|~303 Kbps] <Electronic, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Count of S.G. - From the Inner Lights (2:32)
+02. La Nau - Theta Waves (3:02)
+03. Somnia Magnus - Dream of Gilgamesh (2:28)
+04. Rol - Gemal (2:29)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA00666907579A4BDC81FB6F5B14672F6C98A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515667   (168787) от 08.12.2021
+
+VA - Nightflight Berlin – 22 Premium Downbeat & Lounge Trax (2014) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - A Little Bit (Shattered Dream Mix) (4:44)
+02. Sky Sergeant - Orion Trail (Eclipse Mix) (5:05)
+03. Mahoroba - Unearthly (From Space to Earth Mix) (4:54)
+04. Moon Patrol - Jules vs. Verne (Aircontrol Mix) (6:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D484D1A63C12D15B5B469BCE8FEE76DC2FC8AA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515663   (168781) от 08.12.2021
+
+Pier-O - Dreams (2021) [AAC|~329 Kbps] <Chill Out, Downtempo, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkaholic Talk (5:17)
+02. Night Sky (5:43)
+03. Whisky and Cigars (5:48)
+04. New Moon (5:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful HouseПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FA31756A75163483AF46F1638637B164500B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515702   (168777) от 08.12.2021
+
+VA - Life Is Better with Lounge (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mono tuned - Sizzling Hot (6:31)
+02. Duenec - Innuendo (5:46)
+03. Vostok Divers - A Slight Vestige (5:57)
+04. Prandtl - Dissolved Rage (6:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C47024AF6A8D983F5472B7F35688A418854F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,37 @@
+###  Публикация: 510872   (668162) от 15.06.2012
+
+Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes In The Snow (12:55)
+02. Burial At Sea (10:23)
+03. Silent Flight, Sleeping Dawn (05:50)
+04. Are You There? (10:30)
+05. 2 Candles, 1 Wish (02:53)
+06. Where Am I (03:03)
+07. Pure As Snow (11:37)
+08. Halcyon (Beautiful Days) (09:18)
+09. Everlasting Light (12:35)2001-2010Жанр: Post-Rock, Instrumental, AmbientПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339058   (667415) от 20.05.2011
 
 Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
@@ -776,35 +810,6 @@ MinstreliX - Tales Of Historia (2012) [FLAC|Lossless|image + .cue] <Neoclassical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF4DA94B4B10CFAAB2ACEC812A174B4CDE6E1969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032331   (645457) от 07.07.2016
-
-MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amiel 02:42
-02. Whispers in the Wind 04:52
-03. Moon Sickness 06:03
-04. To Immortality 04:58(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 1:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
 ```
 
 https://mybot314.ru/tekegram_catalog/

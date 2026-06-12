@@ -1,3 +1,32 @@
+###  Публикация: 1178561   (355124) от 28.10.2017
+
+VA - Deep House Desire Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Into You
+02. Pyperb - Waiting For A Girl (Original Mix)
+03. Iceleak feat. Karl Michael - Don't Leave Me (Extended Mix)
+04. Gosha, DJ Aristocrat - French Kiss(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741F0A17D6796C55E67F1899D16DA0F75BFA3CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072248   (355019) от 12.11.2016
 
 VA - Deep Temptation: House Party (2016) [MP3|320 Kbps] <House, Deep House, Electro>
@@ -721,35 +750,6 @@ VA - EDC Funky House (2020) [MP3|320 Kbps] <Disco, Funky House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB9F421724EF809A996DD63EB162AE29D54638C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952687   (353666) от 02.11.2015
-
-VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Anna of Bavaria - Holy Christmas Bells - German Christmas Market Romantic Mix
-02. Water on Mars - Biscaya - Realaxing Beach Moments remix
-03. Esteban Nouve - Cookies and Cream - Xmas Pearl Cafe House Mix
-04. Grag the Crack - Cool Down Moment - Pilates vs. Yoga Buddha Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

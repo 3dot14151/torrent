@@ -1,3 +1,148 @@
+###  Публикация: 1292588   (644838) от 30.03.2019
+
+VA - Лучшие песни русских сериалов (2003) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любэ - Давай За...
+02. О. Газманов - Мои ясные дни
+03. Високосный год - Тихий огонек
+04. Верка Сердючка - Горiлка(   Читать дальше...   )Жанр: РорПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A209E0D7D2C7B9E04BACC876FFF39328CC30109D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227671   (644746) от 27.05.2018
+
+VA - Заяц Рор Шоу-3 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Про деда Мороза ( Миша Ша! )
+02. Оксана и сало ( Анжела Бабич )
+03. Я завел себе кота ( М.С.Гнил )
+04. Песочная любовь ( Надя Коркина )(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE0EE40B4E8A374132827CCC85690D847A605C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142195   (644722) от 13.06.2017
+
+VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groove>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100% Feat. Jennifer John - Just Can't Wait (Saturday) (Club Mix) 07:53
+02. Lee Cabrera - Voodoo Love (Steve Angello Remix) 06:52
+03. Asle - Golden Sun (Haji & Emmanuel Remix) 06:42
+04. Mync Project Feat. Abigail Bailey - Something On Your Mind (Soul Seekerz Remix) 06:30(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, GrooveПродолжительность: 09:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32490BDDC096F21E8B6F12D499830EEB9CA40D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292596   (644691) от 30.03.2019
+
+VA – Ваши любимые песни... (2001) [FLAC|Lossless|image + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Легкоступова - Чардаш
+02. В. Толкунова - Носики-курносики
+03. Виа Сябры - Лягу прилягу
+04. Г. Великанова - Ландыши(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142238   (644595) от 13.06.2017
+
+VA - InAkustik Reference Sound Edition: Great Cover Versions (HQCD) (2013) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644595.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:20] 01. Chris Farlowe & The Thunderbirds - All the Way Lover
+[4:13] 02. Friend N Fellow - Here Comes the Rain Again
+[4:42] 03. Sophie B. Hawkins - Damn I Wish I Was Your Lover (Acoustic)
+[5:31] 04. Chris Thompson - Davy's on the Road Again(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D950C6257F9AB71FDF9B2430FEE194AEFA5A71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292557   (644459) от 30.03.2019
 
 Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) [FLAC|Lossless|tracks + .cue] <Pop, Alternative, Electronic>
@@ -606,151 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB995B3A3174AE2BCC69A3CF3623FD46977A8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142620   (642437) от 14.06.2017
-
-Время и Стекло - Обратный отсчёт. The Best (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back2Leto
-02. На cтиле
-03. Навернопотомучто
-04. Песня 404(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEA27F3965781A1C5044C2B6EC931D4F06BF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142535   (642345) от 14.06.2017
-
-D. White - One Wish (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fоllоw Mе
-02. Оnе Wіsh
-03. Wаlkіng
-04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6453E8212A0CD77172D63DB204400D838DC011F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032923   (642109) от 09.07.2016
-
-Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Lettera (3:39)
-02. Treno 5943 (4:25)
-03. Storia Di Periferia (3:58)
-04. Per Noi (3:50)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-popПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E6C4139C56D9E8BFBA4AB055823C2E05B32490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032876   (641915) от 09.07.2016
-
-Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i)
-02. Nothing's Real
-03. What's It Gonna Be?
-04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032812   (641903) от 09.07.2016
-
-Русский стилль - Ты позови меня... (2012) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег во дворе [04:46]
-02. А в саду ромашки [04:20]
-03. Уезжаешь [04:38]
-04. Ты позови меня (с Олегом Пахомовым) [03:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

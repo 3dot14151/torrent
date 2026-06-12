@@ -1,22 +1,22 @@
-###  Публикация: 850599   (277474) от 15.12.2014
+###  Публикация: 1186768   (284733) от 26.11.2017
 
-Страховщик / Automata (2014) Blu-ray [1080i]
+Журнал | Elle Decoration [Россия] №12-1 (20) (декабрь 2017 - январь 2018) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главным героем фильма — страховой агент компании по изготовлению роботов Жак Вокан, который обнаруживает, что изобретаемые роботы создаются не для эксплуатации, а для истребления.Производство: Испания, Болгария, Green Moon, Nu Boyana ViburnoЖанр: Фантастика, ТриллерРежиссер: Габе ИбаньесАктеры: Антонио Бандерас, Биргитта Йорт Сёренсен, Мелани Гриффит, Дилан МакДермотт, Роберт Форстер, Тим МакИннерни, Энди Найман, Дэвид Райалл, Эндрю Тирнан, Криста КэмпбеллПеревод: Дублированный (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:45:23
+"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E346C9B6CD226B674CBA73E21DFEC945005A6C5
+magnet:?xt=urn:btih:2DFA4B9D354B4B7E13A4EC67A01534F87BEC8C84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 850440   (277467) от 15.12.2014
+###  Публикация: 1186702   (284732) от 26.11.2017
 
-Лучшее во мне / The Best of Me (2014) WEB-DLRip
+Журнал | Цветок №22 (328) (ноябрь 2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Производство: США / DiNovi Pictures, Finch Entertainment, Relativity Media, Surefire Entertainment CapitalЖанр: Драма, МелодрамаРежиссер: Майкл ХоффманАктеры: Джеймс Марсден, Мишель Монахэн, Лиана Либерато, Люк Брейси, Джералд МакРэйни, Кэролайн Гудолл, Скайлер Фиск, Джон Тенни, СебастьянПеревод: Дублированный | iTunes |Субтитры: ОтсутствуютПродолжительность: 01:57:41
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: ЦветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FF0DBB6A9B4B0B5E85BD6E1049CB081FB73E0AF
+magnet:?xt=urn:btih:B7DE25386CC5148EAE62C0CAF718BE0548DDCD2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 850006   (277459) от 15.12.2014
+###  Публикация: 1186753   (284731) от 26.11.2017
 
-Все сокровища мира (2014) SATRip (серии 1-8 из 8)
+Радий Погодин | Шутка (1967) [FB2]
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После окончания вуза Анна Бессонова возвращается в родной Приморск. Анна - дипломированный эксперт по антиквариату и могла бы сделать хорошую карьеру в Москве, но дома у Ани больная мама, за которой нужно ухаживать. Однако и в маленьком городке Ане улыбается удача – девушка получает интересную работу в антикварном салоне "Сокровища мира" и встречает свою (   Читать дальше...   )Производство: Россия / МедиапрофсоюзЖанр: мелодрамаРежиссер: Александр ЕфремовАктеры: Мария Козакова, Павел Харланчук, Максим Радугин, Вячеслав Гришечкин, Сергей Журавель, Анатолий Гурьев, Андрей Биланов, Алёна Яковлева, Валерия Шкирандо, Дмитрий Бедерин и др.Продолжительность: ~00:45:00 серия
+Рассказ о том, как нельзя шутить.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A589CCA0C708DACF7648EF38C976D339964FAB26
+magnet:?xt=urn:btih:4698EA8303553CE77F6349E03638DF034EFD8812
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 850312   (277457) от 15.12.2014
+###  Публикация: 1335837   (284730) от 04.11.2019
 
-Revostock - Our Royal Rings Wedding - 829777 [AEP]
+Centric Jones - The Antikythera Method (2011) [FLAC|Lossless|image + .cue] <Progressive Rock>
 
->>Проекты
->>Свадебные и романтические (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Our Royal Rings Wedding - элегантный, красивый свадебный проект. Можно вставить до 12 фотографий или 12 видео сюжетов и 8 текстовых названий или дат.Формат: AEP
+1 Crushed
+2 Shadow Song
+3 All For One
+4 Boomer(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:09:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D042C89B33EDB4B75C8EB9A9250FFF6310137BA6
+magnet:?xt=urn:btih:D7E7E71F70E96D5E5BD3F112AE4796BF48E2A410
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 272802   (277455) от 20.12.2010
+###  Публикация: 1335849   (284729) от 04.11.2019
 
-Cafu - Wake Up (2007) [MP3|~193 kbps] <Progressive>
+Circus Brimstone - Live - Brimstoned In Europe (2005) [FLAC|Lossless|image + .cue] <Prog Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wake Up
+1 Cosmic Lodge 5:57
+2 Astral Dog / Hellhound 13:11
+3 Circus Brimstone 15:11
+4 The Man Who Walked With Kings 5:16(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:00:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93AA2154DF5A2474CBA527F4A9605356574AE4AF
+magnet:?xt=urn:btih:79EDDED9717C489859BE2EF0730E4847A65CC36B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,170 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 272760   (277454) от 20.12.2010
+###  Публикация: 1335594   (284728) от 04.11.2019
 
-Sinister - Legacy Of Ashes (2010) [MP3|192-320 kbps]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Herd Of Damnation (intro) (1:27)
-2. Into The Blind World (4:34)
-3. The Enemy Of My Enemy (4:08)
-4. Anatomy Of A Catastrophe (4:05)
-5. The Sin Of Sodomy (3:31)
-6. Legacy Of Ashes (4:23)
-7. The Hornet's Nest (4:44)
-8. Righteous Indignations (4:32)
-9. The Living Sacrifice (6:20)Жанр: Death MetalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D175BB948CD89F93739CC4FAEC5612BF5E0F85A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272706   (277452) от 20.12.2010
-
-N.A.S.A. - Born To Dance (2009) [MP3|320 kbps] <Psytrance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.A.S.A. - Born To Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796CFA3BD25622FEF741F1B0535F1941B40FCA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273239   (277451) от 20.12.2010
-
-VA - Hit-Mix зимний (2010) [MP3|256 kbps]<Pop/Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/ClubПродолжительность: 06:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6A5B82F1C10D2138F7BFAA1ACDB0FA8E328DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273090   (277450) от 20.12.2010
-
-Россия дает добро на использование процедуры пересадки тканей животных в организм человека.
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российские власти одобрили применение ксенотрансплантации - пересадки клеток животных в человеческий организм. С настоящего момента эта технология или медицинские препараты, изготовленные на ее базе, может использоваться как и в пределах самой России, так и в зарубежных странах, где это разрешено сейчас, или будет разрешено позже. Пока еще технология ксенотрансплантации будет использоваться для лечения только одного вида заболевания - заболевания сахарным диабетом 1-го типа. Для лечения сахарного диабета в поджелудочную железу человека будут трансплантироваться аналогичные клетки, взятые у свиней, которые заменят поврежденные клетки человеческого организма.(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273089   (277449) от 20.12.2010
-
-Программа Helioviewer - Солнце в вашем компьютере.
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое программное обеспечение, разработанное программистами Европейского космического агентства (ЕКА, ESA), делает доступным каждому желающему в режиме онлайн всю библиотеку изображений Солнца, сделанных космическим аппаратом Solar and Heliospheric Observatory (SOHO). Программа JHelioviewer представляет собой программное обеспечение визуализации, которое позволяет любому желающему исследовать наше Солнце, просматривая снимки светила, сделанные за прошедшие 15 лет. Разработка программного обеспечения является частью совместного проекта ЕКА и НАСА Helioviewer Project.(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272717   (277447) от 20.12.2010
-
-VA - Earthquake - Compiled by Digital Tribe (2CD Unmixed) (2009) [MP3|~201 kbps] <Full On, Psytrance>
+DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
 
 >>Electronic
->>Psychedelic, psytrance, fullon
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Earthquake - Compiled by Digital Tribe (2CD Unmixed) (2009)
-Год: 2009
-Жанр: Full On, Psytrance
-Продолжительность: 02:29:38
-Лейбл: Psy-Core Records
-Кодек: MP3
-Битрейт: ~201 kbps
-Тип битрейта: VBRВремя раздачи: 24/7 
+01. Someone Else (3:23)
+02. 1989 (3:04)
+03. Frog (5:34)
+04. Dark City (3:57)(   Читать дальше...   )Жанр: Electro, MinimalПродолжительность: 00:53:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:010580542CEFE1C4C7B1CA142099769BD671D23A
+magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 273007   (277446) от 20.12.2010
+###  Публикация: 1335787   (284727) от 04.11.2019
 
-VA - Discoтека Life is Life (2010) [MP3|128 kbps]<Dance / Disco>
+Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance / DiscoПродолжительность: 12:31:07
+01. Wonderphalt (05:59)
+ 02. Attio (07:00)
+ 03. Sonder at Mountain Street (06:59)
+ 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38BA61FB3F74DCD54FA278DE63CBFF0835600BB4
+magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,103 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 273221   (277438) от 20.12.2010
+###  Публикация: 423367   (284721) от 16.12.2011
 
-VA - Созвездие хитов. Суперсборник попмузыки 50/50 (2010) [MP3|256-320 kbps]<Pop/Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/DanceПродолжительность: 05:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC87498AF2EA6879F676ED9121CF744B36841F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273060   (277437) от 20.12.2010
-
-VA - Модные Новогодние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/Dance/ClubПродолжительность: 06:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEBB4181C56B57700E3813E192CF9BEF24E6ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273044   (277436) от 20.12.2010
-
-VA - Новогодние DFM танцы до утра 50/50 (2010) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BC4E4EE11609BEB8D16E9CE5DDB300FB3B9ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336837   (277435) от 08.11.2019
-
-Audirvana 3.5.25 [Multi]
+Журнал | Architectural Digest №12 (декабрь 2011) [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+Журнал AD (Architectural Digest) — ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A47C563BC84D8B45BC3A06A0327700BFF7FA31ED
+magnet:?xt=urn:btih:64DD9055DE8586C36554664635E620CF289C266E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336906   (277434) от 08.11.2019
+###  Публикация: 423661   (284720) от 16.12.2011
 
-VueScan Pro 9.7.07 RePack (& Portable) by elchupacabra [Multi/Ru]
+Журнал | Любимая дача. Спецвыпуск №5 [декабрь 2011] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+«Любимая дача» – это журнал для людей, которые ценят преимущества загородной жизни и при этом стремятся обеспечить современный уровень комфорта и уюта для своей семьи. ЖурналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16FA031823A3622DCC558939A92AAFA279DCB208
+magnet:?xt=urn:btih:F9B9040BC99B403346B06CEEBEFB6C684CCA1895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,114 +244,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336710   (277433) от 08.11.2019
+###  Публикация: 422965   (284719) от 16.12.2011
 
-Eine Kleine Disco Band - Disco Saturday Nacht (Feverish Sounds Of 1830) (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Concerto (4:38)
-02. Space Station Zero (4:21)
-03. (Love In) A Turkish Bath (4:21)
-04. Fancy Feet (3:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABC4A9BDE8D65051A5B338A0491816596752605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336949   (277432) от 08.11.2019
-
-VA - French Synthwave Compilation Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_277432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shredder 1984 - Doomsday Chronicles (3:49)
-02. We Are Magonia feat. SeYSMIC - Pandemonium (5:24)
-03. Grimlin - Deathcruiser (5:12)
-04. Funeral Director - Our Burning Churchyards (4:02)(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 02:10:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336840   (277431) от 08.11.2019
-
-1Password 7 v7.4 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_277431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2019Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336989   (277430) от 08.11.2019
-
-Blockhead - BUBBLE BATH (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Electronic>
+Огни - Бестиарий (2011) [MP3|320 kbps]<Rap, Hip-Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On The Bright Side (4:06)
-02. Bubble Bath (6:04)
-03. Spicy Peppercorn (5:19)
-04. The Magical Intimacy Camel (5:12)(   Читать дальше...   )Производство: Future Archive Recordings - FAR040Жанр: Hip-Hop, Instrumental Hop, Beats, Electronic, Downtempo, ChillHopПродолжительность: 01:08:02
+01. Интро (Scratch by Dj Nik One)
+ 02. В космосе
+ 03. Полотна просят нового
+ 04. Сумасшедший мир
+ 05. Посыл (при уч. Loc-Dog)
+ 06. Субмарина
+ 07. Этим темы
+ 08. Апокалиптика
+ 09. Миссис Дженис (при уч. Нигатив)
+ 10. Город-организм(   Читать дальше...   )2011Жанр: Rap, Hip-HopПродолжительность: 01:07:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D912C9FEC3E74137F671F6742AC10509B3867626
+magnet:?xt=urn:btih:B746C9FD9A81A7725F997DDEAA5764C14C9F1948
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +279,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336863   (277429) от 08.11.2019
+###  Публикация: 271207   (284702) от 16.12.2010
 
-Process Lasso Pro 9.4.0.46 RePack (& Portable) by TryRooM [Ru/En]
+Звуковая отвертка - воздействие на объекты сильными ультразвуковыми силовыми полями.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звуковая отвертка, фантастический инструмент главного героя британского сериала "Doctor Who", может переместиться из разряда неправдоподобных устройств и технологий в разряд реально существующих вещей и появиться на полках магазинов, торгующих разнообразным инструментом. Эта отвертка, которая помогала эксцентричному доктору выполнять множество действий от отпирания закрытых замков до ремонта машины времени TARDIS, является поистине удивительным инструментом. Но подобный инструмент, разрабатываемый инженерами из Бристольского университета, несмотря на его "приземленность", является не менее удивительным.(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268380   (284701) от 16.12.2010
+
+VA - Vocal Bar Volume 1 (11.12.2010) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_284701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Tas feat. Sopheary - Say (Trance Arts Remix)
+002. Ali Wilson feat. Chris Jones - Become One
+003. Bobina feat. Sabrina Atlan - Angel Of The North (Bobina's Megadrive Mix)
+004. Mark Sherry feat. Sharone - I Will Find You (Outburst Vocal Mix)
+005. Mike Danis - Greenlight
+006. Mistigris - Sunshine
+007. Tyler Michaud feat. Colleen Kelly - Get You Higher
+008. Armin van Buuren feat. Christian Burns - This Light Between Us (Album Version)
+009. Filo & Peri feat. Audrey Gallagher - This Night (Arty Remix)
+010. Fred Baker pres. Saona - I Miss U (Eddie Sender Remix)(   Читать дальше...)Жанр: TranceПродолжительность: 02:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60E4AAB472361DEEFF626A0165C42CD986F2441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 271024   (284699) от 16.12.2010
+
+WinSnap 3.5.4 х86 + Portable [Multilang]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+WinSnap - утилита, которая позволяет с легкостью делать скриншоты и редактировать полученные изображения. Программа способна захватывать скриншоты нестандартных окон (непрямоугольной формы) с выбранным вами фоном, накладывать тени, автоматически исправлять некоторые недостатки в графике, сохранять результаты в различных форматах, обрабатывать закругленные края окон. (   Читать дальше...   )Разработчик: ntwind.comЯзык интерфейса: английский + русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4498EC8D041007FC4F4F6B972214A5B3A50EA2AE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,28 +366,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336731   (277428) от 08.11.2019
+###  Публикация: 1263748   (284686) от 21.11.2018
 
-Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Experimental Rock>
+Missa Mercuria - Missa Mercuria (2002) [FLAC|Lossless|image + .cue] <Progressive Metal, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth's Destruction (2:26)
+02. Requiem Mortale (1:09)
+03. Divine Spark (Firegod) (5:01)
+04. Whisper Of The Soul (Watergoddess) (6:16)(   Читать дальше...   )Жанр: Progressive Metal, Hard Rock, Heavy MetalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E17391F7386A78CFFC513DC1058E9E8851EDD5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263925   (284685) от 21.11.2018
+
+Stephane Wrembel - The Django Experiment: Live In Rochester (2016) 2CD, Water Is Life Records [FLAC|Lossless|tracks + .cue] <Guitar Jazz, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Viper's Dream [4:47]
+02. Nuages [5:34]
+03. Topsy [4:51](   Читать дальше...   )Жанр: Guitar Jazz, Gypsy JazzПродолжительность: 01:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095447294656102932CE81A3CC4551EB30480ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263865   (284684) от 21.11.2018
+
+Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ruby Leaf (04:23)
-02. All in Question (03:56)
-03. Numbing Agent (03:59)
-04. The Innocence Of (04:08)(   Читать дальше...   )Жанр: Post-Hardcore, Experimental RockПродолжительность: 00:30:08
+01. Cinderella [04:36]
+02. Pressure Suit [04:56]
+03. Something to Believe In [03:38]
+04. Glimmer [04:00](   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:59:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F1690D506199E0F96E103E8DC015FE3997477AE
+magnet:?xt=urn:btih:4A417DF4447E52A6420DBEC2BD2890775A679FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,27 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336851   (277427) от 08.11.2019
+###  Публикация: 1263801   (284683) от 21.11.2018
 
-Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Флорида Пантерз (07.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Конькобежный спорт. Кубок мира 2018-2019. 1-й Этап. Обихиро (Япония). 3-й День Соревнований (18.11.2018) WEB-DL [H.264/720p-LQ]
 
->>Спорт и активный отдых
->>Хоккей
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 ноября 2019 года, пятница 03:00 МСК
-Стадион: Би-Би-энд-Ти-центр (Санрайз, США), 14 085 зрителей (72 % при вместимости 19 434)
-Главный судья: Ти-Джей Люксмор (Канада); Главный судья: Гарретт Рэнк (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:22
+Кубок мира по конькобежному спорту 2018/2019 (ISU World Cup Speed Skating 2018-2019) — серия этапов соревнований по конькобежному спорту.
+1-й Этап. Обихиро (Япония)
+3-й день соревнований:
+1. Женщины - 1000 м(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:34:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F4E0B9B63A4526E7E259186BCA956C9D0769060
+magnet:?xt=urn:btih:3E5692CB74A277868916BE6083184DEDDFCC7446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +482,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336966   (277426) от 08.11.2019
+###  Публикация: 1263990   (284682) от 21.11.2018
 
-FKA Twigs - Magdalene (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental Electronic, Alternative Art Pop, Trip Hop>
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 6-й тур. Швеция — Россия (20.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284682.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 ноября 2018 года, вторник. 22:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 2. 6-й тур.
+Швеция — Россия(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9691D67928DC66BC73FBA24612B99D87D45355CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263695   (284681) от 21.11.2018
+
+Cookie 5 v5.9.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookie - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+
+• Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+• Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2018Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E525DA3AB43C4CCF735DB082EDD36493C56F3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263979   (284680) от 21.11.2018
+
+RightFont 5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
+RightFont - менеджер шрифтов с  красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся:  2018Разработчик: Markly TeamПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDCDF85C521BB2C19DE984D9F6745B01CBBF732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263771   (284679) от 21.11.2018
+
+BusyContacts 1.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284679.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2018Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CB2970EAB706DF17197839D1AAB12C1AF4C27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264003   (284678) от 21.11.2018
+
+Brecon - Cairn & Remixes (2018) Mesh [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. thousand eyes (5:01)
-02. home with you (3:45)
-03. sad day (4:16)
-04. holy terrain (4:03)(   Читать дальше...   )Производство: Young Turks – YT191Жанр: Experimental Electronic, Alternative Art Pop, Trip Hop, DowntempoПродолжительность: 00:38:53
+01. Scarp (Om Unit Remix) (04:20)
+ 02. Scattered (Max Cooper Remix) (07:23)
+ 03. Subside (Tenebre Remix) (05:11)
+ 04. Half Light (Nicolas Bougaieff Remix) (05:21)Тип издания: WEB •Жанр: Downtempo/IDM/Techno/BassПродолжительность: 00:22:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B69A3DBB7890DDB81D3AFC6490C4F810F1F5A854
+magnet:?xt=urn:btih:81FFF455021F0ACDCDA0B6FBDCEDACA69CC4F3FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,25 +624,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336797   (277425) от 08.11.2019
+###  Публикация: 1264010   (284677) от 21.11.2018
 
-Кейт Мортон | Забытый сад (2019) [MP3]
+Dan Norvan - The Beginning (2018) [MP3|320 Kbps] <Trance,ProgressiveHouse>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Накануне Первой мировой войны на причале австралийского порта найдена маленькая девочка с детским чемоданчиком в руках. На корабль, пришедший из Англии, ее посадила загадочная дама, которую девочка знала под именем Сочинительница. Дама обещала заботиться о девочке, но исчезла без следа, и корабль отправился в плавание без нее. Девочка, забывшая свое настоящее имя, (   Читать дальше...   )Жанр: Современная прозаЯзык озвучки: 25:11:51Продолжительность: 25:11:51
+01. The Beginning (Original Mix)
+02. Where You Left Me (Original Mix)
+03. Journey (Original Mix)
+04. Try to Be (You) (Original Mix)(   Читать дальше...   )Жанр: Trance,ProgressiveHouseПродолжительность: 00:56:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FED108AE5BA9CA3B76A66A9B009E59D354EBCE8
+magnet:?xt=urn:btih:57B47AA7713B45950DB08C91D27A585651836218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263995   (284676) от 21.11.2018
+
+VA - Vocal Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roman Messer & Betsie Larkin - Unite (Ruslan Radriges Extended Remix)
+02.Mino Safy & eranga ft. Mark Frisch - The Reason (Eximinds Remix)
+03.Mhammed El Alami & Lucid Blue - Under the Sun (O.B.M Notion Extended Remix)
+04.Adip Kiyoi & Christina Novelli - Carousel (Ruslan Radriges Extended Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46501D6D60350FA5B4B89331DCDE7B941C2FADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263996   (284675) от 21.11.2018
+
+Футбол. Лига Наций 2018-2019. 6-й тур. Обзор матчей. 3-й День (20.11.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284675.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 ноября 2018 года, вторник
+Обзор матчей Лиги Наций УЕФА 2018-2019. 6-й тур.
+3-й День:
+Лига A. Группа 3 — Португалия – Польша(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051455D8F00FCDEC7C539135A5C7D4596F156A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263964   (284674) от 21.11.2018
+
+Футбол. Лига Наций 2018-2019. 6-й тур. Обзор матчей. 2-й День (19.11.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284674.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2018 года, понедельник
+Обзор матчей Лиги Наций УЕФА 2018-2019. 6-й тур.
+2-й День:
+Лига D. Группа 1 — Андорра – Латвия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7771FF09B09487A218552FE4A4453CC08595C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

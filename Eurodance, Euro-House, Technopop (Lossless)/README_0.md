@@ -1,3 +1,32 @@
+###  Публикация: 1471189   (1015297) от 19.05.2021
+
+Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Random Love (House Mix) 6:02
+2. Random Love (Maxi Mix) 6:31
+3. Random Love (Progressive Mix) 7:48
+4. Random Love (Radio Mix) 4:00Жанр: Euro HouseПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348794   (1004229) от 02.01.2020
 
 VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
@@ -744,35 +773,6 @@ Wolfram - Wolfram (2011) [FLAC|Lossless|tracks + .cue] <Electropop, Euro-House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6495B5DAF450F5EC5170AA1883BA870514505376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362703   (948086) от 24.02.2020
-
-Wolfram - Amadeus (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Euro-House, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfram - Scirocco (3:57)
-02. Wolfram feat. Peaches - Automatic (7:36)
-03. Wolfram - Graffiti In Teheran (5:37)
-04. Wolfram feat. Haddaway - My Love Is For Real (Dance Mix) (4:43)(   Читать дальше...   )Жанр: Electropop, Euro-House, DiscoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AAE2BF177EBB0E57F96EDCA86CDF484D0E4E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

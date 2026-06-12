@@ -1,3 +1,90 @@
+###  Публикация: 1745427   (45473) от 27.08.2024
+
+VA - The Sound of Power Blues-Rock vol.3 (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Suhler, Monkey Beat, Jim Suhler & Monkey Beat - Tijuana Bible [04:12]
+02. Pat The White - Jesus Gonna Be Here [04:23]
+03. Dr. Wu' and Friends, Buddy Whittington, The Walker Effect - When Your Lips Start Moving [04:41]
+04. Fiona Boyes - Party at Red's [04:15](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EBF3F4085CE64EB533812937ED36F21EDF5990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744812   (45472) от 27.08.2024
+
+VA - The Sound of Power Blues-Rock vol.1 (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beat Daddys - Fuel for My Blues [04:23]
+02. Dave Fields - Force of Will [04:55]
+03. Wes Jeans - Ridin' In The Moonlight [03:43]
+04. Albert Castiglia - Let the Big Dog Eat [03:29](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BC2C1F5091C17E00D58DD701BA27E71AFD9469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746311   (45121) от 30.08.2024
+
+VA - Music News For Forum vol.017 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45121.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zarina - Колыбель Рук (02:44)
+ 002. Acies - Bentley Freestyle (01:34)
+ 003. Adriana Onci - Doar O Noapte (02:38)
+ 004. Andery Toronto feat. Диман Брюханов - Air Макс (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDF73341C4B359CA5354FAEE945979A7FF69462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746481   (45095) от 31.08.2024
 
 VA - ЕвроХит Топ 40 Europa Plus 30.08.2024 [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +745,6 @@ VA - The Jazz Tour (2024) [MP3|320 Kbps] <Jazz, Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A62D361B4303A9B40EF5574E676437E1F8A79CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748999   (43789) от 12.09.2024
-
-VA - E-Dance Weekend Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta & Morten - The Future Is Now
-002. Slander, Trivecta & Chris Howard - A Better World
-003. Steve Aoki & Banda Al9 - She Calls Me Love
-004. Nostalgix Feat. Dev - Real Girls(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 10:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47CEC2705D9527BE3AB7BB780CACCFD875C9B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747002   (43788) от 12.09.2024
-
-Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Babe (Willie Dixon) [03:19]
-02. Я забываю [03:53]
-03. Тонечка (Городской Романс) [05:37]
-04. Bring It On Home [05:44](   Читать дальше...   )Жанр: BluesПродолжительность: 05:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748930   (43761) от 12.09.2024
-
-VA - D.Trance 107 (incl. D-Techno 62) (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BiXX - Symphonic Gods (Original Mix) [4:05]
-02. DaWTone - Perky (Anton By Remix) [5:23]
-03. Dan Cooper & EllCavell - Mystic (Extended Mix) [6:52]
-04. Artena - Gods Among Us (Original Mix) [7:20](   Читать дальше...   )Жанр: TranceПродолжительность: 04:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD8E69C88DBCC7C5E37171F739C08B7A0493E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

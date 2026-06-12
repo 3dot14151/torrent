@@ -1,3 +1,32 @@
+###  Публикация: 1774203   (30421) от 19.01.2025
+
+VA - Musical kaleidoscope part 22 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astor Piazzolla - Libertango
+02. Aurora Night - Closer
+03. George Michael, Jk Sax - Careless Whisper (Saxophone Remix)
+04. Dj Artur - If You Love - Prove It(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C3A6C4E2686D2F6608054509F83E0703F5188E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774735   (30125) от 22.01.2025
 
 VA - Compilation part 139 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Compilation Part 152 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D9DCFE6AB89FF148B305F14487E5A62D55182D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790547   (21838) от 10.04.2025
-
-VA - EDM Fitness Party (2025) [MP3|320 Kbps] <EDM, Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21838.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Ft. Ravid - Future Hearts - (05:10)
- 002. Gigi D'agostino - Gin Lemon - (04:28)
- 003. Paul Van Dyk - For An Angel - (07:11)
- 004. David Guetta - Forever Young - (02:37)(   Читать дальше...   )Жанр: EDM, Club, Dance, HouseПродолжительность: 11:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E2F7B1131860B3764EBBD90F5463141DE3C17D
 ```
 
 https://mybot314.ru/tekegram_catalog/

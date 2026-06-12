@@ -1,3 +1,90 @@
+###  Публикация: 1187600   (278368) от 29.11.2017
+
+VA - Союз 2018. Лучшие хиты попмузыки (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Оля Полякова - Бывший
+002. Валерий Меладзе - Свобода Или Сладкий Плен
+003. Ани Лорак & Emin - Проститься
+004. Виа-Гра - Мое сердце занято(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25A013B5E4C5E0B3ADC4D70575619F60180C9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264828   (277775) от 25.11.2018
+
+VA - The Official UK Top 40 Singles Chart 23.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Thank U, Next
+02. Little Mix - Woman Like Me (feat. Nicki Minaj)
+03. Lady Gaga & Bradley Cooper - Shallow
+04. Jess Glynne - Thursday(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DACA64478D0AA4D0BE778EC2125C2FE100F7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264865   (277720) от 25.11.2018
+
+VA - Old Skool Disco: The Groove Is Hot (2018) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adamant &Richelle Hicks - Smooth Talker
+002. Addison Groove - F1Nk
+003. C. Da Afro - Shaking Boogie Love
+004. Die Jungle - Franco (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 10:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BED5CBCCAD1389D439B27D9A25E5BEB68DF65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264839   (277667) от 25.11.2018
 
 VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -637,96 +724,6 @@ VA - XXL Новогодний Хит 50/50 (2010) [MP3|160 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C779479B0B9F89984B12346B3EC28DBB7267EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187834   (277066) от 30.11.2017
-
-VA - Metall Division Vol. 01 (2017) [MP3|320 Kbps] <Metal, Heavy Metal >
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277066.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Esclavitud - How I Wish
-002. Dark Sarah - Island in the Mist
-003. Andy James - Made of Stone
-004. Antichrist - Savage Mutilations(   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 16:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DEEB503267C538077427934B78EA8C30840D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272814   (277008) от 20.12.2010
-
-VA - Отечественные Рок Баллады (2010) [MP3|320 kbps]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кипелов - На Грани
-02. Танцы Минус - Цветут Цветы
-03. Високосный Год - Метро
-04. Сплин - Линия Жизни
-05. Король и шут - Прыгну Со Скалы
-06. Ария - Там Высоко
-07. ДДТ - В Последнюю Осень
-08. Наталия Льянова - Невидима
-09. Черный Кофе - Листья
-10. Кипелов - Я Здесь(   Читать дальше...)Жанр: RockПродолжительность: 02:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FC471B3A500DD7DF0175CBA83889464C57F47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273213   (276918) от 20.12.2010
-
-VA - The lounge Legends Ballroom Collection (2010) [MP3|320 kbps]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 04:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7C2B18982D193025A8F8AE5C18572531D07BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

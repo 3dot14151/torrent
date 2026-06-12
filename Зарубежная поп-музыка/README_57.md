@@ -1,3 +1,61 @@
+###  Публикация: 952230   (358822) от 31.10.2015
+
+Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Race Of Life
+02. Trials Of A Modern Man
+03. Sucker
+04. Episode(   Читать дальше...   )Жанр: Classic Pop RockПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EA5E19D20BDBEB53B379E33F613B762022393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255951   (358746) от 20.10.2018
+
+Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis
+02. Lost In Your Light (feat. Miguel)
+03. Hotter Than Hell
+04. Be The One(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F778DB12BF5C4311D48FC91FF02CB1C90D5F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177898   (358518) от 27.10.2017
 
 Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
@@ -699,64 +757,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257838   (342944) от 27.10.2018
-
-VA - 100 Hits - 80s Pop (2017) 5CD [MP3|320 Kbps] <80s, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342944.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dead Or Alive - You Spin Me Round (Like A Record)
-02. Haircut 100 - Fantastic Day
-03. Bros - I Owe You Nothing(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326BD5C5E271E792DE50BFA03CF4C3269C29DAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954264   (342291) от 07.11.2015
-
-Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sun (03:03)
-02. Northern Lights (03:35)
-03. Lion For Real (04:33)
-04. Human Engine (04:46)(   Читать дальше...   )Жанр: Alternative, Synthpop, Indie PopПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68B09EEAB00E5667D16F07F79BB3C755FF7AE0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,92 +1,3 @@
-###  Публикация: 983980   (941862) от 07.02.2016
-
-Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...пока не пришел понедельник... (3:49)
-02. Странные дни (4:57)
-03. Симона (4:05)
-04. Шлифовщик (4:24)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27993 009Жанр: RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 144897   (940464) от 29.02.2020
-
-Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940464.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1   Sing An Ode To Love   (4:12)
-A2   Midnight Is The Time I Need You   (3:03)
-A3   I'll Be Your Friend (Schön Wie Mona Lisa)  (4:12)
-A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092259   (939750) от 11.01.2017
-
-Fiona Joy Hawkins - Blue Dream (2009) 2008 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fiona Joy Hawkins (род. 1964) австралийская композитор и пианистка. Она родилась в Cessnock (Новый Южный Уэльс) в творческой семье, получила профессиональное классическое образование по классу фортепьяно.
-
-Ее первый альбом, Portrait of a Waterfall (Портрет у водопада), занял первое место в хит-параде New Age Reporter (NAR) в 2005 году. Ее классический релиз, Angel (   Читать дальше...   )01. Freedom (1:51)
-02. Feeling Sunshine (2:54)
-03. From the Outside (4:32)
-04. Sapphire Interlude (1:43)(   Читать дальше...   )Жанр: new ageПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2430EC69D99EE7C46050088112CC5F3335F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983264   (939717) от 08.02.2016
 
 Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
@@ -741,6 +652,93 @@ B1 One Against All(   Читать дальше...   )Жанр: Melodic Death Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811D3A75EA3E04041C998E0890522424D4E80BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366628   (921559) от 12.03.2020
+
+Various Artists – Total Music Immersion – Philips Super Audio CD Sampler (2002) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <sampler>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Destiny’s Child – Independent woman N°1 -03:41
+02. Céline Dion – It’s all coming back to me now -05:31
+03. Carel Kraayenhof, Bandoneon – Astor Piazzolla : Adiòs Nonino -04:39
+04. Herbert Grönemeyer – Halt Mich -03:58(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Latin, Funk / Soul, Pop, ClassicalПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4E4448D5D474015443F9FBE0B52BE43FF77D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490232   (920531) от 19.08.2021
+
+Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44.1|tracks|Vinyl-Rip] <Drum n Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude / Slam (06:33)
+ 02. Plastic World (feat. Fats/TC) (06:19)
+ 03. Fasten Your Seatbelt (feat. The Freestylers) (06:32)
+ 04. Through The Loop (06:11)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034E7F5014F40410E1CED1645AFAF56121A552F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989049   (918670) от 21.02.2016
+
+Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Season Of The Dead (7:22) (DR14)
+02. Cry All Night (6:58) (DR13)
+03. Take Me Home (4:57) (DR13)
+04. Isolated Man (5:31) (DR13)Жанр: RockПродолжительность: 00:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1178327   (352850) от 29.10.2017
+
+VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] <Soundtrack>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 岡部啓一           - 意味_無_ジュニーク・ニコール		[00:02:38]
+02. 岡部啓一           - 遺サレタ場所_斜光			        			[00:06:21]
+03. 岡部啓一	      - 穏ヤカナ眠リ									[00:06:49] (   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 04:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428DBE6CBAA0FA8C9762588EC0D49B0A0FE9F57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179667   (346467) от 01.11.2017
+
+Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [03:16]
+02. Once Upon a Song [05:11]
+03. Seven Goblins [03:13]
+04. The Sunset Valley [04:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179941   (344235) от 02.11.2017
 
 Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>

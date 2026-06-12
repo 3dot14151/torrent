@@ -1,3 +1,32 @@
+###  Публикация: 1494647   (887568) от 08.09.2021
+
+VA - Open-Road Essentials (2021) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC/DC - Thunderstruck (04:53)
+ 02. Guns N' Roses - Sweet Child O' Mine (05:56)
+ 03. The Rolling Stones - Start Me Up (Remastered) (03:33)
+ 04. Bryan Adams - Summer Of '69 (03:36)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B714870157FB4B7AD31909D55E6AD8717126DE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494641   (887455) от 08.09.2021
 
 VA - The Timeless Rock Classic Collection (2021) [MP3|320 Kbps] <Classic Rock>
@@ -719,35 +748,6 @@ J. R. Blackmore - Destructive Mania (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1269F0191DA039D8D349CAA3CBFC2F949FFE1773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496442   (872600) от 17.09.2021
-
-VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richard Bona - Kurumalete
-002. Nicole Hart - Higher Ground
-003. Susan Tedeschi - Looking For Answers
-004. Mannish Boys - Ti Blues(   Читать дальше...   )Жанр: Blues, Rock Blues, FolkПродолжительность: 08:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04598ECED1AAB6FE65A847F9455434A378ECFA45
 ```
 
 https://mybot314.ru/tekegram_catalog/

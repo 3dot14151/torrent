@@ -1,3 +1,90 @@
+###  Публикация: 1612330   (207289) от 15.02.2023
+
+VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Mauriat-Symphony No. 40 Movement (Mozart)
+02. N. De Angelius-Menuet (Boccherini)
+03. R. Clayderman-Moonlight Sonate (Beethoven)
+04. Ricky King-Aria (Bach)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613708   (206962) от 19.02.2023
+
+VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Lionel Richie–	Hello
+02.	Dire Straits–	Brother In Arms
+03.	Sting–	Fragile
+04.	Elton John–	Candle In The Wind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC998DA8BF1F7AF03C8248910CCFBF36ECC1288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613920   (206884) от 20.02.2023
+
+VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldies, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Williams - (Where Do I Begin) Love Story
+02. The Platters - Only You (And You Alone)
+03. Roy Orbison - Only The Lonely
+04. Charles Aznavour - Les deux Guitares(   Читать дальше...   )Жанр: Pop, Oldies, FolkПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677D6BB832E70834415082323F07AB4EF3BDC9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614033   (206878) от 20.02.2023
 
 VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instrumental>
@@ -660,93 +747,6 @@ VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589333   (190338) от 09.11.2022
-
-Master Genius - The Album (1984) LP [MP3|320 Kbps] <Electronic, Hip Hop, Disco, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nervous Breakdown (Multa-Extra-Mix) (Includes Let's Break Into The 80's) (14:35)
-02. Master Bonus Part 1 (1:12)
-03. Nervous Electric Boogie Rhythm Track (3:04)
-04. Atomic Extra Super Break (Includes Let's Break) (16:19)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Disco, ElectroПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DAC7300343E4483313326C97C6E32780B43404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661889   (188244) от 16.09.2023
-
-VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - All By Myself
-02. Eros Ramazzotti - L'Aurora
-03. No Mercy - When I Die
-04. Jam & Spoon ( feat. Plavka ) - Kaleidoscope Skies(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB90D23BE790E8B9918051C1588C821E784803F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661740   (188210) от 16.09.2023
-
-Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,  Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Action
-02. Go Go Yellow Screen
-03. The Beauty & The Beast
-04. Don't Stop(   Читать дальше...   )Жанр: Electronic, Italo-Disco,  Synth-popПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B6D99E71CB03992328132077F220516299F4A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

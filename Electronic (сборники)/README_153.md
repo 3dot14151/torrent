@@ -1,3 +1,32 @@
+###  Публикация: 1171089   (397775) от 03.10.2017
+
+VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397775.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Antidote - Vedrasonic (Original Mix)
+002. Gravitech - Fractures (Original Mix)
+003. Kiraz - The Upside Down
+004. Rubix Qube - Chief Whip (Feat. Zyloss)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12 :00 :58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F50E59A34FA12C7B3607637B71397A65FE212D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171093   (397683) от 03.10.2017
 
 VA - Deep House Collection Vol.138 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -770,41 +799,6 @@ VA - Workout Mix vol.10 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28344D6D0BA69787E4014F3685A900BAB846EF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568418   (390457) от 05.11.2012
-
-VA - Big Room Amsterdam (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390457.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cenk Basaran - The Finger (Original Mix) (6:00)
-2. Facade and Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) (6:54)
-3. Somna - Afterglow (Original Mix) (8:37)
-4. Mosahar - Floor On Fire (Original Mix) (6:59)
-5. Kearney - Exactly (Giuseppe Ottaviani Mix) (7:43)
-6. Katy Rutkovski - Hidden Dawn (Original Mix) (6:03)
-7. Michael Dow - Ursa Minor (Original Mix) (8:45)
-8. Paul Denton - Monday Club (Original Mix) (6:48)
-9. Gary Proud - Apollo's Children (Original Mix) (7:25)
-10. Melinda Gareh - Supernal (Luke Terry Remix) (8:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C77A2D0DB3B99328162F8A70E7059CC8DB15F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

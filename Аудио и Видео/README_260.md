@@ -1,116 +1,3 @@
-###  Публикация: 1345158   (167967) от 13.12.2019
-
-Эверест / Abominable (2019) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), Английские (Full)Продолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E42B9A8091C07CEE63F71F36079E1F6D85A7AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516107   (167949) от 09.12.2021
-
-VA - Caravan 2 (2018) [AAC|~305 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stanisha - Caravan (9:50)
-02. Elias Fassos, RisK (Gr) - Manangel (5:57)
-03. Dreamers Inc, TreePines - Desert Sound (ThroDef Istanblues Remix) (6:18)
-04. Stanisha - Amman (11:12)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6D69B0E33DECCF9B9A814A2CA5E307152205E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516063   (167936) от 09.12.2021
-
-VA - Earthbound Collection, Vol. 2 (Compiled by Salvo Migliorini) (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Deep House, Ethnic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Essek - Krangalis (7:22)
-02. Jose Solano - Jangal (8:02)
-03. Mikhail Catan - Oracle (5:44)
-04. Ali Termos - Roya (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep House, EthnicПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA06C654AB48ACD114E7722593C02E848E97B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515912   (167933) от 09.12.2021
-
-VA - Buddha Luxury, Vol. 3 (Esoteric World Music) (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. R. Haim - Yasmin (Original Mix) (3:31)
-02. Mandarin Plaza - Carpet Ride (Original Mix) (5:09)
-03. FAT V - Silence of Sadness (Original Mix) (5:44)
-04. Clelia Felix - Eastern Sunrise (Original Mix) (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA50A7EFF365F1169437FD4560748CEDD17687E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516060   (167922) от 09.12.2021
 
 VA - Earthbound Collection, Vol. 1 (Compiled by Salvo Migliorini) (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Deep House, Ethnic>
@@ -736,6 +623,119 @@ VA - Maretimo Late Night Grooves, Vol.1 - Cosmopolitan Lounge Music (2021) [AAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B031201E15B74C2E3D81B5E692F7EE4D096F89A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516143   (167004) от 10.12.2021
+
+VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker, Helsloot - Because You Move Me (3:16)
+02. Kidnap, Leo Stannard - Moments (Ben Böhmer & Nils Hoffmann Remix) (4:10)
+03. Loud Luxury, Thutmose - Red Handed (2:51)
+04. Armin van Buuren, Davina Michelle - Hold On (3:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, TranceПродолжительность: 03:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516299   (166991) от 10.12.2021
+
+VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignacio Tardieu - BASIC002 (6:48)
+02. Kyrro - Regeneration (7:08)
+03. Lotech/Hijack - further out (7:49)
+04. Ajnkana - Monoject (Hypno Dub Edit) (7:34)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516314   (166981) от 10.12.2021
+
+Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166981.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Alicia Keys, Pusha T - Plentiful (Originals) (3:09)
+1.02. Skydive (Originals) (3:04)
+1.03. Best Of Me (Originals) (3:59)
+1.04. Dead End Road (Originals) (3:32)(   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345228   (166970) от 14.12.2019
+
+Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

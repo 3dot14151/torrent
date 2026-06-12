@@ -1,116 +1,3 @@
-###  Публикация: 1518269   (156076) от 19.12.2021
-
-VA - Nu Urban Jazz 3 (2021) [AAC|~319 Kbps] <Jazz, Nu Jazz, Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P. A. Jeron, Peter De Girolamo - Blurred (2:22)
-02. DOUT.D - Miles So Sexy (2:12)
-03. Soulstance, Jazz 2 More - Winter Day (6:24)
-04. Soulstance, Maison Jaxx - A Man In New York (4:43)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC70F8E2FED8C2BE0E9015A56BEDE4D187458704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853955   (156020) от 27.12.2014
-
-Теорема Зеро / The Zero Theorem (2013) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричный компьютерный гений Коэн Лет бьется над неразрешимой теоремой. Благодаря костюму для виртуальной реальности, изобретенному мальчиком Бобом, Лету удается совершить путешествие в скрытое пространство и узнать тайну своей души. Эту разгадку ищет не только он сам, но и таинственный Менеджмент, который правит всем миром посредством всевидящих устройств под названием ManCams.Жанр: Фантастика, триллер, драма, комедияРежиссер: Терри ГиллиамПродюсер: Николя Картье, Дин Занук, Марк БакунасАктеры: Кристоф Вальц, Гвендолин Кристи, Руперт Френд, Рэй Купер, Лили Коул, Дэвид Тьюлис, Санджив Бхаскар, Петер Стормаре, Бен Уишоу, Мелани ТьерриПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518275   (156018) от 19.12.2021
-
-VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan F, Ya-Ya - U & Me (2:31)
-02. Geo Da Silva, Dani Corbalan - Amore Sincero (2:27)
-03. Deep Emotion - Ready To Let Go (2:21)
-04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518278   (156004) от 19.12.2021
-
-VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stage Van H - Doxtoutheo (6:52)
-02. Glenn Molloy - Enemy (Nichols Remix) (5:44)
-03. The Loco - Fate 25 (Ricardo Piedra Remix) (8:10)
-04. Darren Bray - Discovering Truth (Aman Anand Remix) (7:54)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518221   (155926) от 19.12.2021
 
 Группа Сентябрь - А счастье где же ты (2021) [AAC|~319 Kbps] <Pop, Chanson>
@@ -706,6 +593,122 @@ Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2AC8DC955171A561EDE8DC1EA59E3677543F41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518529   (154304) от 20.12.2021
+
+H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Way Home (3:10)
+02. Letters for You (2:19)
+03. Indigo Night (1:52)
+04. Moonlight (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Hop, AmbientПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DB19198877D0DE975DAD3997C4118219100749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518534   (154295) от 20.12.2021
+
+SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
+02. Take It All the Way (Original Mix) (6:00)
+03. Behind a Mirror (Original Mix) (4:16)
+04. Sadness of Rain (Original Mix) (6:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518565   (154290) от 20.12.2021
+
+VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menace & Lord - While the Record Plays (Original Mix) (2:50)
+02. Sebastian Bach - Wandering (Original Version) (5:01)
+03. Chambre 37 - A Warm Breeze (Original Mix) (5:49)
+04. Jens Buchert - Raumhafen (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518562   (154279) от 20.12.2021
+
+VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelo-K - Whatever You Need (Zetandel Chillout Mix) (4:24)
+02. Daminika, Bryan Milton, Natune - I Won't Sleep (Rayan Myers Remix) (5:22)
+03. DJ Artak, Angel Falls - Unity (Owl Stone Chill Mix) (4:17)
+04. Angelo-K - Whatever You Need (S.A.T Chillout Remix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

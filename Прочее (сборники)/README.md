@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1875623   (1072690) от 
+
+VA - Music News For Forum vol.172 (2026) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith, Yungblud - Wild Woman (03:35)
+ 002. Hounding. - Panic Park (02:47)
+ 003. Mayson's Party - Happy End (02:29)
+ 004. Free Friends, Ben Dehan Midfield - Ricochet (03:23)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 05:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C567889E47564EC30F1B9D6653F45093DCA6FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875221   (1072396) от 
+
+VA - ЕвроХит Топ 40 Europa Plus 05.06.2026 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Mr. Know It All (3:18)
+02. BTS - SWIM (2:39)
+03. Alex Warren - Fever Dream (3:48)
+04. ZAYN - Die For Me (3:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4754C79E3176CCBC4F624BE5623C6A80C8E19719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875127   (1072335) от 07.06.2026
+
+VA - Music News For Forum vol.171 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bukatara - Сексуальная (02:20)
+ 002. Alex Menco - True (02:04)
+ 003. Denis First - Riders On The Storm (02:54)
+ 004. Antoine Vermouth - Mil Besos (02:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D4E1FC812695C5B92EE7D337525F3368686F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875047   (1072300) от 
+
+AI - Russian Poets Covers Compilation Part 22 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Н. Гумилев, Pcsv - Дремала Душа
+02 - Э. Асадов, Музыка поэзии - Чувствуете Тупик
+03 - С. Есенин, DJ Malinova - дорогая, Сядем Рядом...
+04 - А. Ахматова, Lorelei - Всё Отнято(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9ED76FE3AF7E07855DA35D9C8C9D134AC27381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874752   (1072284) от 
+
+Sade - Collection от ALEXnROCK (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка Sade прошла со мной рядом практически через всю мою жизнь, с самого раннего детства. В 1986 году кент маминого брата привёз из Югославии пласт Diamond Life. На обложке в чёрно белом цвете, была необычайной красоты девушка. Чуть позднее в видеосалоне перед фильмом минут 20 крутили зарубежные клипы и там я увидел клип Smooth Operator. И начинающий мужчина был (   Читать дальше...   )01. Smooth Operator
+02. Your Love Is King
+03. Hang On To Your Love
+04. Frankie's First Affair(   Читать дальше...   )Жанр: PopПродолжительность: 04:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6753AB1147497895D3D05EADA46F31C2251CC10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874516   (1071986) от 02.06.2026
 
 VA - Music News For Forum vol.170 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -601,151 +746,6 @@ VA - Music News For Forum vol.167 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6CF3DD8B7A4CB4212C086A4D990C19A25EA1FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869560   (1068356) от 07.05.2026
-
-Ai - Нейро Музон На Любой Фасон presents В. Высоцкий Covers (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тот Кто Раньше С Нею Был (Их Было Восемь)
- 02 - И Снизу Лёд, И Сверху - Маюсь Между...
- 03 - Баллада О Любви
- 04 - Беда ( Я Несу Свою Беду)(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACCE94CD4125CE57EB438A1212B7C65C1E84E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869194   (1068099) от 04.05.2026
-
-Ai - Russian poets covers 11 compilation (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А. Блок, Vibe Poems - О Да, Любовь Вольна, Как Птица…
-02 - М. Лермонтов, Лэп - Демон
-03 - А. Пушкин, Dj Ev - Онегин
-04 - С. Есенин, Лэп - Мы Теперь Уходим Понемногу…(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CEE2F01FF30A98571AAE4B0F1FE12B2738EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869211   (1068085) от 04.05.2026
-
-VA - Dreamwave Dance (2026) [MP3|320 Kbps] <Pop, Dance, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068085.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kanii - I Think There's Something Wrong With Me (03:10)
- 002. Hiding From Amy - Counterfeit Lips (03:48)
- 003. Fuggy Sevant - Bite Down Babylon (02:15)
- 004. Tiara Eve - Building Dreamz (03:14)(   Читать дальше...   )Жанр: Pop, Dance, SynthpopПродолжительность: 11:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72ADBEAA5FD91D90386F5F9A16B75A93EE4EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869214   (1068083) от 04.05.2026
-
-VA - Spring Dancefloor (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sophie And The Giants - Pink Champagne (02:58)
- 002. Reevva - Turn Away !! (04:31)
- 003. James Brian - Rather (04:02)
- 004. Paul B.Ny - Only Sometimes (02:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7CFF38B6F9C1AC6FA041FA91C8AA6A5A97CA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869324   (1068000) от 05.05.2026
-
-Ai - Russian poets covers 12 compilation (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - С. Есенин, Autotunes - Я Московский Озорной Гуляка
-02 - Н. Гумилёв, A-M-Artimusic - Сон
-03 - А. Блок, Хиты Иначе - Моей Матери)
-04 - С. Есенин, Poetica Soul - Ночь(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A9D17EDA2CAC3CFF44F72033211B9951E2E480
 ```
 
 https://mybot314.ru/tekegram_catalog/

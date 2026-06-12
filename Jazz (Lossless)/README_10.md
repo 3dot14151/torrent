@@ -1,3 +1,61 @@
+###  Публикация: 1446862   (1032311) от 11.02.2021
+
+Dino Saluzzi - Albores (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032311.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adios Maestro Kancheli - 3:56
+2. Ausencias - 4:58
+3. Segun Me Cuenta La Vida – Milonga - 7:01
+4. Intimo - 5:42(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89ED3D4949632FA45D04A456D2AC490FDE7525A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446940   (1032307) от 11.02.2021
+
+Julie London - For The Night People (1966) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Won't You Come Home Bill Bailey [2:26]
+02. I Got It Bad (And That Ain't Good) [3:59]
+03. Saturday Night (Is the Loneliest Night in the Week) [2:30]
+04. God Bless the Child [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFEC8E43BF0DB4C016A79E5909C267F9A38EEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620480   (1032144) от 20.03.2023
 
 Malcolm Strachan - Point Of No Return (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
@@ -688,64 +746,6 @@ Workshy - Love Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Funk, Soul-Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45394646BCB23131D7FF5CEED9C4E01C9D0F2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309931   (1030846) от 25.03.2023
-
-Louis Armstrong (Луи Армстронг) - Original Album Classics (5CD Box Set) (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Chair (4:21)
-02. Bucket's Got A Hole In It (5:17)
-03. Perdido (3:27)
-04. Clarinet Marmalade (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A3844BE92E3D6AD26786CA360F05C472A1E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621760   (1030748) от 26.03.2023
-
-Curtis Fuller - Eight Classic Albums (1950 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accident [4:16]
-02. Darryl's Minor [5:37]
-03. Be Back Ta-Reckla [7:14]
-04. Judy-Ful [9:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B051748E4A55B884D5B4FBB6F31E160A5F66207B
 ```
 
 https://mybot314.ru/tekegram_catalog/

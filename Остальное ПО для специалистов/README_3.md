@@ -660,25 +660,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563143   (402589) от 23.10.2012
+###  Публикация: 1171401   (395457) от 05.10.2017
 
-FULL x-Force keygens collection for Autodesk products v2013 [Английский/Русский]
+Parallels Workstation 6.0.13976 [En]
 
 >>Софт и оболочки для специалистов, Прочее
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_402589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор генераторов ключей для всей линейки продуктов компании Autodesk версии 2013 г. как русских, так и английских версий.Название программы: FULL x-Force keygens collection for Autodesk productsЯзык интерфейса: Английский
+Parallels Workstation v.6.0 Build 13976 (от 8 июня 2012) - это последняя версия популярной виртуальной машины для Windows построенной на базе разработок российской компании "Параллели" известной своей программой TwoOStwo.
+
+Parallels Workstation 6.0 позволит запускать - эмулировать несколько операционных систем, таких как Windows, Linux, FreeBSD, IBM OS/2 (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EC0E26D72EE85E7CDEA6CC90BE5206324030E537
 ```
 
 https://mybot314.ru/tekegram_catalog/

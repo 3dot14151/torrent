@@ -1,3 +1,90 @@
+###  Публикация: 1797076   (18315) от 14.05.2025
+
+VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. East 17 - 50 Shades
+002. OneRepublic - All Fall Down
+003. Blue - All Rise
+004. OneRepublic - All The Right Moves(   Читать дальше...   )Жанр: PopПродолжительность: 12:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38EB69510646416A8314302D18D155B33FB45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797042   (18312) от 14.05.2025
+
+VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sofia Camara - Said It All - (03:00)
+ 002. Blumele - Gomma - (03:31)
+ 003. Gobbi - Risorto - (02:43)
+ 004. The Boyz - Vvv - (03:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796007   (18241) от 15.05.2025
+
+Юрий Сучков - Old Music Collection (2025) Remaster, 2025, driver 3 studio Юрия Сучкова [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Запретная зона [00:04:00]
+02.Кирпичи [00:03:14]
+03.Арестантское танго [00:02:26]
+05.Прости меня родная 01 [00:03:23](   Читать дальше...   )Жанр: ChansonПродолжительность: 02:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409922BC69F1FB3F459870A664DAA4494B284400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797236   (18216) от 15.05.2025
 
 Stive Morgan - Part 2 Compilation (2025) [MP3|320 Kbps] <Electronic>
@@ -658,93 +745,6 @@ VA - Compilation Part 164 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77BE4ED68F4FD3ADBC9FC36C1092F7D2DEE1919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799116   (16861) от 26.05.2025
-
-VA - Assorted Compilation Part 9 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - Out of Rain
-02 - The Sound of Love - White Sea
-03 - Sergey Grischuk - Land of a Dream
-04 - The Sound of Love - Magical Fly(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B50C4DAF064B28526F4D56CFEA7F9109F41DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799013   (16857) от 26.05.2025
-
-VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A-Sultan - Fading Light
-02 - Rodle & Ab Bos - Amore Mio
-03 - Imazee - You Feel My Heart
-04 - Dndm, Mr Salama - Gray Night(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADA59B12330356FE8EF6C26175DFD45CCD4CE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799218   (16822) от 26.05.2025
-
-Bad Balance (Михей, Шеff, AL Solo, Купер) - Compilation (1994-2024) [MP3|320 Kbps] <Hip-Hop, Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Balance - World Mix
-02. Bad Balance - Мы Не Любим, Когда... (& MC Sheriff)
-03. Bad Balance - Светлая Музыка
-04. Шеff - What A Wonderful Life (& Lojaz)(   Читать дальше...   )Жанр: Hip-Hop, ReggaeПродолжительность: 06:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506843417E5DE0B6547474C432491EDBD911A3EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875757   (1072782) от 
+
+Windows 10 22H2 x64 by OneSmiLe [19045.7417] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 10.06.2026
+Удалены все модерн приложения (кроме магазина)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A388982032766C61C910B75A8D6392FAF6A1605E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874328   (1071928) от 02.06.2026
 
 Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Windows Umbrella (v10, 06.2026) [Ru/En]
@@ -688,35 +717,6 @@ Windows 10 22H2 Compact (19045.6691) by Flibustier [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A50433660A2BED8D4886BEDBE20F70535E9C3B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841519   (1048280) от 13.12.2025
-
-Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 09 декабря 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
 ```
 
 https://mybot314.ru/tekegram_catalog/

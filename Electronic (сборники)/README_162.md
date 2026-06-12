@@ -1,3 +1,32 @@
+###  Публикация: 952278   (356194) от 01.11.2015
+
+Lotus Space - Music for Chillout & Dreaming (2015) [MP3|320 кб/с]<Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddha's Smile
+02. High Emotion Sunset
+03. Ganesha's Surprise
+04. Ganja Dreams(   Читать дальше...   )Жанр: Downtempo, ElectronicПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9240D7BD1B15088870324EFBDD05C98E7616BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256462   (356160) от 21.10.2018
 
 VA - Options Remake Of Tracks October -B- (2018) [MP3|320 Kbps] <House>
@@ -727,35 +756,6 @@ VA - Air Chilled Electro House (2020) [MP3|320 Kbps] <Chill, Deep House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E8C285116ED47920C5A23372297998EEA16A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417626   (353527) от 22.10.2020
-
-VA - Suntrip Uplifting Trance Session (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arty & Mat Zo - Rebound
-002. Rafael Osmo - Overdrive (Original Mix)
-003. New Horizons - Take Flight
-004. Brent Rix - Jericho (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8067592E7CB321D1AC35BBB3DC677A7F497426D
 ```
 
 https://mybot314.ru/tekegram_catalog/

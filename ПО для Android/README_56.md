@@ -1,29 +1,3 @@
-###  Публикация: 1562450   (507908) от 10.07.2022
-
-Deliveries - Трекинг Посылок 5.7.21 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliveries - Трекинг Посылок – это приложение для отслеживания посылок с одноименного сервиса. С его помощью пользователи могут узнать статус и место нахождения отправления, добавив трек-номер в строку поиска. Чтобы пользоваться всеми функциями трекера прямо сейчас, просто скачайте приложение на свой Андроид с нашего сайта. Установка распространяется бесплатно и (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 11.06.2022Разработчик: oRRsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28384C8976693414893452A44A89E74F625194E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562273   (507898) от 10.07.2022
 
 PixaMotion - аниматор фото и редактор-синемаграфов 1.0.5 Mod by Mixroot [Ru/Multi]
@@ -678,6 +652,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565918   (486286) от 27.07.2022
+
+Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Each tongue twister is accompanied by voice acting and the ability to record and listen to the pronunciation of your voice.
+Work on your pronunciation. Try to articulate each word clearly, slowly, and with consistency. Do this regularly and try to pronounce the sentence by heart.
+It is important to say the tongue twister out loud. Try to memorize the text by heart, (   Читать дальше...   )Тип издания: FullРазработчик: Igor KusovПоддерживаемая ОС: Android 5.0+ (arm-universal)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

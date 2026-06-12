@@ -1,119 +1,3 @@
-###  Публикация: 1503408   (819699) от 19.10.2021
-
-VA - The Best of Italo Disco, Vol. 2 (2010) [AAC|~345 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creatures - Maybe One Day (Dance Mix) (5:46)
-02. Evelyn Barry - Take It As a Game (New Super Remix) (6:08)
-03. Xenon - Opera (Dance Version) (5:19)
-04. Band of Jocks - Good Times (Original Italian Mix) (4:45)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923399ACF67499A5E349A0A793F26A22AFCDBC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503556   (819698) от 19.10.2021
-
-Максим Леонидов - Седьмое небо (2021) [AAC|~322 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В твоём городе осень (4:25)
-02. В зоне доступа твоих губ (3:08)
-03. Убить дракона (3:15)
-04. Кот (4:13)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E3D8ADE31E678A9FE54E0636AE0751F397E77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503411   (819696) от 19.10.2021
-
-VA - The Best of Italo Disco, Vol. 4 (2011) [AAC|~356 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Ross - Fall Into a Trance (Remix) (5:43)
-02. Maurice Mc Gee - Gravity (Original Mix) (5:17)
-03. Jago - I'm Going to Go (Original Mix) (5:17)
-04. Ronnie Jones - My Dance Exercizes (Extended Mix) (5:33)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AC01A6FF6C509AF220FC0602871867FF30F899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503442   (819685) от 19.10.2021
-
-Sphäre Sechs - Particle Void (2018) [AAC|~282 Kbps] <Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Multiverse (5:59)
-02. Quantum Shift (8:14)
-03. Transference (5:31)
-04. Ngc 8541 (5:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663E8DF5521592253807371CE5FB339D655315A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503439   (819589) от 19.10.2021
 
 Ager Sonus - Necropolis (2018) [AAC|~209 Kbps] <Ambient>
@@ -718,6 +602,122 @@ VA - Chill House Vibes Vol 1: Ultimate Chill House Collection (2021) [AAC|~323 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A626FF93230BDF957E9DB575D74BB5DDAFC615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503867   (817977) от 20.10.2021
+
+Гарин и Гиперболоиды - Экстрада (2021) [AAC|~342 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Движение (4:30)
+02. Работа не волк (5:00)
+03. Песни восточных славян (3:32)
+04. Бездельник (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC55B619778A5EA610B8161182F6E8AB980E8327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503688   (817879) от 20.10.2021
+
+Коча, Сашка, Янка - Квартирник в Харькове 23.06.1989 (2020) [AAC|~375 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817879.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Сергей Кочерга - Тост. За тех, кого... (3:05)
+1.02. Александр Чернецкий - Это (4:48)
+1.03. Янка Дягилева - Reggae (2:01)
+1.04. Сергей Кочерга - Хот-джаз (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5DD78E42D0BC81FD24DE73AF0372A9A3EDD28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503836   (817793) от 20.10.2021
+
+Cerrone - The Classics (Best of Instrumentals) (2021) [AAC|~352 Kbps] <Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerrone's Paradise (Long Version Instrumental) (16:59)
+02. Je suis Music (Long Version Instrumental) (7:47)
+03. Give Me Love (Long Version Instrumental) (7:21)
+04. Midnite Lady (Long Version Instrumental) (7:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD8B76A7B72B50167AD3DCDDA62FBA00C5D5F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503690   (817788) от 20.10.2021
+
+Янка Дягилева - Акустика (1996) [AAC|~361 Kbps] <Rock, Acoustic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По трамвайным рельсам (2:09)
+02. Рижская (1:34)
+03. Особый резон (2:37)
+04. Берегись (3:00)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576100FEDCA4B408C8F16D16565EE6B86F968047
 ```
 
 https://mybot314.ru/tekegram_catalog/

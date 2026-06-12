@@ -1,29 +1,3 @@
-###  Публикация: 528850   (570559) от 29.07.2012
-
-Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361397   (568821) от 14.07.2011
 
 The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
@@ -130,6 +104,35 @@ Paul Rodgers - Free Spirit '2017 (2018) DVD5 [hand made]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93676EF484D2764CFB9EE0A86F57A70500019097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364510   (561078) от 18.07.2011
+
+Guitar Legends - EXPO '92 Sevilla / Hard Rock Concert [День пятый](19.11.1991) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockАктеры: Brian May - Guitar,Vocal
+ Joe Satriani - Guitar,Vocal
+ Steve Vai - Guitar
+ Nuno Bettencourt - Guitar(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 1:29:55
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,6 +598,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369741   (525983) от 31.07.2011
+
+Paul McCartney (The Beatles) & Wings - "Lightspeed" (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockАктеры: Paul McCartney and WingsПеревод: ОтсутствуетПродолжительность: 2:03:44 + 2:01:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 69775   (514341) от 05.07.2022
 
 Gary Moore. Ballads & Blues (1982-1994) , Live Blues.
@@ -617,6 +646,32 @@ Gary Moore. Ballads & Blues (1982-1994) , Live Blues.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE84B2B56B06270E8E0232B29F024B762DD3B05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374973   (511173) от 16.08.2011
+
+A-HA - Headlines And Deadlines [The Hits Of A-HA] (1991) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Стив Бэррон,Дэймон ХитАктеры: Мортен Харкет , Магне ,Пол ВокторЯзык субтитров: АнглийскийПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10811519839999FA15CAEBB02EE07887747A2189
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,61 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4186C4D8AFD46BFA7016CD98174F35D2352AD58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541018   (501967) от 30.08.2012
-
-Король и Шут - Страшные Истории. Томъ 1 (2003) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501967.jpg" />
-</div>
-
-
-###  Подробнее
-
-На DVD "Страшные Истории. Том 1", помимо известных клипов, представлены эксклюзивнейшие материалы из истории группы, а также ролики, которые никогда не показывались по ТВ. Этот DVD - первый из серии историй про группу "Король и Шут", которые рассказывает сама группа.01. Камнем по голове
-02. Дурак и молния
-03. Блуждают тени
-04. Садовник(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DD7AFAD5CCE2CA33A21EE3AB683B83901E66E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380006   (500890) от 26.08.2011
-
-Pet Shop Boys - Pandemonium (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

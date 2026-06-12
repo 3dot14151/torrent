@@ -1,4 +1,90 @@
 https://t.me/izofen
+###  Публикация: 1875929   (1072946) от 
+
+The Contradiction - Studio Albums (3 releases) (2013-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal, Djent, Math Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072946.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Contradiction — группа, базирующаяся в Чехии, хотя некоторые её участники также родом из Казахстана и Украины.2013 - A Piece Of The East (EP)
+2016 - Legion - The Rise (EP)
+2025 - Legion - The FallЖанр: Progressive Death Metal, Djent, Math MetalПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B535E72AA6E60B5F9F25369F17116BBFB08209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875580   (1072673) от 
+
+Sarcasm (Sweden) - Studio Albums (6 releases) (2016-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Blackened Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sarcasm - Дэт-метал группа, образованная в 1990 году в Упсале, Швеция. Распалась в 1994 году, но воссоединилась в 2015 году.2016 - Burial Dimensions
+2017 - Within The Sphere Of Ethereal Minds
+2019 - Esoteric Tales Of The Unserene
+2022 - Stellar Stream Obscured(   Читать дальше...   )Жанр: Melodic/Blackened Death MetalПродолжительность: 04:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B79FD6C7C7852E5F017C23606359BF2726860B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875554   (1072672) от 
+
+VA - That Old-Time Religion (1975) Box Set, 8 x LP, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Give Me That Old-Time Religion
+A1 George Beverly Shea - That Old-Time Religion
+A2 Anita Bryant - In The Sweet By-And-By
+A3 Norma Zimmer And Jim Roberts - Precious Memories(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF3C5A175508B7A5CF913ED56A7D04354CDC14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874705   (1072089) от 
 
 Avulsed - Studio Albums (10 releases) (1996-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
@@ -656,93 +742,6 @@ Thyrfing - шведская блэк/фолк/викинг-метал групп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871922   (1069825) от 19.05.2026
-
-Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069825.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Thank You For The Music
-A2 What I Did For Love
-A3 Are You Lonesome Tonight
-A4 I Wonder(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDEA9689B180D5720506128F657577942AC03E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871269   (1069768) от 16.05.2026
-
-Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Baroque, Organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069768.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fantasia And Fugue In G Minor - "The Great" (BWV 542)
-A2 Choral Prelude "Wachet Auf" (BWV 645)
-B1 Choral Prelude "Kommst Du Nun, Jesu, Von Himmel Verunter" (BWV 650)
-B2 Choral Prelude "Von Himmel Hoch, Da Komm Ich Her" (BWV 606)(   Читать дальше...   )Жанр: Classical, Baroque, OrganПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D4952CF4D87E618BF69F1B5C2DE58345985814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871078   (1069334) от 15.05.2026
-
-Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069334.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 White Cliffs Of Dover
-A2 Red Sails In The Sunset
-A3 It's A Sin To Tell A Lie
-Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8996DA4B48CAAD502164BDA7B940F9E888F643C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

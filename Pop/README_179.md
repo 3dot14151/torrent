@@ -1,3 +1,90 @@
+###  Публикация: 1046902   (550815) от 28.08.2016
+
+Dschinghis Khan - Best Of Dschinghis Khan (2012) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan (03:04)
+02. Himalaya (04:17)
+03. Pistolero (04:18)
+04. Wir sitzen alle im selben Boot (04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F76BCFC333FFBFDC91525301E3EEF45FD204000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237703   (550626) от 25.07.2018
+
+Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Room (7:03)
+02. Just Take My Body (6:49)
+03. Higher (4:48)
+04. Thank You Baby (7:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D825AFEE797752D97F592E6C8F8BB3DF516D5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237629   (550620) от 25.07.2018
+
+Madame Monsieur - Vu d'Ici (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Comme une reine (3:49)
+02 Mercy (3:59)
+03 Tourner la page (3:15)
+04 Ne me laisse pas (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889C7C5E6D25CB0B83E3DED5165AB9DA4CB85F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237708   (550617) от 25.07.2018
 
 Constellation Orchestra - Perfect Love Affair (1978) Reissue CD, Italy & C, 2013 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -662,93 +749,6 @@ VA - Extended Version & Remix, Vol. 1 - The Sound of Italo Disco (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4AF7E4FA7D5E649BD74CF66546B027C4F861C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238367   (547081) от 29.07.2018
-
-Crown Heights Affair - Essential Dancefloor Artists Volume 1 (1994) [FLAC|Lossless|tracks + .cue] <Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming A Dream (Special 'Blended With Love' Re-Edit) (6:39)
-02. Foxy Lady (Special 'Blended With Love' Re-Edit) (6:02)
-03. Dancin' (Original 12' Mix) (6:16)
-04. Far Out (Original Full Album Version) (6:22)(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C54425D5C7788000EF39B4030790B40297BC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310375   (547008) от 24.06.2019
-
-VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Schlager Sommer Megamix 2019, Pt.1
-02. VA - Schlager Sommer Megamix 2019, Pt.2
-03. Norman Langen - Dieses Gefühl
-04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309922   (546965) от 24.06.2019
-
-Блокбастер - Коллекция (2001-2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай (3:15)
-02. Помнишь, как было (3:40)
-03. Падал снег (3:37)
-04. Упрямый дождь (3:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3266D4894E6CDFFD2781AA4978F72D77A9B02191
 ```
 
 https://mybot314.ru/tekegram_catalog/

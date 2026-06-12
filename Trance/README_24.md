@@ -1,3 +1,90 @@
+###  Публикация: 1551947   (589000) от 18.05.2022
+
+Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
+02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
+03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552342   (587660) от 20.05.2022
+
+Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani & Monika Santucci - With You (4:17)
+02. Giuseppe Ottaviani & Dan Soleil - Hero (4:21)
+03. Giuseppe Ottaviani & April Bender - Something I Can Dream About (4:10)
+04. Giuseppe Ottaviani & Mila Josef - Fade Away (4:21)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301415   (585366) от 11.05.2019
+
+VA - Global DJ Broadcast-Top May (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brandenburg Techno Orchestra - Mindset (Extended Mix) 8:19
+02. Arkham Knights - Fall From Innocence (Extended Mix) 7:50
+03. Joyhauser - Killer Queen (Original Mix) 7:38
+04. Aly & Fila - It's All About The Melody (Original Mix) 4:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 02:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8F19FA2E2D57CCD720E47B66EAC35E1724267E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041505   (581520) от 10.08.2016
 
 VA - Atmosfera Records -  Uplifting Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75278613985DABCDDA8B8017631B2270229F4F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048283   (547318) от 01.09.2016
-
-Armin van Buuren - Old Skool (2016) Mini Album [MP3|320 Kbps] <Trance, Progressive, Club>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominator (With Human Resource) (2:30)
-02. The Ultimate Seduction (With The Ultimate Seduction) (2:14)
-03. Pull Over (With Speedy J) (2:26)
-04. Quadrophonia (With Quadrophonia) (3:20)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: Trance, Progressive, ClubПродолжительность: 00:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9772F76B29BEBBDF14F1AC0B5F22E482257A39A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048840   (545861) от 03.09.2016
-
-VA - Suanda Ibiza (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer  -  Lights (Matrick Summer Remix)  4:20
-02. Ruslan Radriges  -  No Way Back (Original Mix)  5:13
-03. Frainbreeze & Lucid Blue  -  Light My Way (Original Mix)  5:43
-04. Armos  -  Call Of The Road (Ruslan Radriges Remix)  4:44(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A6FAED524D886D89EFBD6B2E01B61131E04964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048920   (545793) от 03.09.2016
-
-VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counteractive & Fido  -  Alien Explorer  7:48
-02. Jericho Ismael  -  Laguna  7:17
-03. Wittendoerfer  -  Anywhere but Here (DJ Space Raven Remix)  6:40
-04. DK Project & Blue Wave  -  Lost Sense  7:19(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7D77F9A7E278F9D861EFF07F54873CE7A0085A
 ```
 
 https://mybot314.ru/tekegram_catalog/

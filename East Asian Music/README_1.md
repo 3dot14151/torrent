@@ -1,3 +1,32 @@
+###  Публикация: 621223   (958804) от 23.02.2013
+
+the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JRockПродолжительность: 00:13:29
+01. I Just Can't Breathe... [05:09]
+ 02. It Really Makes My Day! [03:57]
+ 03. Tsumetai Hana -Acoustic Version- [04:23]
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66C2DB99B1879A7DA52041D21F322D694C51C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981348   (952511) от 31.01.2016
 
 Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Relax>
@@ -700,35 +729,6 @@ LiLA'c Records - 31 альбом (2009-2016) Touhou Vocal /Doujin/ [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DE1A4C3A98745DEDC95779AC520485A7B5AD90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799957   (863798) от 24.02.2017
-
-Halozy - 37 альбомов (2009-2016) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Pop, Electronic, Trance>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2016.05.08 (HLZY-0025) Lucky 7 (Reitaisai 13)
-2016.12.29 (HLZY-0026) GrandSlam (C91)
-2016.12.29 (HLZY-0027) 犬猫的電子座曲 (C91)Тип издания: DoujinЖанр: J-Pop, Electronic, TranceФормат: Touhou Vocal, InstrumentalПродолжительность: 01:05:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3215A083545457EC3E7D1847B6EB822ED647CC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

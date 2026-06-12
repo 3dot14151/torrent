@@ -1,3 +1,119 @@
+###  Публикация: 1120702   (800324) от 02.04.2017
+
+Mark Mancina, VA - Moana / Моана (Оригинальный саундтрек) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Foa'i - Tulou Tagaloa (00:52)
+02. Vai Mahina - An Innocent Warrior (01:37)
+03. Денис Клявер - Дом родной (03:30)
+04. Зинаида Куприянович - Что меня ждет (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121221   (800026) от 02.04.2017
+
+Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me 2 Fanfare (03:20)
+02. Now You See Me 2 Main Titles (03:01)
+03. 300 Seconds (07:26)
+04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDBCB21C4D32E23E87DD1808CB27309A6724755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121218   (800022) от 02.04.2017
+
+Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me 2 Fanfare (03:20)
+02. Now You See Me 2 Main Titles (03:01)
+03. 300 Seconds (07:26)
+04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121740   (799631) от 03.04.2017
+
+Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (05:42)
+02. Occulta Mysteria (05:23)
+03. Hypnosis (06:03)
+04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 49378   (799510) от 03.04.2017
 
 G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Age, Ethnic, Meditative>
@@ -629,122 +745,6 @@ James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE830DB42AF232EA07DDBC6E5A248982EA249428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200398   (796252) от 20.01.2018
-
-James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Waltz
-02. Der Verzauberte See
-03. Scheherazade
-04. Andante Variationen Nr.6(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200215   (796146) от 20.01.2018
-
-Алексей Рыбников - Музыка Космоса (2006) [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свет Звёзд (Через тернии к звёздам)
-02. Письма (Большое космическое путешествие)
-03. Тема Полёта (Полёт с космонавтом)
-04. Гроза (Через тернии к звёздам)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200700   (795524) от 21.01.2018
-
-The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795524.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Just Called To Say I Love You (4:22)
-2. Never Gonna Let You Go (3:19)
-3. With You I'm Born Again (3:12)
-4. Baby Come To Me (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 03:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012042   (795516) от 29.04.2016
-
-Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the Willow Tree
-02. Star-Filled Skies
-03. Tree of Life
-04. Two Skies(   Читать дальше...   )Жанр: New Age, Neoclassical, RelaxПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

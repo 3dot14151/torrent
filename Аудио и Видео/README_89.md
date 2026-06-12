@@ -1,116 +1,3 @@
-###  Публикация: 1523090   (753518) от 10.01.2022
-
-VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crispy Galaxy - Cream Soda (6:09)
-02. Eulenspiegel - An Unspoken Thing (5:41)
-03. Hints of soul - Ebb and Flow (6:00)
-04. Ritscher - Sweet Whispers (6:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193ED25793CA73A8DD7C67E17A056785D781B82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523074   (753516) от 10.01.2022
-
-VA - Christmas Jazz Night 2020 (Best X-Mas Jazz Music) (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Faraò Trio, Giampaolo Casati - The Masquerade Is Over (5:43)
-02. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)
-03. Giacomo Bondi, Cristiana Polegri, Alfrebo Bochicchio, Fabrizio Foggia - Englishman in New York (3:54)
-04. Alyssa Zezza - September (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6958FDC4463F8677CDCB248062F178B338C41ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018204   (753439) от 21.05.2016
-
-Фрэнк Герберт | Дюна (2007) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753439.jpg" />
-</div>
-
-
-###  Подробнее
-
-По приказу Императора (вступившего в сговор с Харконненами и нарушившего тем самым Великую Конвенцию), Атрейдесы переселяются на Арракис — пустынную планету ужасных бурь и гигантских песчаных червей, населенную жестокими фанатиками — фрименами, называемую также Дюной. Эта планета должна стать их золотой гробницей. Почему золотой? Да потому что эта планета — единственный (   Читать дальше...   )Жанр: ФантастикаПеревод: П. ВязниковФормат: m4bПродолжительность: 27:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413BE28D7B1F89E7BC68FD143CACD55A70BB7B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523078   (753413) от 10.01.2022
-
-VA - Christmas Jazz Night 2021 (Best X-Mas Jazz Music) (2020) [AAC|~318 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - La Mer (3:54)
-02. Giovanni Tornambene - Like a Cup of Wine (4:19)
-03. Brazil Beat - Wave (3:46)
-04. Gabrielle Chiararo - Fly Me to the Moon (2:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D6EAEC7A2FCFEB5B4D50053CAF6028029C1C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523099   (753388) от 10.01.2022
 
 VA - Fashionable Music London (Sophisticated Lounge Tunes from the Fashion Shows) (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
@@ -709,6 +596,122 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2DD171D2633D636240AE681B778878E7957807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523345   (751681) от 11.01.2022
+
+VA - Cozy Lofi Beats (2022) [AAC|~299 Kbps] <Lo Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toolo - Crochet Flora (2:40)
+02. Hussain Ali - Story Time (1:42)
+03. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Jolis sapins (Lofi Edit) (1:44)
+04. Pesca - Heaven Seagul (2:28)(   Читать дальше...   )Жанр: Lo Fi, Lounge, Chill OutПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFFC23E5F142EA22BD938DC1D88C14C6E7AE975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523329   (751680) от 11.01.2022
+
+VA - Musica Del Sol, Vol. 3 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Gary B - Distant Shores (Original Mix) (6:25)
+02. Pier-O - Chilly Peppers (Original Mix) (4:24)
+03. Michael e - One Love Bossa Nova (Original Mix) (6:26)
+04. Marga Sol - Temple of Love (Original Mix) (6:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102F341A2A436F03E704C1A214751CE0640E3948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523325   (751679) от 11.01.2022
+
+Daminika - Collection of the Best Tracks From: Daminika, Pt. 1 (2021) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daminika, Bryan Milton, Natune - I Won't Sleep (Original Mix) (4:26)
+02. The Colors of the Evening (Original Mix) (4:20)
+03. Infinite Sadness (Original Mix) (4:06)
+04. Beyond the Stars (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C15319F05D5DEA3483EFDF15E824187A4ADE4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523346   (751678) от 11.01.2022
+
+VA - Cutaneum (Skin Deep) (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup, Eva Scolaro - One (5:50)
+02. Openzone Bar - Lifestyle (5:32)
+03. Luis Hermandez - Don't Want Your Love (3:06)
+04. Jazzamor - Mar De Paixao (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3934E6A06A5644A0892505C38DBF55CA55CE1CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

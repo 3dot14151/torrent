@@ -1,3 +1,96 @@
+###  Публикация: 226992   (537482) от 15.08.2010
+
+Божья Коровка - Все новое... Это хорошо переработанное старое (2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мир раскололся
+02 Друзья-товарищи
+03 В каком неведомом краю
+04 Ледяное сердце
+05 Деревья
+06 Гранитный камушек 2007
+07 А у нас, в Америке
+08 Самая любимая моя
+09 Теплоход (релакс)
+10 Застольная(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926010   (537201) от 08.08.2015
+
+Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Me Down [02:59]
+02. Brief And Beautiful [03:43]
+03. My Heart Is Yours [02:29]
+04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926008   (537106) от 08.08.2015
+
+Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Serenata (Overture)
+02. Lucifer
+03. Testamente D'Amelia
+04. Is She Really Going Out With Him? (Live In Leningrad 05. Autumn 1990)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239520   (536722) от 06.08.2018
 
 Vanessa Mai - Schlager (Ultra Deluxe Fanbox) (2018) 5CD, Box Set [MP3|320 Kbps] <Schlager, Pop, Instrumental>
@@ -655,99 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719E4E194F85468992309FEFF9206219311AF890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312327   (534182) от 03.07.2019
-
-Светлана Разина - Звезда из прошлого (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534182.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звезда из прошлого
-2. Бессоница
-3. Радио Нах (Нажми на плей)
-4. Шанс (feat. Никита Осин)(   Читать дальше...   )Жанр: PopПродолжительность: 01:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291A007317CDD4687B35D1C74729E8F3E9C180D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312048   (534084) от 03.07.2019
-
-VA - 100 Greatest Dance Tracks (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lilly Wood And The Prick,Lilly Wood & The Prick,Robin Schulz - Prayer in C (Robin Schulz Remix)
-002. Daft Punk - One More Time
-003. Corona - The Rhythm of the Night
-004. Robin S - Show Me Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54C83EF1FFE67791D91C42D7D75E8C5F64CB0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532710   (533994) от 09.08.2012
-
-MAXI Наши 2000-е (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fi - Седьмой Лепесток
- 02. Чай Вдвоем - Он Не Разлюбит
- 03. София Ротару - Белый Танец
- 04. Света - А Может Да
- 05. Иванушки International - Билетик В Кино
- 06. Алла Пугачева - Исчезнет Грусть
- 07. Авраам Руссо - Знаю
- 08. Reflex - Трудно Говорить (Remix)
- 09. Филип Киркоров И Маша Распутина - Мечта
- 10. Жасмин - ДаЖанр: PopПродолжительность: 23:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F83B66B7C3E6DB668163CF9A832541C2A1041D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

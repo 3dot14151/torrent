@@ -1,3 +1,32 @@
+###  Публикация: 1169842   (401589) от 29.09.2017
+
+VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - Sunny Days (feat. Josh Cumbee)
+002. Union Jack - Blink (Club Version)
+003. Paul Van Dyk & Pierre Pienaar - Stronger Together
+004. Soren Andrews - Pacific Coast Highway (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5608173C881AE9C2A1C449213DEBE9276CB2C9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713446   (401567) от 21.10.2013
 
 Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
@@ -806,41 +835,6 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F07C9C4E45251E0FCE7BB7854768D14873826EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566962   (398302) от 28.10.2012
-
-VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398302.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Favorite feat. Theory - Beautiful night
-002. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you
-003. Guy Sebastian - Gold
-004. Linkin Park - Until It Breaks
-005. Justin Bieber feat. Ludacris - All Around The World
-006. Far East Movement feat. Justin Bieber - Live my life
-007. Giga Dance vs. Rainy - Like an Angel (Deniz Rain radio mix)
-008. Loverush UK! feat. Bryan Adams - Tonight in babylon
-009. Avicii - Fade into darkness (Vocal radio edit)
-010. Bryce feat. Carlprit - Dance with me(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566372A34311B7B79E6EF5528EE13DB22CEAEC97
 ```
 
 https://mybot314.ru/tekegram_catalog/

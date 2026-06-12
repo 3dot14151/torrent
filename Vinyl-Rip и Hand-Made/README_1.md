@@ -1,3 +1,90 @@
+###  Публикация: 1865193   (1065367) от 14.04.2026
+
+Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065367.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Working Man Can't Get Nowhere Today
+A2 Making Believe
+A3 Blues Stay Away From Me
+A4 Got A Letter From My Kid Today(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E1377EB2F8EA098AFA95678670F6DBA684C5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864556   (1064814) от 
+
+Enforcer - Studio Albums (6 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enforcer - метал-группа из Стокгольма, Швеция, основана в 2004 году2008 - Into The Night
+2010 - Diamonds
+2013 - Death By Fire
+2015 - From BeyondЖанр: Heavy/Speed MetalПродолжительность: 04:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370CDFA5432186F5E0B675F21439B489BBB13CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864270   (1064615) от 
+
+Gorguts - Studio Albums (6 releases) (1991-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Avant-garde Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gorguts - канадская метал-группа, основана в 1989 году в Ричмонде, Квебек.1991 - Considered Dead
+1993 - The Erosion Of Sanity
+1998 - Obscura
+2001 - From Wisdom To HateЖанр: Technical/Avant-garde Death MetalПродолжительность: 03:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDB279E60BDAEFA5B6C8E4CEDE2986592D304B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864287   (1064613) от 
 
 Larry Gatlin - Rain Rainbow (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
@@ -656,92 +743,6 @@ A3 Csardas(   Читать дальше...   )Жанр: Classical, RomanticПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93634F230E038A4D13E88D04713564CB8FA6F9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858874   (1060778) от 13.03.2026
-
-Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060778.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Dear John Letter
-A2 Too Used To Being With You
-A3 In The Misty Moonlight
-A4 We'll Sing In The Sunshine(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244DBE2701206B955A6AD861CEABF1E56CF8098D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858576   (1060650) от 11.03.2026
-
-VA - Twenty-Five Years Of Royal Variety At The London Palladium 1930 - 1973 (1973) Compilation, Gatefold With Book [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Music Hall>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060650.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The London Palladium Orchestra - Another Opening, Another Show
-A2 The New Seekers - What Have They Done To My Song, Ma?
-A3 The London Palladium Orchestra - There's No Business Like Show Business
-A4 Andy Williams - Almost There(   Читать дальше...   )Жанр: Pop, Music HallПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B255F5BE7707A560757FBCC5165C20F5D488AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858713   (1060567) от 12.03.2026
-
-Ebony Tears - Studio Albums (3 releases) (1997-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ebony Tears - метал-группа из Стокгольма, Швеция, основана в 1996 году.1997 - Tortura Insomniae
-1999 - A Handful Of Nothing
-2001 - Evil as HellЖанр: Melodic Death/Thrash MetalПродолжительность: Melodic Death/Thrash Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7828DAA925EBD8B3430B70EDF8D717B8C13D91D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

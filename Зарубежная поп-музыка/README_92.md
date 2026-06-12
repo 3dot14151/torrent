@@ -1,3 +1,90 @@
+###  Публикация: 1729486   (53660) от 11.06.2024
+
+Adriano Celentano Compilation - Anni '60 (2024) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Impazzivo per te [00:02:02]
+02 - Non esser timida - Little Lonely One [00:02:27]
+03 - Jailhouse Rock [00:02:29]
+04 - Tutti Frutti [00:02:07](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1DDE40896658D5EE2A59B94D18231ACB25BABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729465   (53646) от 11.06.2024
+
+VA - DJ Hits 44 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corona - I Don't Wanna Be A Star (Radio Edit)
+02. Molella Feat. Outhere Brothers - If You Wanna Party (Original Mix)
+03. Me & My - Dub I Dub (Radio Edit)
+04. Masterboy - Anybody (Movin' On) (Album Version)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07C677B6BC3BBE4A6B578B694B5C24B3FB3B3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729459   (53611) от 11.06.2024
+
+VA - DJ Hits 41 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clubland feat.Zemya Hamilton - Peace Of Luv
+02. Everything But The Girl - Missing
+03. N-Trance - Turn Up The Power
+04. Ruffneck feat.Yavahn - Everybody Be Somebody(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23E2B107F7E9B1AAE9E18C1AB22A32342566B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730806   (53000) от 17.06.2024
 
 VA - DJ Hits Vol. 58 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
@@ -657,93 +744,6 @@ VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749880   (43353) от 16.09.2024
-
-VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daze - Super Hero
-02. Grace - Skin On Skin
-03. Maria Montell - And So The Story Goes ...
-04. Alexia - Virtual Reality(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A11505D2AEEE77B699D2649B9305F11CB323CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749922   (43249) от 17.09.2024
-
-VA - DJ Hits Vol. 2040 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E - Jay - Let That Rythm Take Control
-02. Simone Jay - Wanna B Like Man
-03. Blue System - Anything
-04. Alpha Base - Heaven Help My Heart(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3119CBB72091E36193520B97BDEADB69AE8D36F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750575   (42931) от 20.09.2024
-
-VA - DJ Hits Vol. 5858 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Brother Louie '98
-02. John Travolta & Olivia Newnton John - You're The One That I Want
-03. No Mercy - Hello, How Are You
-04. Garcia feat. Rod D. - La Vida Bonita(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771C202828B17AD6007252E825EA80DF3B0135A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

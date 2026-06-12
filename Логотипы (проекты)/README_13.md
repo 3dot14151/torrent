@@ -1,3 +1,55 @@
+###  Публикация: 1387228   (792303) от 31.05.2020
+
+Проекты - VideoHive - Brutal Logo Intro Reveal V3 - 23850531 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект поможет вам сделать классное вступление для вашего шоу на YouTube, телешоу, презентации или публикации в социальных сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E34BDD5E62CBA2C7EA9BDD016D0879F9A4D001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201521   (791931) от 25.01.2018
+
+Проекты - VideoHive - Simple Logo Mega Pack - 20762685 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simple Logo Mega Pack - проект, содержащий 40 различных вариантов для создания демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2662FAC757BD55F6270CEC297C4C57315D65E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387414   (791746) от 01.06.2020
 
 Проекты - VideoHive - Mechanical HUD Glitch Logo - 26092444 [AEP]
@@ -618,58 +670,6 @@ Clean Logo V03 Water Ripples - проект для показа вашего л�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8690CA22A5CCEB570D74E20DED8FB7B0A326BF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210902   (778041) от 05.03.2018
-
-Проекты - VideoHive - Brushed Logo Reveal - 4654788 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brushed Logo Reveal - проект, который подходит для представления вашего логотипа / названия.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D97602E9BC1D31F976FAE4AAA2729355617E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210906   (778036) от 05.03.2018
-
-Проекты - VideoHive - Petals Logo Reveal - 19533092 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Petals Logo Reveal - очень легко редактируемый проект, замените логотип или любой текст и визуализируйте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820E4409CFBB54664CCCB6A24A61A871AB0BCE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

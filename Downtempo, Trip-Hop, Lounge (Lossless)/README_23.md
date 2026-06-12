@@ -1,148 +1,3 @@
-###  Публикация: 1583326   (230102) от 14.10.2022
-
-VA - Lovely Evening Lounge Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Watching The Sky Go By (05:28)
-02. Roberto Sol - Gentle Reminder (04:37)
-03. Marga Sol - Lovely Evening (03:49)
-04. Weathertunes - People Love (04:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E1D81AC16E42A8EF9F217D1190D5AB719FEA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649600   (229101) от 28.07.2023
-
-VA - The Chill Collective: Blissful Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Scottish Fairy Tales (3:26)
-02. Ian Otta - 3Am (3:30)
-03. Will James - Moana (2:43)
-04. Beamy - Lazy Daze (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B5C0C535D4B721045055034D12F473F6D34BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583601   (228663) от 15.10.2022
-
-V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 22 (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Dub, Celso Mendes & Adelle – As It Was
-02. The Cooltrane Quartet – Sing It Back
-03. George White Group – I Love You
-04. Lifuki – Walk on the Wild Side(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BCED3F37415541ADDE328FFF668DF4E80085BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649899   (228529) от 29.07.2023
-
-Sven Van Hees - Airflow (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COWASAKI [00:04:23]
-02. AIRFLOW [00:04:17]
-03. BEAVER FEVER [00:05:25]
-04. FLOWBAMA [00:03:54](   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F845A6CDAF3A8332352A433A7087544D026B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151522   (226665) от 17.11.2020
-
-Terranova (Edition Terranova, Terra Nova) - Discography 40 Releases (1998-2019) Studio !K7, Recall, Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Trip Hop, Downtempo, Electro, Abstract Hip Hop, H ...
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terranova - Labrador (09:15)
- 02. Terranova & Stereo MC's - 004beat (07:55)
- 03. Terranova - Twisted Dub (08:05)
- 04. Terranova - Neustadt Is For Lovers (04:58)(   Читать дальше...   )Тип издания: CD, WebЖанр: Trip Hop, Downtempo, Electro, Abstract Hip Hop, House •Продолжительность: 23:30:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49524C4198B0362D050CD59C5C44247DEA5BCE86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268605   (226440) от 11.12.2018
 
 VA - Jazzpresso Vol. 1-2 (2000-2001) Lab Records [FLAC|Lossless|tracks+.cue] <Acid Jazz, House, Future Jazz, Deep House>
@@ -745,6 +600,151 @@ Lemongrass - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029F2FC19F78711054597FDC54C1F1900EE18F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645767   (209195) от 11.07.2023
+
+VA - Melodies of the Ocean: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Calma (5:28)
+02. Michael E - It's Like Floating (Original Mix) (4:44)
+03. Gary B - I Feel You (2:05)
+04. Beamy - Serenity (3:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D3D28F9C4F10A442C3A6D5D1ED92DA366DC7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647396   (208613) от 18.07.2023
+
+VA - Morning Mood: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Just Dropping By (Original Mix) (3:57)
+02. Leo de la Rosa - No Me Hagas Volar (5:46)
+03. La Estación Del Mar - Aminata (3:16)
+04. Martin Hiska - Meet Me in the Moonlight (4:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FCF165C42CC01F2AC63DEC6EAEAD6414906A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610745   (207841) от 09.02.2023
+
+VA - Balearic Breeze: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beachvibes - Charming Sunset (Original Mix) (4:58)
+02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
+03. Sayana - Again (5:46)
+04. Jane Maximova - Puppets (Original Mix) (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60795D049FD18604C83012E3060900D1BC31166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652411   (206569) от 11.08.2023
+
+VA - Laid-Back Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - Under the Sea (Original Mix Remastered 2009) (5:56)
+02. Schwarz & Funk - Drift Away (Original Mix) (5:24)
+03. Gary B - Breakout (2:51)
+04. Lennart Richter - Ride Along (Original Mix) (3:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98F07718415E38495B6F692F53B26E14A874603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652645   (206440) от 12.08.2023
+
+V.A. - Cafe del Mar XXIX (Volumen Veintinueve) (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Eric Hilton & Natalia Clavier - Corazón Kintsugi
+02. Boozoo Bajou - Way Below
+03. Paprika Soul - Come With Me (The Chill)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25767181467634AF3EDD7E10540DB0ED05058168
 ```
 
 https://mybot314.ru/tekegram_catalog/

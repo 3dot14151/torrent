@@ -1,119 +1,3 @@
-###  Публикация: 1504431   (233946) от 23.10.2021
-
-U.D.O. - Game Over (2021) [AAC|~354 Kbps] <Heavy Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Detector (4:21)
-02. Holy Invadors (3:27)
-03. Prophecy (4:42)
-04. Empty Eyes (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCD46CC29D81BA0F43C457A080796ED99C61A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504350   (233936) от 23.10.2021
-
-VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Nokondi (Original Mix) (6:24)
-02. Chris le Blanc, Paris Bizarre - Si Vous Voulez (Original Mix) (4:24)
-03. Sunyata Project - I Know Him (Original Mix) (5:30)
-04. FlyHigh - Happy Ness (Original Mix) (6:22)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD1A90639311A6289C8B1B80736D840FFBADB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504342   (233928) от 23.10.2021
-
-VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gazdabolt - Lucid Dreaming (5:50)
-02. Vakanzregel - Forest Tales (5:47)
-03. Evoking Silence - Somewhere on the Way (5:52)
-04. Sweetadelic - Natural Perspective (6:15)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512419   (233444) от 25.11.2021
-
-VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - I Don T Wanna Be You (3:48)
-02. The Upsetter - Rejection (Phunk Balearica Remix) (6:24)
-03. Lounge Groove Avenue - So Brave (3:05)
-04. Iblis - Skilltools (6:01)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9133284619B892BD2622307FCCAFEC70BC5C3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512401   (233430) от 25.11.2021
 
 VA - Take It to Church, Vol. 3 (2020) [AAC|~351 Kbps] <Disco House, Nu-Disco, Indie Dance, Boogie>
@@ -745,6 +629,122 @@ VA - Sparadise Lounge, Vol.2 (Boutique Spa Chillout Vibes) (2022) [AAC|~297 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8E20C25EA4D38FBF29EE463C5E9159207CCF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541249   (232849) от 03.04.2022
+
+VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Seasons - Oblivion (Original Mix) (4:47)
+02. Coolinar - Radiomator (Original Mix) (4:28)
+03. Nana Wang - Love Will Tear Us Apart (Original Mix) (4:54)
+04. Eros Kristyani, Oskar Boldre, Mario Arcari - India House (Original Mix) (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541235   (232678) от 03.04.2022
+
+VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiffre 100 - New Heights of Glee (5:32)
+02. Schwarz & Funk - Late Back (Kay Fischer Sax Mix) (5:23)
+03. Dany Cohiba - The Siren''s Song (5:59)
+04. Leaking Shell - Moonshine (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3586A8F5CF43F6F238DA0B5213EC3246D828343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541111   (232662) от 03.04.2022
+
+Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Rivers of the Mississippi (0:21)
+02. St. James Ballroom (4:27)
+03. Don't Shoot Me (0:26)
+04. Shoot Him Down (3:28)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898EBC05DC907721E569CEB76EB9298211942D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541256   (232650) от 03.04.2022
+
+VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Nostalgia (Original Mix) (4:34)
+02. Openzone Bar - Caruso Blanco (Original Mix) (4:48)
+03. Flokkendof - Sax Flow (Original Mix) (3:45)
+04. Stargazer - The Approach (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E500A00105C737A148EF53B1C336CA99A94A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1219575   (711917) от 15.04.2018
+
+Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Things Started (06:01)
+ 02. Tribal Days Part II (08:49)
+ 03. Tribal Days Part III (09:06)
+ 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219692   (711916) от 15.04.2018
+
+Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (08:14)
+02. New Morning (07:49)
+03. The End (Mollono.Bass Remix) (07:52)
+04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286676   (711329) от 03.03.2019
 
 Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
@@ -686,62 +744,6 @@ Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221596   (691266) от 26.04.2018
-
-Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amniotic (7:31)
- 02. Black Day (5:37)
- 03. Sirens (5:58)
- 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028395   (690783) от 22.06.2016
-
-VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subconscious Tales – Helligkeit (7:50)
-02. Vlada D'Shake – Public SecretЖанр: Deep House, Tech HouseПродолжительность: 06:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC5226D8690E604707D4CC2B8482B95B36D472A
 ```
 
 https://mybot314.ru/tekegram_catalog/

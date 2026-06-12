@@ -27,6 +27,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553783   (580018) от 28.05.2022
+
+Loretta Goggi - Compilation (2022) [MP3|320 Kbps] <Italo pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Piccolo Aiuto
+02. Un Amore Grande
+03. E' Meglio Ridere
+04. Se Io Non Ti Avessi Amato(   Читать дальше...   )Жанр: Italo popПродолжительность: 01:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0D284AC951977E5C38A510CC9306291C46C44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360339   (579914) от 08.07.2011
 
 VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
@@ -692,35 +721,6 @@ VA - 100ня взрывных хитов Русский (2011) [MP3|256 kbps]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268B64DEF391925B294A5217222BCE5C3B759627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921174   (577168) от 24.07.2015
-
-VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Профилактика - Это Не Сон
-002. Cheryl Cole - I Dont Care
-003. Mozgi (Потап) - Хлам
-004. Selena Gomez - Mas(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

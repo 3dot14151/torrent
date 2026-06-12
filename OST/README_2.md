@@ -1,90 +1,3 @@
-###  Публикация: 1362469   (949562) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362271   (949552) от 23.02.2020
-
-John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949552.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:37| 01. Wake the Girls
-|04:02| 02. Train North
-|02:31| 03. Skagway, Alaska
-|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088737   (948836) от 05.01.2017
-
-NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Party Next Door feat. Drake - Come and See Me (3:56)
-02.Drake - Hype (3:30)
-03.Drake - Pop Style (3:30)
-04.Majid Jordan - Every Step Every Way (3:35)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 133766   (948720) от 05.01.2017
 
 Григорий Гладков - Падал прошлогодний снег (Музыка к мультфильму) (1983) [MP3|128 кб/с]<Soundtrack>
@@ -751,6 +664,93 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366290   (923562) от 11.03.2020
+
+Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:12| 01. Neon Drive
+|04:13| 02. Prototype
+|03:17| 03. Netrunner
+|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366524   (922336) от 12.03.2020
+
+Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922336.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:07| 01. In Serbia
+|02:35| 02. The Rematch
+|03:34| 03. The Interview
+|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366462   (922247) от 12.03.2020
+
+Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922247.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:22| 01. Hay
+|01:29| 02. Dead Reith
+|01:29| 03. Life's Rich Tapestry
+|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
 ```
 
 https://mybot314.ru/tekegram_catalog/

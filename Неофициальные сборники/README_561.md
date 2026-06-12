@@ -1,3 +1,108 @@
+###  Публикация: 496920   (253143) от 15.05.2012
+
+VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dr. Alban - Look Who's Talking (Movie Theme)
+ 02 F. Jay Feat. Olesya - Держи Меня За Руку
+ 03 Akcent Feat. Ruxandra Bar - Feelings On Fire
+ 04 140 Ударов В Минуту - На Расстоянии Дыхания (Dj Fisun Remix)
+ 05 On T.V. - Just A Dream (Club Dance Mix)
+ 06 Oksi - Безумная (Makhno Project Radio Edit)
+ 07 Jay Adams Feat. Clara Sofie - Serenity (Original Mix)
+ 08 Quest Pistols - Ты Была Светом
+ 09 Klaas Feat. Carlprit - Do What You Do (Original Mix)
+ 10 Арина И Размер Project - My Moscow Love(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 05:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F800607C43D1DF65506FEB36BDF004EB2DA9D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496753   (253123) от 15.05.2012
+
+VA - Клубный Танцпол Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tocadisco - That Miami Track feat. Julian Smith (Bassjacker Remix)
+02. Remo feat. Doniu & Amila - Without You (Extended Mix)
+03. Mike Indigo - Some (Extended Mix)
+04. Jessie J feat. David Guetta - Laserlight (Extended Mix)
+05. Сергей Жуков & Opium Project - Я Буду С Тобой (Haaski 'Downpour' Remix)
+06. Djane Housekat Feat. Rameez - My Party (Club Mix)
+07. DJ Save feat. Neon - Everyone (Original Mix)
+08. Dony feat. K-Brown - Only Love (Extended Mix)
+09. Eleftheria Eleftheriou - Aphrodisiac (DJ Pantelis Remix)
+10. Дискотека Авария, Джиган (Geegun) и Вика Крутая - Карнавал (Anton Orf & DJ Gladiator Remix)2012Жанр: Dance, ClubПродолжительность: 04:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720B738BF66E2D8653DD47BB616736392ED79A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496486   (252951) от 14.05.2012
+
+VA - Русский рок - Баллады (2012) [MP3|192-320 кб/с]<Heavy, Progressive, Power, Gothic Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azazello - Осень
+02. De'cadenta - Босиком
+03. Materia Prima - Царство Теней
+04. R-Genium - Будь со мной
+05. R.D. - Бескрылая
+06. Аркона - Там, за туманами
+07. Воздух - На лезвии бритвы
+08. Восьмой день - Странник
+09. Margenta - Настроение
+10. Коrsика - Пустой перрон2012Жанр: Heavy, Progressive, Power, Gothic Metal, Hard RockПродолжительность: 03:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E6AA95289D3AB51084F81D71A8D6E9BB43EA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496466   (252910) от 14.05.2012
 
 VA - В Машину! с DFM 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
@@ -694,99 +799,6 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835676   (251669) от 07.11.2025
-
-VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echønova - Where Are You Going Like That
-02 - Limora - Where Are U
-03 - Echønova - Still Hear You
-04 - Umideep - My Tears(   Читать дальше...   )Жанр: Electronic, Vocal, Easy listeningПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835675   (251668) от 07.11.2025
-
-VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Menda - Listen
-02 - Mr Salama - Radio
-03 - Dova Music - Golden Night
-04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496021   (251640) от 13.05.2012
-
-VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251640.jpg" />
-</div>
-
-
-###  Подробнее
-
-10.05.2012Жанр: House, Club, DanceПродолжительность: 01:16:56
-01.SoulKey Feat. Yaniv Gezz - My Heart Shouting
-02.Chino Y Nacho Ft. Jay Sean - Bebe Bonita (Techno Remix)
-03.Bingo Players Feat. Heather Bright - Dont Blame The Party
-04.Papajam - Do What I Wanna Do
-05.Mohombi - Say Jambo
-06.Ocean's Four Feat. Adam Clay - Beautiful Life 2012 (Marchesini & Farina Rework)
-07.Dirty Kidz Feat.Shalya Don Seydina - Ole Ola
-08.Bogdan Ioan - With You (Summer Edit)
-09.Antonie De Mornak - Live 1.0(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -57,35 +57,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607465   (1044005) от 26.01.2023
-
-VA - GANGSTER MUSIC, Vol. 7 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slider & Magnit - Stacked
-2. TRITICUM - Petrunko 2.0
-3. NVTION PVNIC/KDDK - Hypnotizes
-4. VUDOO/Kolya Funk - Kruzak (Kolya Funk Remix)(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619876   (1032490) от 18.03.2023
 
 VA - DANCE XXL - Hits Only (2023) [MP3|320 Kbps] <Electropop, Progressive, Euro Dance, Pop Dance>
@@ -745,6 +716,35 @@ VA - Home Office Motivation (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBDDB01B8F591E5C2116D59F23A6D2E51B2A19DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004272   (839754) от 05.04.2016
+
+Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again    03:39
+02. Every Time I See You    03:06
+03. Make Believe    03:56
+04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1220850   (700304) от 21.04.2018
+
+Nana - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Got To Get Away
+02 Let It Rain
+03 Тoo Much Heaven
+04 Judgement Day(   Читать дальше...   )Жанр: RapПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6726FD791AA4C743F4B60A76ECB973DD410FF650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287963   (699634) от 09.03.2019
 
 VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
@@ -710,35 +739,6 @@ VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1867D0B01CF741CE8417B4E2F018FDAB86220A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038046   (609908) от 26.07.2016
-
-VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) (2016) [MP3|320 Kbps] <R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - Hotline Bling
-02. The Weeknd - Can't Feel My Face
-03. Craig David - 7 Days
-04. Christina Milian - Dip It Low(   Читать дальше...   )Жанр: R&BПродолжительность: 03:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5003ABDEA37C71E6FC3E99ED6A1D9DBEEA5697
 ```
 
 https://mybot314.ru/tekegram_catalog/

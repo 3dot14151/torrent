@@ -1,3 +1,29 @@
+###  Публикация: 1791869   (21242) от 16.04.2025
+
+Фоны - Burhan Khawaja - Behance - 120+ AI Backgrounds 5K Free - 210869059 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор бесплатных фонов в 10 тематических вариациях, сгенерированных ИИ.Формат: JPEGРазрешение файлов: 5376 x 3584 - 5824 x 3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6536A4620919BBA7DCD6277FA44025B41E57B897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791873   (21234) от 16.04.2025
 
 Фоны - STCrafts - Creative Fabrica - French Cottagecore Blue Floral Digital Paper Backgrounds [PNG]
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3CA59F47BD435245A7037385966406415905A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795972   (18400) от 13.05.2025
-
-Текстуры - Andrey K. - Behance - Liquid Textures - 107075369 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18400.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 бесплатных жидкостных текстур.
-Разработчик: Andrey K.Формат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

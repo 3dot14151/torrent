@@ -1,3 +1,29 @@
+###  Публикация: 1499778   (839819) от 07.10.2021
+
+The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839819.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Pretty Reckless выпустили видеоклип на песню «Only Love Can Save Me Now», совместную с гитаристом Soundgarden Ким Тайилом и барабанщиком Мэттом Кэмероном.Жанр: RockПродолжительность: 0:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB4DB4E1DC701E97AB6EB5CFA889897446841AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500058   (839585) от 07.10.2021
 
 AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
@@ -678,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A949033D46F89CAE3086CBFA53A9062AF511AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204342   (784828) от 05.02.2018
-
-Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784828.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Вступление
-207 Джанго - Была не была
-208 Разные Люди - Страна
-209 Рондо - Московская осень(   Читать дальше...   )Жанр: РокФормат: MKVПродолжительность: 03:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73F02556175000DD205BF957407A2F43FCDB9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

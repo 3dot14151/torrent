@@ -1,3 +1,87 @@
+###  Публикация: 158559   (303835) от 14.12.2009
+
+Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) 2*DVD-9
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal/Thrash MetalПеревод: ОригинальныйСубтитры: Английский, испанский, португальскийПродолжительность: 02:25:05 + 01:40:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960701   (303342) от 30.11.2015
+
+Cesaria Evora - Live D'amor (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cesaria Evora - Live D'amor En Concert Au Grand Rex Avril 5, 20041. Nutridinha
+2. Isolada
+3. Vaquinha Mansa
+4. Velocidade(   Читать дальше...   )Производство: BMG RecordsЖанр: Morna, Fado, FolkПеревод: ОтсутствуетПродолжительность: 01:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077840   (302413) от 30.11.2016
+
+Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
+02. See See Baby
+03. Some Other Day, Some Other Time
+04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184364   (301295) от 17.11.2017
 
 Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
@@ -646,93 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189568   (268732) от 08.12.2017
-
-Extreme - Take Us Alive (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление бостонских фанк-металистов EXTREME, проходившее в их родном городе в 2009-м году. "Это захватывающее дыхание, головокружительное выступление необыкновенно, - пишет в рецензии на DVD журнал Classic Rock, - оно способно остановить швыряющихся бутылками деревенщин из Миссисипи, заставить улыбнуться гранджеров из Сиэттла и побудить амазонские (   Читать дальше...   )01. Decadence Dance
-02. Comfortably Numb
-03. Rest In Peace
-04. It's a (Monster)(   Читать дальше...   )Производство: Frontiers RecordsЖанр: РокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C67F18876DED3D3B8200FD166775A7867293A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189827   (268700) от 08.12.2017
-
-Bad Company - In Concert. Merchants of Cool (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268700.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2002-м году Bad Company, которые готовятся вскоре отметить 30-летие (на тот момент) своего подвижничества на ниве рок-н-ролла, проехали с гастрольным туром по США и Великобритании. К этому времени из оригинального состава, сформированного еще в 1973 году и принесшего группе известность, остались только вокалист Paul Rodgers и барабанщик Simon Kirke. Для участия (   Читать дальше...   )01. Burnin' Sky
-02. Can't Get Enough
-03. Good Lovin' Gone Bad
-04. Feel Like Makin' Love(   Читать дальше...   )Производство: Sanctuary RecordsЖанр: Хард-рок, блюз-рокПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AA327923E1A50C6BBDCD1558F844303862C8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266899   (268346) от 04.12.2018
-
-The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная видеоверсия выступления The Rolling Stones на сцене Miami’s Joe Robbie stadium 25.11.1994г.Бонусом добавлен фрагмент чуть более раннего выступления в Нью-Джерси на сцене Giants Stadium из того же тура Voodoo Lounge.Disc 1
-01. Whoopi Goldberg Intro
-02. Not Fade Away
-03. Tumbling Dice(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: David MalletАктеры: The Rolling StonesСубтитры: отсутствуютПродолжительность: 02:29:38 + 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A710325C686D2A5BFC6673DB17F179F9BF761192
 ```
 
 https://mybot314.ru/tekegram_catalog/

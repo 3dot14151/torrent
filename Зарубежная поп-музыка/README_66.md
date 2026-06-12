@@ -1,3 +1,90 @@
+###  Публикация: 1190098   (268892) от 08.12.2017
+
+Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Outside Your Love (3:01)
+02. Lost In Wonderland (4:12)
+03. Don't Make It So Hard (3:20)
+04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266988   (268391) от 04.12.2018
+
+VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tw3lv, Jack Wilby - Together
+02. Lulleaux, Giang Pham - Contact
+03. Afsheen, Rebecca Ferguson - Uncrazy
+04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338854   (268192) от 17.11.2019
+
+VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alegria – Sin Pijiama (3:11)
+02. Junta & Alessandra Boni – Criminal (3:55)
+03. Cupido – Despacito (feat Sonya Queen) (3:55)
+04. Josua – Taki Taki (3:37)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 04:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190233   (268032) от 09.12.2017
 
 Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
@@ -658,99 +745,6 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193646   (261957) от 22.12.2017
-
-Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от Kid van Ettinger, Rick Van Der Linden, Robbie van Leeuwen с привлечением различных популярных вокалисток. Так в создании "Neon City" приняла участие Mariska Veres из  "Shocking Blue". В компиляцию вошли все синглы проекта.01. Jamie (3:51)
-02. Starship 109 (3:02)
-03. Neon City (2:48)
-04. You're My Hero (3:25)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED2A610FE101A2811DD3D129AF1C73E4D538DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838824   (261493) от 25.11.2025
-
-VA - Club Top 13 International (1988) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yello - The Race
-02. Natalie Cole - Pink Cadillac
-03. Blue System - My Bed Is Too Big
-04. Taylor Dayne - Prove Your Love(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Synth-pop, BalladПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB86700065D12E0453A75F431DF32A0B7787CA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502917   (259313) от 29.05.2012
-
-Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Skips a Beat (feat. Rizzle Kicks)
-02. Oh My Goodness
-03. Dance With Me Tonight
-04. I've Tried Everything
-05. This Song Is About You
-06. In Case You Didn't Know
-07. Tell the World
-08. I'm Ok
-09. Just Smile
-10. On My Cloud(   Читать дальше...   )Жанр: Dance-PopПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F9F392C11ED3BAFDA5EA43661926426086822F
 ```
 
 https://mybot314.ru/tekegram_catalog/

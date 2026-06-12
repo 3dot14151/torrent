@@ -1,3 +1,33 @@
+###  Публикация: 565376   (401276) от 25.10.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 3
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401276.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 3
+Название: Nature Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789517E6597CB70C3B1060B7557A78E0A6F7E7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565439   (401193) от 25.10.2012
 
 Best HD Wallpapers Pack (24.10.12) [Wallpapers]
@@ -714,36 +744,6 @@ Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15F4B47097A8A3D71392B931E36220EEA8A2F234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570253   (390978) от 04.11.2012
-
-[Wallpapers] Moto Desktop Wallpapers Pack 1
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390978.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Moto Desktop Wallpapers Pack 1
-Название: Moto Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60221F043CF8AE1204CBB18951134F50167C3109
 ```
 
 https://mybot314.ru/tekegram_catalog/

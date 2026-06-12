@@ -1,3 +1,35 @@
+###  Публикация: 1255495   (363622) от 18.10.2018
+
+VA - The World's Greatest 80s Anthems, 2CD (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363622.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Journey - Don't Stop Believin'
+02. Philip Bailey & Phil Collins - Easy Lover(   Читать дальше...   )Жанр: DanceПродолжительность: 01:23:05
+
+01. Frankie Goes To Hollywood - Two Tribes
+02. Duran Duran - The Reflex(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186CBA827B82EB572FE4A243BC239C752429B32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328488   (363595) от 30.09.2019
 
 VA - Fow Above: Electro House Edm Mix (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
@@ -740,35 +772,6 @@ VA - По волне моей памяти: Том 9 (2017) [MP3|320 Kbps] <По
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EA67F96723D067B026710393FDD1E134CBAD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176668   (362992) от 25.10.2017
-
-VA - По волне моей памяти: Том 10 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе - Проводы любви  3:26
-02.  Таня Буланова - Говорила моя мама  5:02
-03.  Алиса Мон - Подорожник-трава  3:46
-04.  Юрий Антонов - Анастасия  3:07(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5DD536510627E06F65DE617B0DE6F4EB8C7D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

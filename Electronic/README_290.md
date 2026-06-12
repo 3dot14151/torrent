@@ -1,3 +1,123 @@
+###  Публикация: 1008683   (516994) от 20.08.2018
+
+Ghosts Of Paraguay - Discography 11 Releases (2009-2018) [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Modern Classical, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who You Become (05:30)
+ 02. Needing You (05:15)Тип издания: CD, WEBЖанр: Chillstep/UK GarageПродолжительность: 00:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803B894423CE3D487A91677DC4D9E12A3A0497BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374156   (516461) от 11.08.2011
+
+Bonobo - Discography (1999 - 2010) [MP3|192-320] <Future Jazz, Downtempo, Trip Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_516461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bonobo	(new song)	3:37
+Bonobo	Days To Come	4:00
+Bonobo	Nothing Owed	5:37
+Bonobo	Ketto	6:31
+Bonobo	If You Stayed Over	5:31
+Bonobo	Animals	7:30
+Bonobo	Noctuary	4:39
+Bonobo	The Plug	6:57
+Bonobo	Recurring	3:40
+Bonobo	Nightlite	5:41(   Читать дальше...   )2008Жанр: Downtempo, Trip-hop, Future JazzПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242192   (516294) от 21.08.2018
+
+VA - Progressive Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FEEL & Diana Leah - One Last Time (Extended Mix)
+02. Christina Novelli & Adip Kiyoi - Carousel (Extended Mix)
+03. Elite Electronic - Digital Age (Extended Mix)
+04. Attila Syah & Xpectra & J.Puchler & Joanna Angelina - Forever (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5191AA98ED911A1B2DB03F8B6E4FA18491CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242180   (516252) от 21.08.2018
+
+VA - Redux Ibiza Selection 2017 (Mixed by Maratone) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominic Manns - Friday Lovers (Radio Edit)
+02. BvIBEs - Night Drive (Radio Edit)
+03. Claus Backslash - Daybreak (Radio Edit)
+04. Eva Kade & DJ T.H. & Stephane Badey - Checkmate (Alexander One & Vauden Alen Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99F7EBE009318ADFC6CB7FB541121F9D3CB33C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242122   (516234) от 21.08.2018
 
 VA - Dirty Sexy House Club 8 (Smashing Tunes) (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -626,126 +746,6 @@ Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49B39186A673C7DF027C823549C4572D4E01A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315274   (513628) от 19.07.2019
-
-Markus Schulz - Global DJ Broadcast (18 July 2019) with guest Nifra (2019) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Pryda - Warrior
-02. Claus Backslash - Reality is Over
-03. Jam & Spoon - Follow Me (Jerome Isma-Ae Remix)Жанр: Trance, ProgressiveПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65C55728995CA92CFC28023CCF30372F49090FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315284   (513624) от 19.07.2019
-
-Armin van Buuren - A State of Trance 923 (2019) [MP3|320 Kbps] <Progressive, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren played:
-01 LTN & Christina Novelli - I'd Go Back (The Path Of Life)Жанр: Progressive, TranceПродолжительность: 02:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8CD27ADEA4A44E15FFFA0E1A16A4444FE1EC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536417   (513519) от 19.08.2012
-
-Jaytech - Multiverse (2012) [MP3|~225 кб/с (V1)]<Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everglade (feat. Serenade)
-02. New Vibe (Album Version)
-03. Rabbit Raiders
-04. Labour Of Love (feat. Nathan Grainger)
-05. Epilson
-06. Innovation (feat. Nathan Grainger)
-07. Through The Maze (feat. Serenade)
-08. Diode
-09. Dr Device
-10. Stranger (feat. Steve Smith)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B913AB2EC489EC3AE99874C3D43071280C224751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242834   (513166) от 24.08.2018
-
-VA - Alter Ego Records - En Espana (Mixed By Duncan Newell & Luigi Palagano) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miikka Leinonen & Kim Kiona - Breath Of The Wild (Original Mix)
-02. Kayan Code - Furion (Original Mix)
-03. Ahmet Atasever & Monty Wells - Trading Halos (Sunset Remix)
-04. NavidN2M - Be Yourself (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC52A1E74DE80DAF8A7A75B43582EF520FA8F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1652596   (216691) от 12.08.2023
+
+VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216691.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Giovanni Zarrella - Senza te (Ohne dich)Жанр: Pop, DanceПродолжительность: 02:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F93956C52D57D49BECEF15AD8A93854A4465085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343150   (216402) от 07.12.2019
+
+VA - Superstars In Concert (1986-87-88 The Prince's Trust Concerts) (1996) 3CDSet [MP3|320 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Gabriel – Sledgehammer (4:58)
+02. Rick Astley – Never Gonna Give You Up (4:05)
+03. Eric Clapton – Wonderful Tonight (4:21)
+04. Swing Out Sister – Breakout (3:56)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C871BD8278D40575A5DABF87AC9E59A165B63A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966969   (216368) от 19.12.2015
+
+VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TK - Hello (A.R. Mix)
+02. Trancemission - Sugar (A.R. Mix)
+03. Groovy 69 - Zero (B Remix)
+04. Thomas - Hula Hoop (B Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E903BB153ED4D47CD918EDCEDC04574C9868755F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343616   (216144) от 07.12.2019
 
 Blue System - Maxi & Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
@@ -658,93 +743,6 @@ VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612330   (207289) от 15.02.2023
-
-VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Mauriat-Symphony No. 40 Movement (Mozart)
-02. N. De Angelius-Menuet (Boccherini)
-03. R. Clayderman-Moonlight Sonate (Beethoven)
-04. Ricky King-Aria (Bach)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613708   (206962) от 19.02.2023
-
-VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Lionel Richie–	Hello
-02.	Dire Straits–	Brother In Arms
-03.	Sting–	Fragile
-04.	Elton John–	Candle In The Wind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC998DA8BF1F7AF03C8248910CCFBF36ECC1288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613920   (206884) от 20.02.2023
-
-VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldies, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - (Where Do I Begin) Love Story
-02. The Platters - Only You (And You Alone)
-03. Roy Orbison - Only The Lonely
-04. Charles Aznavour - Les deux Guitares(   Читать дальше...   )Жанр: Pop, Oldies, FolkПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677D6BB832E70834415082323F07AB4EF3BDC9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

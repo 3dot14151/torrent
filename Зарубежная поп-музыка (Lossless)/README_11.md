@@ -1,3 +1,177 @@
+###  Публикация: 1354582   (986981) от 23.01.2020
+
+VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' David - Golden Age Of Rock 'N' Roll (0:56)
+02. Little Richard - Lucille (0:54)
+03. Rick Nelson - Poor Little Fool (1:12)
+04. Pat Boone - Speedy Gonzales (1:26)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354722   (986941) от 23.01.2020
+
+Vanessa Mai - Fur immer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venedig (Love Is in the Air) (2:38)
+02. Forever (Silverjam Single Mix) (2:43)
+03. Blue (Silverjam Single Mix) (3:47)
+04. Highlight (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971663   (985560) от 03.01.2016
+
+Oonagh - Aeria (2015) Sartoranta • Fan-Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ananau - Wo Die Hohen Zum Himmel Reichen [03:15]
+02. Silmaril - Schoner Als Die Sterne [03:26]
+03. Eccaia - Von Der Flut [03:30]
+04. Tinuviel - Bis Die Stille Zerbricht [04:11](   Читать дальше...   )Жанр: Pop, Ethno-Pop, FolkПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D782F1AA9BEE8242ED569A6EFF1EE11774ED82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971901   (984548) от 04.01.2016
+
+Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaa [03:55]
+02. Vergiss Mein Nicht (Duet Mit Santiano) [04:24]
+03. Orome [03:45]
+04. Falke Flieg [03:32](   Читать дальше...   )Жанр: Pop, Ethno-Pop, FolkПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355555   (983535) от 26.01.2020
+
+Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes (03:44)
+02. Only For A Moment (02:48)
+03. Hold On (03:48)
+04. Strangers On The Subway (03:11)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, FolkПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355502   (983522) от 26.01.2020
+
+Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See My Girls (Edit) [04:24]
+02. A Street Walker's Carol [04:19]
+03. Blood and Bone [05:35]
+04. See My Girls (Le Chien Version) [05:31]Жанр: Pop RockПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972042   (983353) от 05.01.2016
 
 Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, Electronic>
@@ -583,183 +757,6 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975661   (972099) от 15.01.2016
-
-VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiziano Ferro - Xdono (4:02)
-02. Tiromancino - Due destini (4:37)
-03. Lunapop - Resta con me (2001 version) (4:14)
-04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975364   (972028) от 15.01.2016
-
-Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy un truhan, soy un senor (3:05)
-02. Sono io (4:21)
-03. Si me dejas no vale (2:19)
-04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975622   (971938) от 15.01.2016
-
-Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Amour A Deux [04:55]
- 02. Dis Lui Toi Que Je T'Aime [03:58]
- 03. L'Amour En Soi [05:07]
- 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975495   (971936) от 15.01.2016
-
-Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:12:34
-1.When You Believe (4:36)
-2.Sweetheart (4:22)
-3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
-1.Fantasy (4:04)
-2.My all (3:52)
-3.Open arms (3:32)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975667   (971923) от 15.01.2016
-
-VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juanito - Amor de mis amores (3:11)
-02. Juanito - Bamboleo (2:43)
-03. Olivia Valere - Cantinero de Cuba (4:15)
-04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975970   (970818) от 16.01.2016
-
-Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Stupendo fino a qui (03:49)
- 02. - La vita in un anno (03:28)
- 03. - Avro cura di tutto (03:40)
- 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

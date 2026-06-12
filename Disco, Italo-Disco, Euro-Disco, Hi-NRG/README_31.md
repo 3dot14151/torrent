@@ -1,38 +1,3 @@
-###  Публикация: 562697   (404588) от 21.10.2012
-
-VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umberto Tozzi - Non va che volo [04:37]
-02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
-03. Loretta Goggi - Maledetta primavera [04:13]
-04. Gianni Bella - Non si puo morire dentro [04:04]
-05. Renato E I Profeti - Io perche', Io per chi [03:36]
-06. Raf - Inevitabile follia [02:15]
-07. Pino Daniele - Quando [03:38]
-08. Al Bano & Romina Power - Liberta' [04:23]
-09. Pierangelo Bertoli - Eppure Soffia [02:50]
-10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169270   (403812) от 26.09.2017
 
 Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -750,6 +715,35 @@ J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327354   (376730) от 24.09.2019
+
+Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulice (Street Level) (4:57)
+02. Zase V Poradku (Right Again) (5:19)
+03. Mam Cas (I Got Time) (3:59)
+04. Lasko, Vrat Se (Love Come Back) (4:18)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F5B60D81361D832D8A52A942F36BB7B962B7F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

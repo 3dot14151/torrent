@@ -1,3 +1,32 @@
+###  Публикация: 1171525   (395761) от 05.10.2017
+
+VA - Big Room Electro House October 2017 (2017) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardage - There's Enough for All of Us
+002. Toyboy & Robin - Tristis
+003. Basti Glanz - Yo y Tu
+004. Flume feat. Little Dragon - Take A Chance(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F78DA8F65CE335011FEEEFF7D151C488BF3852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171567   (395752) от 05.10.2017
 
 VA - Tropical Coctail: Chill Area Party (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -794,35 +823,6 @@ VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA334B277E86115BD9396614651703D3D4A5402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172450   (393108) от 08.10.2017
-
-VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Cosmic Gate & Eric Lumiere - Bigger Than We Are (Extended Mix)  6:57
-002.  Sheppard - Edge Of The Night (Benny Benassi Club Mix)  4:30
-003.  Deadmau5 & Colleen D'Agostino - Stay (No Mana Remix)  5:23
-004.  New Order - Blue Monday (Diskover Remix)  5:01(   Читать дальше...   )Жанр: House, Deep House, Progressive, Trap, Chillout, Tech, ClubПродолжительность: 10:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACA583574BE58F0EA4607D2BD84B44B819E82F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

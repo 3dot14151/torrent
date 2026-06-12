@@ -1,3 +1,32 @@
+###  Публикация: 1253533   (381503) от 10.10.2018
+
+VA - Emotional Progressive Trance (2018) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tuboe - Out Of Time
+002. Huem - Blue Moon (Original Mix)
+003. Serge Landar - Darklight (Original Mix)
+004. Relais - Light Evening (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B27956689FD1EC4262EC7868F1A2E0F5906C77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253583   (381502) от 10.10.2018
 
 VA - Night Party: Your Club Presents (2018) [MP3|320 Kbps] <House, Dance, Club>
@@ -737,35 +766,6 @@ VA - Лучшие Клубные Новинки Vol.1 (Октябрь) (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F0AF4DD63F258D97E312C1FCF90FD13C55F115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415185   (378714) от 11.10.2020
-
-VA - Record Super Chart 657 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastard! - F..k That (3:38)
-02. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
-03. RAYE - Natalie Don't (3:14)
-04. twocolors - Lovefool (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FA99AE48BAC1F21FD59D5577A7E55D1C822764
 ```
 
 https://mybot314.ru/tekegram_catalog/

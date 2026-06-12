@@ -1,3 +1,90 @@
+###  Публикация: 1241477   (520254) от 17.08.2018
+
+RSF - RSF (2018) [MP3|320 Kbps] <Italo-Disco, Leftfield>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520254.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Valentino (6:12)
+2. Michael (4:10)
+3. Chez Konrad (6:01)
+4. Beduine (6:32)(   Читать дальше...   )Жанр: Italo-Disco, LeftfieldПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F27B143BD7BD1281BA48BC1C269FCAE8751BF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241452   (520249) от 17.08.2018
+
+Frantique - Frantique (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Dancer (7:20)
+02. Getting Serious (7:58)
+03. Night People These Days (8:24)
+04. Strut Your Funky Stuff (6:14)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A0F669B9EF29B2F1C96D7D5DC5182AFF60ED89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241479   (520247) от 17.08.2018
+
+RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Valentino (6:12)
+2. Michael (4:10)
+3. Chez Konrad (6:01)
+4. Beduine (6:32)(   Читать дальше...   )Жанр: Italo-Disco, LeftfieldПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241420   (520122) от 17.08.2018
 
 Ariana Grande - Sweetener (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
@@ -387,6 +474,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373832   (517511) от 10.08.2011
+
+Лариса Черникова - 8 альбомов (1995-2008) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995-2008Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929484   (517350) от 21.08.2015
 
 Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
@@ -617,144 +730,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315021   (516073) от 17.07.2019
+###  Публикация: 1242002   (516116) от 21.08.2018
 
-Oliver Cheatham - Get Down Saturday Night (1983) 1990 [FLAC|Lossless|tracks + .cue] <House, Soul, Funk, Disco>
+Boris Zhivago - Love In Russia (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Hi-NRG>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_516116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Get down Saturday Night (Remixed by Matiz - AC16) (06:46)
-02 Make your mind up (04:20)
-03 Something about you (04:37)
-04 Bless the ladies (04:15)(   Читать дальше...   )Жанр: House, Soul, Funk, DiscoПродолжительность: 00:46:14
+1	For The Love In Your Eyes	6:11
+2	Lana	                                5:14
+3	From Russia With Love	4:19
+4	Russian Girl	                4:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:19:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8D70E3FDFE602473924B6605B8EA76F73A59F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242343   (516040) от 21.08.2018
-
-Whitney Houston - I Wish You Love: More From The Bodyguard (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (Alternate Mix) (5:04)
- 02. I Have Nothing (Film Version) (4:56)
- 03. I'm Every Woman (Clivillés & Cole House Mix I Edit) (5:43)
- 04. Run to You (Film Version) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5E740F26DF926A37744787F58CFFDBEF8B3FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561342   (515523) от 04.07.2022
-
-VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - What's Love Got to Do with It (3:50)
-02. Limahl - Never Ending Story (3:30)
-03. a-ha - Take On Me (3:48)
-04. Narada Michael Walden - Gimme Gimme Gimme (feat. Patti Austin) (4:41)(   Читать дальше...   )Жанр: PopПродолжительность: 03:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930096   (515298) от 23.08.2015
-
-One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515298.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fallen (7:18)
-2. White Love (Guitar Paradise mix) (10:15)
-3. Breakdown (Cellophane Boat mix) (6:39)
-4. There Goes the Cure (8:03)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEBC88111F6E9430A03549E04E43271CCA16E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242475   (515125) от 22.08.2018
-
-Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Steps (1:09)
- 02. Turn, Turn, Turn (3:29)
- 03. The Long And Winding Road (3:35)
- 04. Africa (4:16)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
+magnet:?xt=urn:btih:046C8B3BBEC8EE366F0A456EA0759C6EE869314D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1748999   (43789) от 12.09.2024
+
+VA - E-Dance Weekend Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43789.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta & Morten - The Future Is Now
+002. Slander, Trivecta & Chris Howard - A Better World
+003. Steve Aoki & Banda Al9 - She Calls Me Love
+004. Nostalgix Feat. Dev - Real Girls(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 10:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47CEC2705D9527BE3AB7BB780CACCFD875C9B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747002   (43788) от 12.09.2024
+
+Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Babe (Willie Dixon) [03:19]
+02. Я забываю [03:53]
+03. Тонечка (Городской Романс) [05:37]
+04. Bring It On Home [05:44](   Читать дальше...   )Жанр: BluesПродолжительность: 05:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748930   (43761) от 12.09.2024
+
+VA - D.Trance 107 (incl. D-Techno 62) (2024) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BiXX - Symphonic Gods (Original Mix) [4:05]
+02. DaWTone - Perky (Anton By Remix) [5:23]
+03. Dan Cooper & EllCavell - Mystic (Extended Mix) [6:52]
+04. Artena - Gods Among Us (Original Mix) [7:20](   Читать дальше...   )Жанр: TranceПродолжительность: 04:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD8E69C88DBCC7C5E37171F739C08B7A0493E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749281   (43721) от 13.09.2024
 
 VA - Euphoric Vocal (2024) [MP3|320 Kbps] <Vocal Trance, Electro>
@@ -659,93 +746,6 @@ VA - Tribal Fusion Harmonie (2024) 2CD [MP3|320 Kbps] <Enigmatic, New Age, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E1A1500FEC0E1C0E741DE7E1B7F312960333DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750891   (42716) от 22.09.2024
-
-VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NMG & DNDM - See You
-02. Umar Keyn - Deceived heart again
-03. Hamidshax - Move
-04. Azimov - The Hills(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E027CF1C525B79C655291F93707357EBC2C29551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751391   (42566) от 24.09.2024
-
-VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42566.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tek.Ka - Desastre - (06:24)
- 002. Thought Trails - With U - (03:48)
- 003. Sandwell District - Reykjavik - (07:16)
- 004. Bas Grossfeldt - I Am Transient Pink To Yellow - (03:35)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751371   (42556) от 24.09.2024
-
-VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davbo - Autumn Rain
-02. Felicity Norway - Dancing Queen  Sax Cover
-03. Felicity Norway - Lose Control Sax Cover
-04. Besso - Last Dance(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355F87C5CACFDD6B17575BC03D6824E5E354C974
 ```
 
 https://mybot314.ru/tekegram_catalog/

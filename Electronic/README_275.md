@@ -1,3 +1,61 @@
+###  Публикация: 1014068   (551350) от 24.07.2018
+
+Synthetic Epiphany - Discography 16 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Glitch, Ambient, D'n'B, Chillwave, Deep House, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Assimilate (06:11)
+ 02. Fractures (05:00)
+ 03. Bipolar (04:07)
+ 04. Aimsir (04:54)(   Читать дальше...   )Тип издания: WEBЖанр: Dubstep, UK Garage, Glitch, Ambient, D'n'B, Chillwave, Deep House, Downtempo •Продолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08EA6A2DC278EB3D69376E4673E2ACAE3FF9207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008358   (551304) от 24.07.2018
+
+Bliss - Discography 8 Releases (2001-2013) Denmark [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Ambient, Chillout, Lounge, Modern Classical>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Mamounia Theme (Cello Solo) (01:50)
+ 02. Desert Sun (06:02)
+ 03. Marrakech (00:27)
+ 04. The Atlas Mountains (Reprise) (03:08)(   Читать дальше...   )Тип издания: CD, Web •Жанр: Downtempo, Ambient, Chillout, Lounge, Modern Classical •Продолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ACE7BC696830CEDDD4E37020BFEEFB714F12CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309476   (551216) от 19.06.2019
 
 VA - House Clubhits Summer Edition 2019 (2019) 2CD [MP3|320 Kbps] <House, Club House, Deep House, Progressive House>
@@ -687,64 +745,6 @@ VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047170   (550369) от 29.08.2016
-
-VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Blue Chest - Floating (Beach Mix) (6:04)
-02. Roberto Sol, Florito - Tomorrow (4:50)
-03. Naoki Kenji - Tsunami (6:24)
-04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047189   (550367) от 29.08.2016
-
-VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GYSNOIZE - Same Love (04:01)
-02. Gabrielle Chiararo - Tango а Rouen (04:33)
-03. Edo - Illusion (04:01)
-04. Gabrielle Chiararo - Rien а faire pour moi (05:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9E32F6611DEE7923E761085019600A0B809A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

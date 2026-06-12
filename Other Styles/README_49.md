@@ -1,3 +1,119 @@
+###  Публикация: 1277318   (785361) от 20.01.2019
+
+Сергей Садов - Ближний восток (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ближний восток (6:22)
+2.На крыльях ангела (7:18)
+3.Алтай (11:49)
+4.Танец дарвиша (3:36)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204037   (785360) от 04.02.2018
+
+Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery
+02. Voices From The Past
+03. Air of Tenderness
+04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204024   (785350) от 04.02.2018
+
+The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura (3:32)
+ 02. I'm Always Chasing Rainbows (3:44)
+ 03. Hey There (3:46)
+ 04. Moon Love (4:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD62E0AFCCFBD47B37DA17F17D74951370F868B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276824   (785332) от 20.01.2019
+
+VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Botti - Lisa (5:06)
+02. Roxy Music - Avalon (4:17)
+03. Nirvana - Come As You Are (Live) (4:00)
+04. Dire Straits - Brothers In Arms (6:52)(   Читать дальше...   )Жанр: Demonstration & testПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202735   (785302) от 04.02.2018
 
 Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
@@ -621,122 +737,6 @@ VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Ag
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207122   (780856) от 17.02.2018
-
-Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  This Languid Motion (6:05)
-2.  Consider the Moon & Stars (4:25)
-3.  Avalon Nights (3:04)
-4.  A Dream in Tangerine (5:04)(   Читать дальше...   )Жанр: Electronic, New ageПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E473264C99B5DBACB564DF250043A0891E555BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207596   (780391) от 19.02.2018
-
-Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chama De Saudade 4:36
-02. Nos Passos Da Emocao 2:55
-03. Saudade Louca 4:41
-04. Cara E Coragem 4:01(   Читать дальше...   )Жанр: Latin Music, SambaПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FACDD9148A271FB26FE86928AE6AF22A3CC49D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207859   (780245) от 20.02.2018
-
-VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Haiku Project feat. Sara Grabow - Earth (4:41)
-02. Leo Rojas feat. Chantelle Barry - Wolf's Heart (3:25)
-03. Terry Oldfield & Carlos Garo - Orbital (3:57)
-04. The Sound Of Love - My Sweet Dream (4:48)(   Читать дальше...   )Жанр: New ageПродолжительность: 02:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F138DAD248D95D90D3D7C49426A838FD9AACA64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207669   (780242) от 20.02.2018
-
-Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time I Hear That Song 4:01
-02. The Joke 4:39
-03. Hold Out Your Hand 4:23
-04. The Mother 3:17(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

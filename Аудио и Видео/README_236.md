@@ -1,119 +1,3 @@
-###  Публикация: 1505129   (236724) от 26.10.2021
-
-VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florzinho - Onenness Meditation (Original Mix) (8:07)
-02. Marga Sol - Night Sky (Original Mix) (4:17)
-03. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-04. Michael e - Matterhorn (Original Mix) (4:05)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72615E7A9DABF6BDBE905A84D9A416CFD07F9083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505326   (236669) от 26.10.2021
-
-Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Que Reste T Il De Nos Amours (2:21)
-02. Melancolie (2:28)
-03. Un Uomo E Una Donna (3:03)
-04. Je T'amerai Jusqua'a' La Fin Du Monde (2:57)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E76E7B8BBE6F76DDAAD27F32170F241A2D64DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505318   (236634) от 26.10.2021
-
-Fausto Danieli - Sax Pour Danser (1985) [AAC|~313 Kbps] <Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way (3:10)
-02. Feelings (3:09)
-03. Love Story (2:37)
-04. La Mer (4:15)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F737B11967EF5235FB1DB7D4D1FAC1C07C109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505604   (236544) от 28.10.2021
-
-VA - Mystic Chill, vol. 2 (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubnotic, Emog - Dreamland (8:30)
-02. Tea Tree, False Identity - It's Not Voodoo (6:40)
-03. Naturelement - The Advent Of Beginning (6:36)
-04. Phillax - Hyperspace (Iacchus Remix) (11:34)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF66F5A0A03313DB9A4259CB5743A71347CE714F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505626   (236532) от 28.10.2021
 
 Fun Factory - ABC of Music (2006) [AAC|~332 Kbps] <Dance, Pop>
@@ -745,6 +629,122 @@ VA - Take It to Church, Vol. 4 (2021) [AAC|~347 Kbps] <Disco House, Nu-Disco, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86B89E866A94809E36A1107EA4F84A3802DC295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530612   (235426) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 7 (2014) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left, Sethe - Under the Water (5:12)
+02. Anam, Umal - Like a Virgin (3:55)
+03. Fuse 7 - Demons (4:43)
+04. Lighten Doors - Say Something (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2AA6849DA50157E749911D6EA54BB3581999E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530646   (235406) от 12.02.2022
+
+VA - Endless Sunset: Urban Chillout Music (2022) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Night for Dreaming (4:32)
+02. Gary B - Move (Original Mix) (3:34)
+03. Beamy - Colours (5:05)
+04. Marga Sol - Dali Sonuvam (Ambient Chill Mix) (3:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566BD33C9A0FA6EC5B22EAD30508A2984D9C3C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530602   (235364) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 1 (2010) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raff, Gushi - Pride (In the name of love) (4:30)
+02. Purple Avenue - Love and Sex and Magic (5:41)
+03. Pat The Cat, Rachel Moreau - Hotel California (4:09)
+04. El Rubello - And I Love Her (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E167AE0FFC5F7EF91E9A6BDCA2B81895963F057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536411   (235162) от 12.03.2022
+
+VA - White Sands (Chill-Out And Electronic Collection), Vol. 3 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Diversities (4:11)
+02. Weber & Weber - I Wish (5:08)
+03. L.O.B. Lord Of Beat - Deep Down (4:20)
+04. Lazy Hammock - Are You Callin' (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA259D9128F7CFBC7B476F5DF3A2EE233236FF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

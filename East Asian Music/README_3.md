@@ -1,3 +1,32 @@
+###  Публикация: 1116862   (820545) от 21.03.2017
+
+Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthrise
+02. A Torch for Avengers
+03. Isle of the Dead
+04. The Revelation(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB77A55302731098A2AFC5F4C148032C6277252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008070   (817307) от 17.04.2016
 
 Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethnic Instrumental>
@@ -766,40 +795,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAD0F31EE9FB6B6C4BA67257F94456FBD7B7A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781412   (755848) от 28.04.2014
-
-Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Rock, J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755848.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:33] 1. Syrufit - white clear
-[05:12] 2. 市松椿 - emo.
-[07:02] 3. 市松椿 - 我亲爱傀儡
-[05:43] 4. 綾倉盟 - Black
-[06:06] 5. Nhato - Delay Order
-[06:02] 6. 坂上なち - Back Door
-[04:23] 7. 綾倉盟 - on the way home
-[03:58] 8. Syrufit - GaT
-[05:46] 9. 綾倉盟 - comouflageЖанр: Touhou, Vocal, Doujin Ongaku, J-Rock, J-PopПродолжительность: 00:00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC3BC964E0B92A3781BD0156EF48C5332C12C9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

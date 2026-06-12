@@ -1,3 +1,32 @@
+###  Публикация: 712438   (403175) от 19.10.2013
+
+Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big in Japan 1984
+02. Sounds Like a Melody 1984
+03. For a Million 1989
+04. Jerusalem 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712580   (403166) от 19.10.2013
 
 Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
@@ -797,35 +826,6 @@ Alexander Bard's projects - 25 Best Songs (2012) [MP3|234 - 279 кб/с]<Eurodan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2122F1D99CA8F0D1EE64A7936D58B86657B2979F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169842   (401589) от 29.09.2017
-
-VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - Sunny Days (feat. Josh Cumbee)
-002. Union Jack - Blink (Club Version)
-003. Paul Van Dyk & Pierre Pienaar - Stronger Together
-004. Soren Andrews - Pacific Coast Highway (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5608173C881AE9C2A1C449213DEBE9276CB2C9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

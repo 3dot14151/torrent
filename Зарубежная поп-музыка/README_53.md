@@ -1,3 +1,61 @@
+###  Публикация: 1251642   (415492) от 02.10.2018
+
+VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanita Tikaram - Cathedral Song
+02. Beth Nielsen Chapman - All I Have
+03. Jason Castro - Hallelujah
+04. Alannah Myles - Do You Really Want to Know Me(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF42B36248D88448365952FCBD90A2593E01F241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167890   (414870) от 21.09.2017
+
+VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414870.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  P!nk - What About Us  4:32
+02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
+03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325263   (414481) от 14.09.2019
 
 Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
@@ -696,64 +754,6 @@ Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CCB96982A7D1E19B76CC4F50C007C9901B1D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169903   (401227) от 29.09.2017
-
-Michael Jackson - Scream (2017) Compilation [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Place Hotel (a.k.a. Heartbreak Hotel)
-2. Thriller
-3. Blood on the Dance Floor
-4. Somebody's Watching Me (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2011F9FE59B9898C75BA67BE20174538CFED4543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170801   (398685) от 02.10.2017
-
-Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Lips Are Burnin' (2:38)
-02. All My Love (2:08)
-03. Baby Blue (What You Gonna Do) (2:54)
-04. She Loves The Whip (3:03)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A718B426177D393C1909FDFDA02F6B547FD86D3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

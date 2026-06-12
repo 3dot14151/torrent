@@ -1,3 +1,32 @@
+###  Публикация: 1221219   (696801) от 23.04.2018
+
+Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier (Intro) (01:12)
+ 02. Spark (04:24)
+ 03. Sand Whirling (04:31)
+ 04. Anew (03:47)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, AmbientПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B7718DF8D5DB15DC673305EC2041C108328D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221437   (695107) от 24.04.2018
 
 Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
@@ -715,35 +744,6 @@ Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C443B67E41581A7A10956AF2B128367C9FC72EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293807   (633748) от 05.04.2019
-
-KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ever (06:29)
-02. Yajna (06:27)
-03. Purgatory (04:37)
-04. Binary (04:50)(   Читать дальше...   )Жанр: Electronic, AbstractПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AC9E3DDE5F3BA37474B81F2B18F8237F27FCC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1565918   (486286) от 27.07.2022
-
-Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each tongue twister is accompanied by voice acting and the ability to record and listen to the pronunciation of your voice.
-Work on your pronunciation. Try to articulate each word clearly, slowly, and with consistency. Do this regularly and try to pronounce the sentence by heart.
-It is important to say the tongue twister out loud. Try to memorize the text by heart, (   Читать дальше...   )Тип издания: FullРазработчик: Igor KusovПоддерживаемая ОС: Android 5.0+ (arm-universal)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559964   (486021) от 27.07.2022
 
 ViperFX For Android (V4A) - Большой сборник
@@ -152,6 +124,33 @@ Head Model Studio 1.1.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566632   (480266) от 30.07.2022
+
+Экорше: Портретная Анатомия 1.7.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экорше — это портативная художественная мини-студия с подробной анатомической моделью головы человека.
+Для создания живых и правдоподобных портретов знание анатомии незаменимо. Экорше — приложение для изучения анатомии специально для художников, скульпторов и других представителей искусства.Тип издания: ProРазработчик: Kirill ChikalinПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5264C03FBC968563343823276E07343D87F50640
 ```
 
 https://mybot314.ru/tekegram_catalog/

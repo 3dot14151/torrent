@@ -1,3 +1,33 @@
+###  Публикация: 561577   (406163) от 17.10.2012
+
+[Wallpapers] HDR Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406163.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HDR Wallpapers
+Название: HDR Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0C393F4FB5DF423340E9A861DE9229937D14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561437   (406158) от 17.10.2012
 
 Wallpaper & Pictures: 3D Art Wallpapers: Collection#1 [Графика]
@@ -683,36 +713,6 @@ Desktop Wallpapers (24.10.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B24DDB24775DB2720289D3BC8B9E6BADDFF3B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565376   (401276) от 25.10.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 3
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401276.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 3
-Название: Nature Desktop Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789517E6597CB70C3B1060B7557A78E0A6F7E7E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1552834   (585852) от 22.05.2022
+###  Публикация: 1301296   (586041) от 10.05.2019
 
-Sageness - Tr3s (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Instrumental, Stoner Rock>
+Счастливого нового дня смерти / Happy Death Day 2U (2019) BDRemux [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Effects Of Colours (00:09:48)
-02 - Greenhouse (00:08:06)
-03 - Spirit Machine (00:06:18)
-04 - Event Horizon (00:12:22)Жанр: Heavy Psychedelic, Instrumental, Stoner RockПродолжительность: 00:36:36
+На прошлый день рождения судьба преподнесла Три сомнительный подарок — праздник повторялся снова и снова, а в финале её неизменно убивал маньяк в маске. То ли дело в этом году: какое счастье проснуться с утра пораньше и оказаться мало того, что в том же самом дне, так ещё и в параллельной реальности — и всё это из-за маленького научного проекта Райана!Производство: США, Blumhouse Productions, Digital Riot MediaЖанр: Ужасы, фантастика, детектив, комедияРежиссер: Кристофер ЛэндонАктеры: Джессика Рот, Израэль Бруссар, Фи Ву, Сурадж Шарма, Сара Яркин, Рэйчел Мэттьюз, Руби Модин, Стив Зиссис, Чарльз Эйткин, Лаура КлифтонПеревод: Дублированный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:39:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D5A009C1335B63CDFB5E2857DE2DD37597B3897
+magnet:?xt=urn:btih:CB1F7B790AFD3842945D5C0A3D7E202D098F325E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552591   (585851) от 22.05.2022
+###  Публикация: 918852   (586040) от 16.07.2015
 
-Англия - Мрачный рай (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Darkwave, Indie>
+Gianni Savelli Media Res - Magellano (2015) [FLAC|tracks|WEB-DL]<Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Колыбельная (00:03:51)
-02 - Связали по рукам (00:04:42)
-03 - Станем рассветом (00:03:36)
-04 - Про расстояния (00:03:42)(   Читать дальше...   )Жанр: Post-Punk, Darkwave, IndieПродолжительность: 00:40:24
+01. Flying Over Gocius De Santu Micheli
+02. Thelxis
+03. Kirschrot
+04. Aria From Bachianas Brasileiras No.5(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7E9277BDF2B4D913B156CC491C4BA8F72029D83
+magnet:?xt=urn:btih:DD5AE5A27E8312F21323E718DB392E6780629F77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552746   (585850) от 22.05.2022
+###  Публикация: 918783   (586039) от 16.07.2015
 
-Six Silver Suns - As Archons Fall (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues, Harmonica Blues, Piedmont Blues, Folk>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lord Of The Southern Tower (4:45)
-02. To The Unknown (4:24)
-03. Children Of The Stars (3:59)
-04. Fading By Light (4:30)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:36
+01.  Po' Boy, (2:45)
+02.  Everybody's Blues (6:47)
+03.  Trouble In Mind (3:15)
+04.  I'm A Stranger Here (4:03)(   Читать дальше...   )Жанр: Country Blues, Harmonica Blues, Piedmont Blues, FolkПродолжительность: 00:56:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92A36FD860759FC235B6A7CF616B6350B61CFD02
+magnet:?xt=urn:btih:5218C55AB1BC3C945C4C56B5B910799CFEB762B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552639   (585849) от 22.05.2022
+###  Публикация: 918692   (586038) от 16.07.2015
 
-Train - AM Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Roots Rock>
+В. К. Зайцев | Богомильское движение и общественная жизнь Северной Италии эпохи дученто (1967) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - AM Gold (00:02:49)
-02 - Running Back (Trying to Talk to You) (00:04:01)
-03 - Cleopatra (00:03:20)
-04 - Bettin' On Me (00:03:28)(   Читать дальше...   )Жанр: Roots RockПродолжительность: 00:38:56
+В книге (одном из немногих изданий на русском языке) рассказывается о средневековом болгарском еретическом учении - богомильстве, оказавшем большое влияние на западноевропейскую религиозную мысль (секты катаров, альбигойцев и др.), а также, вероятно, - и на идеологию русских средневековых религиозных сект.Жанр: История, религиоведение, искусство, культурологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7032F66D9D24C12D65106CE6A5A666FD52C9DE6
+magnet:?xt=urn:btih:6CCD2AC5688E24690F5BC70724FF52CE06ACDC1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552666   (585848) от 22.05.2022
+###  Публикация: 918691   (586037) от 16.07.2015
 
-Cyanide 4 - Amalgama (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Л. И. Емелях | Антиклерикальное движение крестьян в период первой русской революции (1965) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Secret Doctrine (00:04:02)
-02 - Warlike Fellow (00:03:23)
-03 - Perfect Sensation (00:03:44)
-04 - So in Vain (00:04:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:55
+В монографии освещается сущность антиклерикального движения крестьян в начале ХХ века в России. На основании новых архивных документов исследуется влияние первой русской революции на мировоззрение крестьянства. Автор вскрывает причины борьбы крестьян против церковно-монастырского землевладения, показывает их массовые выступления в 1905-1907 гг. против реакционного (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE542468AD306668D08DC1533AF97894C39F1FC9
+magnet:?xt=urn:btih:6C9DC6BA0F13043063F8DB64E80CE070304F040E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,24 +134,133 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552158   (585847) от 22.05.2022
+###  Публикация: 918743   (586036) от 16.07.2015
 
-VA - The Original Masters, Vol. 5 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Shirley Scott - Girl Talk (1967) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_585847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Billy Paul - East (6:20)
-02. Mandingo - Kubile Kumba (3:51)
-03. Can - ...And More (2:35)
-04. John Gibbs And The Us Steel Band Orchestra - J'ouvert (5:20)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:56:12
+01. Girl Talk [03:24]
+02. Come Back To Me [03:12]
+03. We'll Be Together Again [03:45]
+04. Love Nest [03:19](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E617ACD84D04F0F431EFB595438522D5B405F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918710   (586035) от 16.07.2015
+
+А. Морозова (ред.) | Вот они какие, "святые братья"! (1959) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре приведены публиковавшиеся в периодической прессе БССР рассказы бывших сектантов о том, почему они вышли из сект и порвали с религией.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269E37925062F3E640DE2975C08F6CBA1B5A3008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918653   (586034) от 16.07.2015
+
+The Plott Hounds - Living Free (2014) [MP3|320 кб/с]<Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southbound (04:22)
+02. Living Free Or Dying To Try (03:44)
+03. This Ain't No Country Song (03:51)
+04. Growing Young (02:59)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435562FFE53223D2424199683DD082A8ED32470E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918747   (586033) от 16.07.2015
+
+Masabumi Kikuchi - East Wind (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Wind [20:05]
+02. Green Dance [23:59]Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4EA6AAB8C57A809F41A492F48FE13DD6AC37EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358230   (586031) от 02.07.2011
+
+Первый взгляд на новый интерфейс Gmail
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник поискового гиганта Джейсон Корнвилл (Jason Cornwell) сообщил вчера вечером в корпоративном блоге компании о начале работы над кардинальным обновлением пользовательского интерфейса почтового сервиса Gmail."Мы получаем множество чудесных отзывов от наших пользователей, которые рассказывают, как Gmail помогает решать ежедневные задачи более эффективно, оставаться на связи с семьёй и друзьями, и вовремя выполнять всю работу", – говорит мистер Корнвилл. "На протяжении многих лет мы дополняли Gmail бесчисленным количеством новых возможностей, что сделало его невероятно могущественным коммуникационным центром. Но вместе с тем пользовательский интерфейс также становился более сложным. Поэтому мы начинаем серию обновлений пользовательского интерфейса Gmail, чтобы сделать его настолько красивым, насколько он функциональный".
+(   Читать дальше...)
 
 ## Скачать торент
 ```bash
@@ -172,28 +272,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552670   (585846) от 22.05.2022
+###  Публикация: 357967   (586026) от 02.07.2011
 
-Evals Mess Project - Born of the Flower (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+Natalie Walker - Spark (2011) [MP3|320 kbps]<Downtempo, Trip-Hop>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - For Those Who Sails and Weeping (00:06:58)
-02 - Witch's Fury (00:08:25)
-03 - Second Dream of Exoria (00:03:57)
-04 - Tears of Death (00:05:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:06
+01 Uptight
+02 Mars
+03 Cool Kids
+04 Sunday Afternoon
+05 Against the Wall
+06 I Found You
+07 Experimental Love
+08 GalapogosЖанр: Downtempo, Trip-HopПродолжительность: 00:30:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9CC480AC45177FF0F0A9C30FAAD1D0F52F55347
+magnet:?xt=urn:btih:CE7EA72F6034F5F9195F7E05A80DD932AA9A91B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +305,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552162   (585845) от 22.05.2022
+###  Публикация: 357542   (586023) от 02.07.2011
 
-VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Журнал | Esquire [Россия] №68 (июль-август 2011) [PDF]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eli's Second Coming - Love Chant (5:57)
-02. Tony Silvester - Pazuzu (6:38)
-03. Dennis Coffey - Boogie Magic (5:46)
-04. Porn Music - Boogie Nights (2:38)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:21
+ЖурналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2C2E14FFAF7D6F9C0791483727618C52E6B4260
+magnet:?xt=urn:btih:FAAC7543B6C2AE7F29F33398AF850DCD5544B38B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552164   (585844) от 22.05.2022
+###  Публикация: 358162   (586020) от 02.07.2011
 
-VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Cloning Clyde (P) [En] 2011
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tee Cee's - Ecstasy (8:21)
-02. Calender - Hypertension (5:50)
-03. Pam Todd And The Love Exchange - Let's Get Together (5:23)
-04. Cory Daye - Green Light (9:00)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:23
+Главный герой Cloning Clyde - Клайд - единственный человек, которому удалось сбежать из лабораторий компании Dupliclone, занимающейся проведением ужасных экспериментов, связанных с клонированием. Особенностью игры является возможность главного героя перевоплощаться в различные формы (Цыпленок-Клайд, Лягушка-Клайд, Овца-Клайд и др.), в каждой из которых он приобретает уникальные способности.Тип издания: ПираткаЖанр: Arcade (Platform)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F90A45FB399B01781CC7883ECAECEE8351F235C0
+magnet:?xt=urn:btih:1B638DE976C2401B449355E1167E628FE9CFA10A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +357,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552657   (585843) от 22.05.2022
+###  Публикация: 357850   (586017) от 02.07.2011
 
-Red Moon Shaman - Chapter One (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, Stoner Rock>
+dom!No - trюk (2011) [MP3|320 kbps]<Rap, Hip-Hop>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Pale Rider (00:05:01)
-02 - Rolling Sunshine (00:05:00)
-03 - Spirits (00:04:53)
-04 - Thorns (00:04:42)(   Читать дальше...   )Жанр: Heavy Psychedelic Rock, Stoner RockПродолжительность: 00:37:08
+1 - Спродюсирую любовь
+2 - Алиса в стране не чудес
+3 - Захлебнуться весной
+4 - Моя восьмая жизнь
+5 - Я легенда
+6 - Под большим зонтом
+7 - trюk
+8 - Я должен бытьЖанр: Rap, Hip-HopПродолжительность: 33:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BCD7E55F6EFDCF4387D5739BEBA04B806C7E41A
+magnet:?xt=urn:btih:5EDF9D767DE579846C3EE09DF2D445584803393D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552445   (585842) от 22.05.2022
+###  Публикация: 358052   (586015) от 02.07.2011
 
-Lonerider - Sundown (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Blues Rock>
+С. М. Кочетов | Аквариум в вопросах и ответах [2007] [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Разное (категория книг)
+>>На досуге
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fantasyland
-02. Cross the Border
-03. Undefeatable
-04. Harder Love(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 00:47:57
+В книге, написанной живым и доступным языком, содержатся ответы на вопросы, которые больше всего волнуют начинающих аквариумистов-любителей. Какой аквариум лучше приобрести, какие водные растения и каких самых популярных рыб следует разводить в нем? Для широкого круга читателей.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B8CD9B27D012515C0D0D453392FC29909C35394
+magnet:?xt=urn:btih:4DE69AB923028F2516A58895DB3388DEED4B780F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +416,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552644   (585841) от 22.05.2022
+###  Публикация: 918678   (586012) от 16.07.2015
 
-Iris Divine - Mercurial (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Metal>
+Вести в 20-00. Большие Вести. Россия HD (15.07.2015) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bitter Bride (00:05:03)
-02 - Silver Tongued Lie (00:04:19)
-03 - Thirteen (00:07:09)
-04 - Sapphire (00:03:49)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:39:44
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Правый сектор ловят по всей Украине, а его бойцы идут уже в сторону Польши. Порошенко хочет приравнять к террористам всех вооруженных людей. Самолеты МЧС России экстренно вывезли из Йемена россиян и иностранцев. Как сходить на тренинг и не сойти с ума? Самоубийства, психозы и унижения, все это за ваши деньги.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33E61D7725F449C82C1667E714B730B0F4618042
+magnet:?xt=urn:btih:9AF63A2C57AD2002A9876486369C9209CBE3A128
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +442,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552157   (585840) от 22.05.2022
+###  Публикация: 918722   (586011) от 16.07.2015
 
-VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Созданы графеновые магнитные датчики, чувствительность которых в сотни раз превышает чувствительность кремниевых датчиков
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_586011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eruption - I Can't Stand the Rain (6:28)
-02. Chilly - For Your Love (11:48)
-03. Skatt Brothers - Walk the Night (5:23)
-04. Bay City Rollers - Don't Stop the Music (5:59)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:15:10
+В свое время мы рассказывали об инициативе Европейского Союза под названием "The Graphene Flagship", в рамках которой Европейская Комиссия осуществляет инвестиции в размере 1 миллиарда долларов в исследования, связанные с графеном и областями его применения. И недавно в Манчестере, Великобритания, который стал чем-то вроде европейской "графеновой Кремниевой (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552165   (585839) от 22.05.2022
+###  Публикация: 918838   (586010) от 16.07.2015
 
-VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. D.C. Larue - I Don't Want to Lose You (14:04)
-02. Blair - Nightlife (7:19)
-03. Climax Blues Band - Couldn't Get It Righ (3:03)
-04. Billy Paul - Let the Dollar Circulate (4:56)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:18:40
+01.  Dust My Broom (2:55)
+02.  It Hurts Me Too (3:05)
+03.  Coming Home (2:26)
+04.  Knocking At Your Door (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
+magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552886   (585838) от 22.05.2022
+###  Публикация: 918771   (586009) от 16.07.2015
 
-Полидор. Чудесные пилюли / Pillole portentose (1910) WEBRip [H.264]
+Sidney Bechet - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая киношутка. Два приятеля собрались на охоту, а один раздобыл где-то таблетки. Непростые таблеточки. Закинешься такой таблеточкой и начинаешь суетиться как подорванный...Производство: Италия, Società Italiana CinesЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Джузеппе Гамбарделла, Полидор (Фердинанд Гийом)Перевод: НемойСубтитры: ОтсутствуютПродолжительность: 00:05:08
+01.  Baby, Won't You Please Home (2:35)
+02.  I'm Coming Virginia (2:38)
+03.  Four Or Five Times (4:01)
+04.  Wild Man Blues (3:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D6AB281ECA6FCB29D6EDFAE4D14C3F83A186FDE
+magnet:?xt=urn:btih:4598EE42C0DCE60A36A6A66D52B99CAC8016E08B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,26 +526,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552894   (585837) от 22.05.2022
+###  Публикация: 918781   (586008) от 16.07.2015
 
-Чешские народные сказки | Златовласка (1953) [PDF]
+Cio D'Or - All In All (2015) [FLAC|Lossless|WEB-DL]<Techno, Ambient, Experimental, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After And Before (01:20)
+02. Tomorrow Was Yesterday (07:07)
+03. Now And Then (02:43)
+04. Now Is Ever (05:56)(   Читать дальше...   )Жанр: Techno, Ambient, Experimental, MinimalПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBF6BB2B676A2C7D52889D6649FF03A938A181C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918465   (586007) от 16.07.2015
+
+Юрий Вебер | Разгаданный секрет (1957) [DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге представлены 4 ярких представителя чешских народных сказок: "Златовласка", "Янко-крепыш", "Учёный пёс" и Гонза и хозяин".
-Для детей младшего школьного возраста. Иллюстрации В.Минаева.Жанр: СказкаПеревод: Т. Аксель, М. Зельдович и С. ШмеральФормат: PDF
+О конструкторе завода «Калибр» Д. С. СеменовеЖанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE6CBD4EBD924A8E825BD62D612D31D7137FE45F
+magnet:?xt=urn:btih:61958A97389C4F8B6018C016936F6E27C76BF571
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +581,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552156   (585836) от 22.05.2022
+###  Публикация: 918851   (586006) от 16.07.2015
 
-VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maynard Ferguson - Gonna Fly Now (4:21)
-02. Duke Of Burlington - Flash (3:35)
-03. V.I.P. Connection (Arpady's) - West Coast Drive (4:40)
-04. John Forde - Don't You Know Who Did It (3:29)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:14
+01. Cinnamon Girl
+02. Hey Hey, My My
+03. Don't Let It Bring You Down
+04. Harvest Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
+magnet:?xt=urn:btih:8A2AB8B31729D28662B640CB4B822D2210F09F4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552160   (585835) от 22.05.2022
+###  Публикация: 918758   (586005) от 16.07.2015
 
-VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+Zoot Sims - And The Gershwin Brothers (1975) /2001, Planet/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Muscle Shoals Horns - Break Down (3:41)
-02. Brooklyn Express - Hollywood Party (6:13)
-03. Cissy Houston - Think It Over (7:59)
-04. Glitter Band - Makes You Blind (5:04)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:02:25
+01. The Man I Love [06:24]
+02. How Long Has This Been Going On [02:14]
+03. Lady Be Good [04:35]
+04. I've Got A Crush On You [02:57](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:49:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
+magnet:?xt=urn:btih:18EB976FFB4CDA6CC09EDCFB997C4B7134079DC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552748   (585833) от 22.05.2022
+###  Публикация: 918773   (586004) от 16.07.2015
 
-Robin Red - Robin Red (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Crywolf - Angels (2014) [MP3|320 кб/с]<Indie, Electronic, Dance, Chillоut>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Leave Me (With A Broken Heart) (4:48)
-02. (I'm A) Bad Habit (3:13)
-03. Everlyn (3:21)
-04. Freedom (4:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:03
+1. Intro (feat. Emalyn) (2:15)
+2. Eyes Half Closed (6:45)
+3. Whisper (feat. Emalyn) (4:02)
+4. Angels (3:50)(   Читать дальше...   )Жанр: Indie, Electronic, Dance, ChillоutПродолжительность: 00:24:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE642F767477530ADA141C943A877AF4D2EBF5B4
+magnet:?xt=urn:btih:7CB506C6F01A875D323286B55FC1E78241962649
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +668,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552845   (585831) от 22.05.2022
+###  Публикация: 918831   (586003) от 16.07.2015
 
-VA - DMC Freshers Ball (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Synth-pop, Pop Rap, Pop Rock, Indie Rock>
+Billie Holiday - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_585831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Various Artists - The Freshers Monster Ball (Student Party Mix)(1)
-02. Various Artists - The Freshers Monster Ball (Student Party Mix)(2)
-03. Various Artists - The Freshers Monster Ball (Student Party Mix)(3)
-04. Various Artists - Rock Party 2 (Re-Edit)(   Читать дальше...   )Жанр: Synth-pop, Pop Rap, Pop Rock, Indie RockПродолжительность: 01:18:55 hrs
+01.  Your Mother's Son-In-Law (2:46)
+02.  These Foolish Things (3:19)
+03.  I Cried For You (3:13)
+04.  Did I Remember ? (2:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:550BFD1045F5C62CCB60B368CDBBC52A8A3CBD29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,169 +697,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 357973   (585830) от 02.07.2011
+###  Публикация: 918817   (586002) от 16.07.2015
 
-X-men / Люди Икс [2011, TV, 12] HDTV 720 raw + rus
+7 Star Browser 1.42.0.323 Alpha [En]
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эволюция продолжается! Среди homo sapiens постепенно появляется новая раса с необычными способностями – кто-то овладел стихиями, обрел невероятную силу и скорость, другие читают мысли или проходят сквозь стены. Страх, любопытство, неприятие, агрессия – вот реакция обычных людей на тех, чье существование перестало быть секретом для публики. Власть имущие ищут контроль над мутантами, некоторые мутанты открыто заявляют, что раз они «следующая ступень», то надо объединиться и править «людишками». Лишь небольшая группа одаренных озабочена не властью или личной выгодой, а поиском согласия в новом мире, помощью людям и себе подобным. Их зовут просто – «Люди Икс».
-
-После многих битв, великих побед и горьких неудач, группа профессора Ксавье рассеялась. Но вот очередной тревожный сигнал приходит (конечно же!) из Японии, и краткое расследование показывает, что беда грозит не отдельным лицам, а судьбам мира. А это значит, что Циклопу, Шторм, Зверю и Росомахе пора вновь садиться в иксоплан и лететь на острова, в район Тохоку, (   Читать дальше...)Жанр: приключения, фантастикаРежиссер: Кидзаки ФуминориПродолжительность: 12 серий по 25 мин.
+7 Star Browser - китайский браузер на базе Chromium, c возможностью переключения между движками Webkit и Trident (IE), не уступающий по функционалу CoolNovo. 7 Star Browser - это мощный и интуитивно понятный на основе Chromium, который позволяет просматривать содержимое различных веб-страниц с использованием нескольких ядер.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0E1444BC0DC978CD4958502DC781E9F36AEED72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357965   (585828) от 02.07.2011
-
-Русский крестный отец / The Russian Godfather (1996) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда «беспредельщиков» из бывшего Союза перебирается в Америку, где «пацаны» наводят ужас на Лос-Анджелес. Ограбления банков, наркотики, проституция, кровавые разборки на улицах — полиция ничего сделать с нашими интеллектуалами не может.
-
-Два крутых агента безопасности, русский и американец, должны нейтрализовать нашествие варваров на беззащитных американских обывателей. Семью русского офицера убивают, жену и дочь американца похищают и продают, но охотники на крестного отца русской мафии от этого только распалились.Жанр: Боевик, ПриключенияРежиссер: Йорго ОгненовскиАктеры: Йорго Огненовски, Джефф Конуэй, Русс Рэссик, Ливэни, Нильс Стюарт, Драги Поповски, Герман Синицин, Ким Доусон, Кимберли Стивенс, Драгана Огненовски и другие.Перевод: Авторский (одноголосый) Юрий СербинПродолжительность: 1: 28: 51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB96B0FE4EE719F1D4F7BF25661F76796DF46265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357518   (585825) от 02.07.2011
-
-Амели на Мели (Александра Образцова) - Студийный сборник (2011) [MP3|160 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Навстречу страху
- 2. Забыть её
- 3. Безымянной
- 4. Скажи
- 5. Я знаю
- 6. Если бы
- 7.  Бродит утро
- 8.  Наизусть
- 9.  Прости мне
- 10.  Одиночество, спи!(   Читать дальше...)Жанр: RockПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3CFCB6B36160FA2FABB41603DD11AE81A914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357986   (585824) от 02.07.2011
-
-Михаил Задорнов "Антология Юмора" (2008) /2хDVD5/
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранные концерты живого классика российского юмора и сатиры Михаила Николаевича Задорнова на телеканале РЕН ТВ. В передачу вошли самые лучшие концертные номера из ранние демонстрированных на РЕН ТВ концертов за период с 2005 по 2007 год.Жанр: КомедияПродолжительность: 10 х ~ 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0046C3676AA6B9AFB3F7BD4349357F98173E24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357784   (585823) от 02.07.2011
-
-Эффективная прокачка пресса (2004) DVDRip [En]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшего комплекса упражнений на пресс чем этот вы еще не находили!!! Советуем вам качать пресс следуя этому видео, повторяя за тренером. Сама тренировка идет 5:30 мин, но тяжело становиться уже после первых 30 секунд. Ну а как иначе?? Красота требует жертв!! Еще один плюс к тому, что в конце видео делают растяжку пресса, это делает его более рельефным.Жанр: ОбучающееПродолжительность: 00:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA17CDFD538EF1D8F6BEEAED04E851CBFC0DC32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357911   (585822) от 02.07.2011
-
-Месть в Сиэтле / True Justice: Dark Vengeance (2011) DVDRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть копом нелегко, и в этом не раз убеждался бывалый детектив Элайя Кейн, повидавший на своём веку немало драк, перестрелок, локальных войн и жестоких схваток. В этом он уверяет и свой отряд полицейских-коллег и напарников, большинство из которых являются совсем зелёными новичками. Однако, жизнь на улицах города является столь же непростой, сколь и опасной, поэтому блюстители закона и охранники правопорядка вынуждены день за днём пресекать правонарушения и предотвращать преступления, ловить бандитов и арестовывать наркоторговцев.
- Опытный Элайя во всём помогает и способствует юным законникам, а также вразумляет и наставляет их на путь праведный. Постепенно улицы очищаются от маргинальных нечистот и презирающих закон лиц, но всё новые проблемы и неприятности дают знать, что южному правосудию не быть невостребованным. Элайя Кейн и его верная команда помощников ни на шаг не отступят от своего, продолжая лоббировать букву закона повсеместно и там, где, кажется, её не уважают и вовсе не признают. Они непременно добьются, (   Читать дальше...   )Жанр: боевик, триллер, драмаРежиссер: Вейн Роуз, Киони Ваксман, Лауро ЧартрэндАктеры: Стивен Сигал, Алекс Маллари мл., Джоуз Исо Пена, Стюарт Уильям Биг Слипс, Кайл Кэсси, Майкл Эклунд, Марина Ева, Питер Грэхэм-Годрэу, Сара Линд, Джим ТорбернПеревод: Профессиональный (многоголосый)Продолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87F514BAF32BFB2679AF6BCE1E59A10D7E9324B
+magnet:?xt=urn:btih:227E93685EF77D287508B65F52008A9939E9D22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

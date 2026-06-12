@@ -1,3 +1,32 @@
+###  Публикация: 1424454   (227771) от 17.11.2020
+
+Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Esquisse (01:51)
+2. Dégradé (06:47)
+3. Détails (03:57)
+4. Relief (06:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4028FCB301D181ABF8936E70C611A3FEAB22E59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964998   (227768) от 13.12.2015
 
 Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossless|tracks+.cue, tracks, image+.cue]<Ambient, New Age>
@@ -705,35 +734,6 @@ Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0434ABC8DB82CD394B24F05D026BEE9048C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601908   (210931) от 03.01.2023
-
-Moby - Ambient 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. amb23 - 1 [00:08:01]
-02. amb23 - 2 [00:09:06]
-03. amb23 - 3 [00:05:23]
-04. amb23 - 4 [00:07:57](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1AE33A438148FF5D1D6F5BE18DDB0E77DF2404
 ```
 
 https://mybot314.ru/tekegram_catalog/

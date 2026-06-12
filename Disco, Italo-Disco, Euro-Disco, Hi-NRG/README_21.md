@@ -398,64 +398,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552165   (585839) от 22.05.2022
-
-VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.C. Larue - I Don't Want to Lose You (14:04)
-02. Blair - Nightlife (7:19)
-03. Climax Blues Band - Couldn't Get It Righ (3:03)
-04. Billy Paul - Let the Dollar Circulate (4:56)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552156   (585836) от 22.05.2022
-
-VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maynard Ferguson - Gonna Fly Now (4:21)
-02. Duke Of Burlington - Flash (3:35)
-03. V.I.P. Connection (Arpady's) - West Coast Drive (4:40)
-04. John Forde - Don't You Know Who Did It (3:29)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552160   (585835) от 22.05.2022
 
 VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
@@ -772,6 +714,70 @@ Space Project - Disco from Another Galaxy (1978) LP, Limited Edition [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EADB8BCBA8A6A70B6633EA26A80CB65EDEDC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302257   (582249) от 14.05.2019
+
+ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <Electronic, Downtempo, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Built The Pyramids (5:19)
+02. The Wall Of Sound (6:46)
+03. Neonlight Children (4:39)
+04. Aren't You God (6:24)Жанр: Electronic, Downtempo, Funk, DiscoПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810975   (581493) от 07.08.2014
+
+Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Good (I Feel Fine) 4:51
+02. The Witch-Queen Of New-Orleans 3:31
+03. Little Rock 4:06
+04. Frough Your Eyes 4:07
+05. Shot In The Night 4:21
+06. Perfect Combination 3:12
+07. Never Give Up 4:00
+08. Storms Of Love 3:56
+09. Stand Up 3:47
+10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
 ```
 
 https://mybot314.ru/tekegram_catalog/

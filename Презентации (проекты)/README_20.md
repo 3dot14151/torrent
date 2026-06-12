@@ -1,3 +1,57 @@
+###  Публикация: 1394552   (763408) от 05.07.2020
+
+Проекты - VideoHive - Dynamic Slideshow - 22842221 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763408.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Dynamic Slideshow» - это энергичный, оптимистичный рекламный шаблон для After Effects.
+Лучше всего подходит для промо и презентаций, таких как "showreel production", "youtube", "cool tv openings", рекламные объявления и специальные мероприятия.
+Включено три версии: Slideshow (0:45), Slideshow Short (0:15), Slideshow Instagram Stories (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9ABD4D5810673EFC6DA26E38A41BF3D0C98661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017180   (762629) от 16.05.2016
+
+Проекты - VideoHive - Insurance Services Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insurance Services Presentation - презентация услуг страховой компании. Стильное решение для коммерческого использования. Простая установка и быстрая настройка! Используйте только те фрагменты, которые нужно или перегруппируйте по своему усмотрению.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7736EB60010A0C0FA526BA36724CB68F597F4F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017126   (762564) от 16.05.2016
 
 Проекты - VideoHive - Sexy Promo [AEP]
@@ -620,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B7B03A563F844B023A39E4811918C000F9E12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019687   (748065) от 24.05.2016
-
-Проекты - VideoHive - Fast Photo and Video Shots [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_748065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания быстрого фото или видео слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3622E0A0B733D3D9C1116F23105849DCA412B6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281907   (747943) от 10.02.2019
-
-Проекты - VideoHive - The Movie Awards Opener - 23147133 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для церемонии награждения, а так же различных видео-презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B135876EAC2307F961C7FAF78CDEE57968772A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1875293   (1072485) от 
+
+Juliana Hatfield - Hey Babe (1992) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves Me But You (3:38)
+02. Lost and Saved (4:00)
+03. I See You (3:34)
+04. The Lights (5:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53425FF2B113CA4398BC6A873BBECC32E01D4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875314   (1072484) от 
+
+Kirsty MacColl - Kite (1989) Reissue, Remastered, 2005, EMI [FLAC|Lossless|image + .cue] <Folk Rock, Country Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence (4:10)
+02. Free World (2:37)
+03. Mother's Ruin (3:57)
+04. Days (3:01)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Pop RockПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9007A9E22300005FA3E799FDF3D33CDF0961CDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875074   (1072475) от 
+
+Jimmy Buffett - Songs You Know By Heart - Jimmy Buffett's Greatest Hit(s) (1985) [FLAC|Lossless|tracks + .cue] <Rock, Calypso, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheeseburger in Paradise (2:52)
+02. He Went to Paris (3:29)
+03. Fins (3:25)
+04. Son of a Son of a Sailor (3:25)(   Читать дальше...   )Жанр: Rock, Calypso, Classic RockПродолжительность: 00:42:26.400 (112 296 240 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C95FE1C32EEF3685935B238EFCCCF25A809290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874953   (1072215) от 
+
+Nightingale - Alive Again (2003) 2 x CD, Remastered, 2025, Inside Out Music [FLAC|Lossless|image + .cue] <Prog Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072215.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01. Recollections (2:10)
+  02. Shadowman (5:04)
+  03. The Glory Days (4:18)(   Читать дальше...   )Жанр: Prog Rock, Heavy MetalПродолжительность: 02:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2177E774210BFEB04F425C7F19A2773BC96512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874819   (1072169) от 
 
 David Baerwald - Triage (1992) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -630,122 +746,6 @@ VA - Prog-Box(5 Hours Of Progressive Music) (2014) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3852E0CC958E3C35436716BDA0571DAACE7ABC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867744   (1067070) от 27.04.2026
-
-FEX - Skyscraper (2025) [APE|Lossless|image + .cue] <Rock, Blues Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyscraper (3:44)
-02. Subways Of Your Mind (3:54)
-03. Goldrush (3:25)
-04. Heart In Danger (4:22)(   Читать дальше...   )Жанр: Rock, Blues Rock, New WaveПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACBD6D16E4E00AA692E1D04AB00D5E9E4A56017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867865   (1067056) от 27.04.2026
-
-Joe Cocker - The Best Of Joe Cocker (1993) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067056.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Robert Cocker начав свой путь как неудачливый поп-певец (выступавший под псевдонимом Vance Arnold), нашел свою нишу, исполняя рок и соул в английских пабах, откуда шагнул на большую сцену. Joe умеет петь в своей фирменной хрипловатой, эмоциональной манере; и на этом релизе 1993 года представлено немало отлично написанных и мастерски исполненных композиций, записанных (   Читать дальше...   )01. Unchain My Heart (5:07)
-02. You Can Leave Your Hat On (4:15)
-03. When The Night Comes (3:59)
-04. Up Where We Belong (3:54)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470C1E86DBA65CF6442A4F646C54B630E0C96598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867459   (1066991) от 25.04.2026
-
-Kyuss - Welcome To Sky Valley (1994) [FLAC|Lossless|image + .cue] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066991.jpg" />
-</div>
-
-
-###  Подробнее
-
-I
-01. Gardenia
-02. Asteroid
-03. Supa Scoopa And Mighty Scoop(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE66C49689F6B2954AF76CF19BD5CE134FE714E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 105281   (1066850) от 26.04.2026
-
-Blondie - Greatest Hits: Deluxe Redux / Ghosts of Download - 2014, FLAC (tracks+.cue) <Rock, Disco, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sugar on the Side (feat. Systema Solar) (03:47)
-2. Rave (feat. Miss Guy) (04:02)
-3. A Rose by Any Name (feat. Beth Ditto) (03:34)
-4. Winter (04:16)(   Читать дальше...   )Жанр: Post-Punk, New Wave, Pop-RockПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50508E58DD7A062746F4C0F2656CE3713551C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

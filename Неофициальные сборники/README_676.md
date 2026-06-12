@@ -1,3 +1,90 @@
+###  Публикация: 1741884   (47227) от 10.08.2024
+
+VA - Compilation part 112 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akmalov - I Love You
+02. Akmalov - Never Lose Me
+03. A-Sultan & Enigma - I Am Asking Why
+04. Limora - Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07B16AD2D2034D4D7EEC7DC3D4DB90931AD0388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742203   (47169) от 11.08.2024
+
+Сергей Грищук - Музыка для души Compilation Part 3 (2024) [MP3|320 Kbps] <Instrumental, electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47169.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Прости За Всё
+ 002.  Зеркало Души
+ 003.  Осенний Сон
+ 004.  Лишь Только Ты(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DEB6D4DBFB0EC9DB7B5A602E734E9905F18437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741240   (47166) от 11.08.2024
+
+Сергей Грищук - Музыка для души Compilation Part 2 (2024) [MP3|320 Kbps] <Instrumental, electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Melody  of Rain
+ 002.  Ветер Надежды
+ 003.  Ты Только Верь
+ 004.  Лунная Ночь(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 05:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09280A36413A9C57A95BCE67464DE6FFCF137C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741000   (47151) от 11.08.2024
 
 Сергей Грищук - Музыка для души Compilation Part 1 (2024) [MP3|320 Kbps] <Instrumental, electronic>
@@ -658,93 +745,6 @@ VA - Compilation  part 115 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BF9083ACFE0CEFC861724157A89ADE95C27D73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745427   (45473) от 27.08.2024
-
-VA - The Sound of Power Blues-Rock vol.3 (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Suhler, Monkey Beat, Jim Suhler & Monkey Beat - Tijuana Bible [04:12]
-02. Pat The White - Jesus Gonna Be Here [04:23]
-03. Dr. Wu' and Friends, Buddy Whittington, The Walker Effect - When Your Lips Start Moving [04:41]
-04. Fiona Boyes - Party at Red's [04:15](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EBF3F4085CE64EB533812937ED36F21EDF5990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744812   (45472) от 27.08.2024
-
-VA - The Sound of Power Blues-Rock vol.1 (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Daddys - Fuel for My Blues [04:23]
-02. Dave Fields - Force of Will [04:55]
-03. Wes Jeans - Ridin' In The Moonlight [03:43]
-04. Albert Castiglia - Let the Big Dog Eat [03:29](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BC2C1F5091C17E00D58DD701BA27E71AFD9469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746311   (45121) от 30.08.2024
-
-VA - Music News For Forum vol.017 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45121.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zarina - Колыбель Рук (02:44)
- 002. Acies - Bentley Freestyle (01:34)
- 003. Adriana Onci - Doar O Noapte (02:38)
- 004. Andery Toronto feat. Диман Брюханов - Air Макс (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDF73341C4B359CA5354FAEE945979A7FF69462
 ```
 
 https://mybot314.ru/tekegram_catalog/

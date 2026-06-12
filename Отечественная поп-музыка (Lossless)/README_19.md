@@ -1,3 +1,61 @@
+###  Публикация: 1638201   (197356) от 07.06.2023
+
+Руки Вверх - Дышите Равномерно (1997) 2 x CD, Reissue, Remastered, 2023, Maschina Records, Deluxe Expanded Edition [FLAC|Lossless|image + .cue] <Russian Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197356.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Дышите Равномерно:
+01. Доброе Утро
+02. Малыш (Complete Version)
+03. Студент(   Читать дальше...   )Жанр: Russian PopПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF205567EB5BEACC6336E227577D950C478F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213790   (195222) от 26.07.2023
+
+Кар-Мэн - Нитро (2008) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_195222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Марсианка
+2.Детка
+3.Дискотека
+4.Точка-Тире(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F692AE19257562B59E1068BC922FA224CB0EB3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 270663   (195167) от 27.07.2023
 
 Uma2rmaH - 1825 The Best (2010) [FLAC|Lossless] <Pop-Rock>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435072   (145813) от 27.12.2020
-
-Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иногда (5:16)
-02. Свет в твоем окне (4:17)
-03. Там, где рождается свет (4:36)
-04. Весна (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3999B673C0A52919746D10A3B0B9B5E4F40544F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970101   (143570) от 29.12.2015
-
-Иварс (Ивар) Калныньш - Актер И Песня (2003) [APE|Lossless|image+.cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Город Любви
-02	Сказка Любви
-03	Ниточка
-04	Цветочек(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB17ED0289E24179045EAEDB29131BC9D273446C
 ```
 
 https://mybot314.ru/tekegram_catalog/

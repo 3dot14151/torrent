@@ -1,3 +1,87 @@
+###  Публикация: 1302392   (581249) от 15.05.2019
+
+The Hornettes - Holiday (1994) [FLAC|Lossless|image + .cue] <Disco, Europop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hawaii (2:09)
+02. Hands Up (3:44)
+03. Pata Pata (3:21)
+04. La Bamba (2:39)(   Читать дальше...   )Жанр: Disco, Europop, LatinПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11986503D511D1FFF68B88F67F5B42E7C9323762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641810   (581002) от 15.05.2019
+
+VA - Golden Retro Hits (4х2CD) (2012) [MP3|320 кб/с]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: поп, ретроПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D808C88FE8583C87C854C72914F81B40903A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920265   (580964) от 21.07.2015
+
+VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, голоса сирен (этих полурыб-полуженщин, унаследовавших от отца - морского бога Форкия - дикую стихийность, а от матери-музы — божественный голос) завораживают. Звуками своих песен они усыпляют путников, а затем раздирают их на части и пожирают. Аргонавты лишь благодаря тому миновали гибели от сирен, что сопутствовавший им Орфей заглушил пение сирен своим (   Читать дальше...   )CD1:
+01. Kelly Clarkson - Because of you  (3:42)
+02. Alicia Keys - A woman's worth  (5:05)
+03. Natasha Bedingfield - These words  (3:37)(   Читать дальше...   )Жанр: Pop, Jazz, RockПродолжительность: 04:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170007584FD28E72DE54F6D69074A265CC479EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920146   (580919) от 21.07.2015
 
 Laid Back - Uptimistic Music Vol. 1 - Vol. 2 (2013) 2CD [FLAC|Lossless]<Pop>
@@ -695,93 +779,6 @@ VA - Bravo Hits 117 (2022) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BB034EE4EE275B66C0C8689FC83F3DA88C24FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920510   (578782) от 23.07.2015
-
-VA - Songs Sunny Italy (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Folgi - Storie Di Tutti i Giorni 03:53
-02. Toto Cutugno - Autre chanson 03:36
-03. Adriano Celentano - Il Ragazzo della via Gluck 04:15
-04. Claudia Mori & Adriano Celentano - Non Succedera Piu 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6BCF7152937B4AE7CC050869C0287972C44006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920741   (578770) от 23.07.2015
-
-VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578770.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году уже были на трекере два диска NRJ (см. ссылку внизу раздачи). Теперь к лету подоспело ещё два свежих. Один из них представляю Вашему вниманию.CD1:
-01. Major Lazer Feat. MO DJ Snake - Lean On  (2:57)
-02. Kygo Feat. Conrad - Firestone  (3:24)
-03. Black M - Foutue Melodie  (3:45)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC93371FF8CE22AF4D47DA381A10AD8BD2321444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666180   (578742) от 23.07.2015
-
-Tamar Kaprelian - 3 альбома и 1 сингл (2009-2015) Дискография [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Until You Run [03:07]
-02. Yours To Keep [03:19]
-03. Summer, Highland Falls [03:02]
-04. Wanna Go There With You [03:23](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7E03142F7C8416F91DA54B2CF0EEA69EF99D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

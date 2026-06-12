@@ -1,3 +1,32 @@
+###  Публикация: 1036338   (621078) от 20.07.2016
+
+Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boys Are Back In Town
+02. The Richest Fool Alive
+03. Daniel Prayed
+04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295510   (618799) от 13.04.2019
 
 Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
@@ -722,35 +751,6 @@ Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045738   (557732) от 24.08.2016
-
-Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Blowin' In The Wind [02:48]
- 2 - The Times They Are A-Changin' [03:14]
- 3 - Don't Think Twice, It's All Right [03:40]
- 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

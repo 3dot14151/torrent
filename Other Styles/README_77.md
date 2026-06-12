@@ -1,3 +1,119 @@
+###  Публикация: 905441   (649061) от 06.06.2015
+
+Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive (Extended Version) (01:40)
+02. Escape (Extended Version) (03:29)
+03. Immortan’s Citadel (Extended Version) (08:58)
+04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2C2BC8CCFB735A2F4E69151FD79E51DC979FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905454   (649057) от 06.06.2015
+
+Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive (Extended Version) (01:40)
+02. Escape (Extended Version) (03:29)
+03. Immortan’s Citadel (Extended Version) (08:58)
+04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291804   (648641) от 28.03.2019
+
+Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lothian Hairst (04:44)
+02. Jack the Sailor (03:50)
+03. Seven Gypsies (03:33)
+04. Sailin's a Weary Life (04:16)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292020   (648635) от 28.03.2019
+
+Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untitled (10:22)
+2. Untitled (05:56)
+3. Untitled (03:40)
+4. Untitled (07:06)(   Читать дальше...   )Жанр: Folk, Country, AmbientПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292135   (648625) от 28.03.2019
 
 VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
@@ -645,122 +761,6 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292174   (644706) от 30.03.2019
-
-VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Tools>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Fodera Ft. Alex Mills - Always Gonna Be (Extended Accapella) (04:42)
-02. CamelPhat Ft. Ali Love - Dopamine Machine (Accapella) (08:20)
-03. Offaiah - Push Pull (Accapella) (04:38)
-04. Selace - So Hooked On Your Lovin (Mousse T.'s Accapella) (03:40)(   Читать дальше...   )Жанр: Acapellas, DJ ToolsПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119918   (644260) от 13.06.2017
-
-ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [MP3|320 Kbps] <Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водопад
-02. День рождения
-03. Путь домой
-04. Мечта(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032520   (644034) от 08.07.2016
-
-John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken [00:02:39]
-02. In the Beginning [00:03:29]
-03. Artificial Time [00:05:33]
-04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032545   (644027) от 08.07.2016
-
-Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahogany Cider [00:02:59]
-02. Black Creek Trail [00:04:29]
-03. Where Three Rivers Meet [00:05:18]
-04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
 ```
 
 https://mybot314.ru/tekegram_catalog/

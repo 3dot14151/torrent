@@ -1,3 +1,164 @@
+###  Публикация: 614453   (981830) от 05.02.2013
+
+KCentric - Almost Live At Brassmataz (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Tokyo
+02. Butta Fly
+03. Marina Sunset
+04. Almost Live At the Brassmataz
+05. Oxymoron
+06. Venus
+07. Lazy Tuesday
+08. Quiet ChaosЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13DCC2B7F4D6E0CD9778031CF553694936F8DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613985   (981753) от 05.02.2013
+
+VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Groove Boyz - Come to the House (feat. Cadillac - Progression Vocal Mix)
+02. Victor Arman - My Angel Eyes (feat. Anjela - Vocal Playa Mix)
+03. Zaar - Iron Money (feat. Sakurya - House Sector Mix)
+04. Tony Roja - Deep Hole in Woman (feat. Morena - La Boca Mix)
+05. Train Inc. - Come Into My Life (Beach Groovers Mix)
+06. Tribeca Motel - The Angel in the Studio (Percussive Onda Mix)
+07. Pianofingher - The Stolen Stockings (House Zone Mix)
+08. Anthony Cool - Full Jazz (Jazz Style Mix)
+09. Heaven Grooves - Insane (The Bass Mix)
+10. House Gee - Lasalsa (House Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B53BE72FE404CC1080AFF149D019D7703880A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613516   (981606) от 05.02.2013
+
+VA - Erotic Stories: Suite 01 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Demegni - The Way of the Sensuality - Jazzy Mix
+02. Konsiglio - Oleico - Original Mix
+03. Jaques Laroche - Cape Town Glam - Charmant House Mix
+04. Fashion Victins - My Body - Original Mix
+05. Sealovers - Wild Hunters - Original Mix
+06. Giacomo Toschinini - Notte Romana - Original Mix
+07. First Jazz Generation - Count Respect - Note Blue Deep Jazz Mix
+08. Don Markus - I Dont Want Illusion - Original Mix
+09. Coffee Time - The Beautifull Ass - Original Mix
+10. Mediterranean Soul - Imperat - Original Mix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584AF43AA9236BAFED2BF7F68C14310CB28CBA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355821   (981153) от 28.01.2020
+
+Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep House, Dub, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rooftops (Minilogue's Taqism Remix) (09:43)
+ 02. Time (John Daly Remix) (06:55)
+ 03. Ghostship (Deadbeat Remix) (06:55)
+ 04. Backwards Never (XDB Remake) (07:04)(   Читать дальше...   )Тип издания: WebЖанр: Deep Techno/Dub Techno/DubПродолжительность: 03:48:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F97B16A23B969D7F03D27CB5A00FA143A02316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356015   (981105) от 28.01.2020
+
+The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, New Wave, Indie Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clear (04:51)
+02. Fascination (04:31)
+03. Lost Life (04:42)
+04. Modus (04:29)(   Читать дальше...   )Жанр: Synth, New Wave, Indie PopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6DF317EDD125DD1907F5389AC67C9B425DE686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972743   (980767) от 07.01.2016
 
 VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -600,151 +761,6 @@ Alphaxone, ProtoU, Onasander - Shadows Of Forgotten Legends (2020) Cryo Chamber 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF13C7ABB8BB46361572B6384A58527A90EE3F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356344   (978712) от 30.01.2020
-
-Tangerine Dream - Recurring Dreams (2020) [MP3|320 Kbps] <Electronic, Ambient, Krautrock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sequent 'C' 2019 (2:27)
-02. Monolight (Yellow Part) 2019 (7:40)
-03. Tangram Set 1 2019 (Excerpt) (5:44)
-04. Horizon 2019 (Pt. 1) (6:46)(   Читать дальше...   )Жанр: Electronic, Ambient, KrautrockПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D7622DC5B890B8C1B8B36883F781773CB31D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356377   (978621) от 30.01.2020
-
-Tangerine Dream - Recurring Dreams (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronict>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sequent 'C' 2019
-02. Monolight (Yellow Part) 2019
-03. Tangram Set 1 2019 (Excerpt)
-04. Horizon 2019 (Pt. 1)(   Читать дальше...   )Жанр: Ambient, ElectronictПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E4D4584C4E7A820861CAAB141DEB60F33F7D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668234   (978614) от 30.01.2020
-
-Mikael Fyrek - Discography 7 Releases (2007-2020) [FLAC|Lossless]<IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keres (05:36)
- 02. Bau (04:25)
- 03. Tiet (04:13)
- 04. Uzume (04:27)(   Читать дальше...   )Жанр: IDM/Downtempo/AmbientПродолжительность: 03:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C2D362F65590C5009B4EEB4B3E6D57A31DA127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974010   (978179) от 10.01.2016
-
-VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calabria – Ufo (Club Mix)
-02. Admiral Bob – Free Music And Free Beer (Serobeat Club Remix)
-03. Randy Norton Vs. Angelique – I’m Your Baby (Extended Commercial Mix)
-04. T & G Factory – Feel The Bounce(   Читать дальше...   )Жанр: Club, Future House, ElectroПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B632BE297B60E9DE37A7F64CD403DC9AFB3BA8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973542   (978151) от 10.01.2016
-
-Simple Minds - New Gold Dream (81-82-83-84) (1982) SACD, 2003 Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Somewhere in Summertime (4:36)
-02. Colours Fly and Catherine Wheel (3:49)
-03. Promised You a Miracle (4:28)
-04. Big Sleep (5:00)(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CD08E8FF72058B43420CF72A162B4C0F657AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

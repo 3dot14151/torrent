@@ -1,3 +1,55 @@
+###  Публикация: 1040191   (587220) от 04.08.2016
+
+Проекты - VideoHive - New Restaurant Presentation - 6066608 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Restaurant Presentation - это сборник для создания презентации меню ресторана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E44745208E3F5534A4AB2CF88623CD800123BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040307   (587209) от 04.08.2016
+
+Проекты - MotionVFX - Wheel Of Footage [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для бизнес-презентации, рекламы товаров, услуг и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAB680EC553C076D988AD79C4B76398752A7ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918353   (586708) от 15.07.2015
 
 Проекты - Проект ProShow Producer - Zlata [PSH]
@@ -627,58 +679,6 @@ VideoHive - Magazine Animation Pro - 3410790 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC1A22315AA4AE0C191EABBA4A9743CE9CCAE19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042708   (577831) от 13.08.2016
-
-Проекты - VideoHive - Broadcast Design - Primetime News Open - 152968 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания новостного канала или выпуска новостей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB49D879B33848849BFB8844BB7517CBB0EA2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233827   (577641) от 01.07.2018
-
-Проекты - VideoHive - Cyberpunk Billboard - 21494589 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk Billboard - это попытка сделать гибкий и универсальный проект с оригинальной идеей, применить рекламные щиты в мире киберпанка.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CD14C5B90F591377186FBDBD0EC687B9CFB4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

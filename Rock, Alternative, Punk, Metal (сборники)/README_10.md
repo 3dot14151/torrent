@@ -1,3 +1,32 @@
+###  Публикация: 1496442   (872600) от 17.09.2021
+
+VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Bona - Kurumalete
+002. Nicole Hart - Higher Ground
+003. Susan Tedeschi - Looking For Answers
+004. Mannish Boys - Ti Blues(   Читать дальше...   )Жанр: Blues, Rock Blues, FolkПродолжительность: 08:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04598ECED1AAB6FE65A847F9455434A378ECFA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374679   (872578) от 10.04.2020
 
 VA - Acoustic Rock vol.4 (2020) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ VA - Live Monsters! (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82CC53A3B638D9D931189165AEEC294849714E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109288   (858536) от 27.02.2017
-
-VA - The Best Rock Ballads (2017) [MP3|320 Kbps] <Heavy, Power, Alternative, Modern Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858536.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Rasmus - October & April.mp3
-002. Revolution Renaissace - Frozen Winter Heart.mp3
-003. Dream Evil - Losing You.mp3
-004. Stratovarius - Season Of Faith's Perfection.mp3(   Читать дальше...   )Жанр: Heavy, Power, Alternative, Modern Metal, Hard RockПродолжительность: 25:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDD040307958DB8D7377E4269D5BD2B4344D23F
 ```
 
 https://mybot314.ru/tekegram_catalog/

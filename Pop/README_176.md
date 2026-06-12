@@ -1,3 +1,90 @@
+###  Публикация: 1305772   (556189) от 01.06.2019
+
+VA - Clubfete 2019.2 (63 Summer Club & Party Hits) (2019) 3CD [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556189.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.  Robin Schulz feat. Harlœ  -  All This Love
+02.  Mark Ronson  -  Nothing Breaks Like A Heart
+03.  Chic  -  Le Freak (Oliver Helden's Remix)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 03:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534159433B842744C6E6EB6595054CE8AF0E8C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305831   (556179) от 01.06.2019
+
+Arirang Singers - Discorea (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Eyes (4:02)
+02. Troubles (3:26)
+03. Come And Join Us (4:15)
+04. Water Dance (3:37)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0B8717A6128C6B029C6950FC61801CD8B7BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305734   (556037) от 01.06.2019
+
+VA - Первый танцевальный, Vol. 17 (Летний) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zivert - Life (English Version)
+02. MONATIK - LOVE IT ритм
+03. Филипп Киркоров - Стеснение пропало
+04. ZENA - Like It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F692D01EE26783F2DA78912C5A768216E9741084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306081   (555816) от 03.06.2019
 
 Apollo - Apollo (1979) LP [MP3|320 Kbps] <Funk, Disco>
@@ -658,93 +745,6 @@ Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236319   (554490) от 17.07.2018
-
-VA - Synthetic Memento (2009) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.C.D - Lovely (4:39)
-02. Keen K - From The Outside (4:13)
-03. Infinity Night - Split-Zero-Dimension-00 (5:05)
-04. Aldo Bergamachine - MedievalOrange (4:10)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2AA1F59DB2155D460FD25617A97F3D86A35B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236426   (554483) от 17.07.2018
-
-Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1981 - Tom Tom Club
-1983 - Close To The Bone
-1988 - Boom Boom Chi Boom Boom(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307979   (554462) от 12.06.2019
-
-Трио Реликт - Золотые голоса России (1993) [FLAC|Lossless|image + .cue]<Retro, Folk, Romance>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Однозвучно гремит колокольчик
-02. Ой да не вечер
-03. Из-за леса, из-за гор
-04. Вот мчится тройка почтовая(   Читать дальше...   )Жанр: Retro, Folk, RomanceПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87D647BC0F7E9464913C5E2ABE700D284296C19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -85,35 +85,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233191   (593760) от 28.06.2018
-
-Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_593760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humility (Feat. George Benson)
-02. Tranz
-03. Hollywood (Feat. Snoop Dogg & Jamie Principle)
-04. Kansas(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, ElectronicПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040119   (593482) от 03.08.2016
 
 Alabama Shakes - Sound And Color (2015) [MP3|320 Kbps] <Alternative Rock>
@@ -736,6 +707,41 @@ Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357562   (580962) от 07.07.2011
+
+Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580962.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tales Of Intervention (2:41)
+2. Sons Of Robots (2:19)
+3. Not A Number (4:33)
+4. Three From Six (3:16)
+5. Floating Ghosts (4:14)
+6. Bones (3:07)
+7. Due To Circumstance (2:32)
+8. Start The Fans (2:20)
+9. Find What's Out There (3:30)
+10. Henchmen (3:43)(   Читать дальше...)Жанр: Ska-coreПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E089C74602E6D42AEF733435AFC607BE026BBD79
 ```
 
 https://mybot314.ru/tekegram_catalog/

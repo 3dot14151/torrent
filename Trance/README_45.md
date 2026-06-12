@@ -1,3 +1,90 @@
+###  Публикация: 1619320   (249665) от 16.03.2023
+
+VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Intro mix) [04:14]
+02. Mike Van Fabio & Kim Kiona - Don't Run Away (Last Soldier extended remix) [06:20]
+03. U-G - Shikisai (extended mix) [07:36]
+04. NyTiGen & AFTERUS - Free Fall (extended mix) [06:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0191E5AB4390E5BA36EE453151312A077778D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620100   (249546) от 18.03.2023
+
+VA - Vocal Trance Collection (2023) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exeland feat. Natune - When You're Near (Catchfire Remix) (7:23)
+02. Liddell - Fighting Daylight (Original Mix) (6:57)
+03. Edplacid Patiño - The Phoenix (Extended Mix) (6:24)
+04. DJarle & Kanyle - Ride My Waves (Victor Special Remix) (7:57)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADF19D0F97995BE81535AEDEB176BDA19C9BAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607923   (246057) от 28.01.2023
+
+VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avar - You (Intro Edit) [5:28]
+02. New World - True Nature (Club Mix) [6:02]
+03. Mark Versluis feat. Emy Smith - Where Are You Now (Extended Mix) [6:21]
+04. Jason (CHN) - Dreamcatcher (Autumnal Poplar Groves Remix) [6:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF4D86B376FAEDAB78C0C068F468A5BB32A8406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447584   (245993) от 14.02.2021
 
 Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
@@ -653,93 +740,6 @@ VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AFAE7817A7157FA779A6AD9C71C361B205669E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634691   (242310) от 23.05.2023
-
-VA - Nothing But... Trancetopia, Vol. 03 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctic Ocean - Feel The Wave (Original Mix) [4:17]
-02. Jericho Frequency & Kate Miles - Blink Of An Eye (Dub Mix) [7:14]
-03. HamzeH - The Last Call (Original Mix) [6:23]
-04. Baragula - Alicia (Original Mix) [5:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052955EB0306A67E37E6A9A2C9CD04D65D26EDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635411   (241726) от 26.05.2023
-
-VA - Trance Spring (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcanum - Aeternum (AFTERUS Extended Remix) (5:37)
-02. Ahmed Walid - Sparkling Years (Original Mix) (7:01)
-03. Roman Sand - Insight (Original Mix) (7:18)
-04. Mazeev - Kookaburra (Original Mix) (7:11)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A79F4FC97E5EF757DC462B840A43C13D136577B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629739   (241497) от 28.04.2023
-
-VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SounEmot - Nuestra Promesa De Amor (Intro Mix) [9:04]
-02. Alternate High & Lyd14 - You're A Star (Extended Mix) [6:57]
-03. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Extended Mix) [6:31]
-04. Sandro Mireno & Ria Joyse - Winter In Your Heart (Extended Dub) [6:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
 ```
 
 https://mybot314.ru/tekegram_catalog/

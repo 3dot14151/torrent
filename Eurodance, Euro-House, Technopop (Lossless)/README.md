@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874934   (1072701) от 
+
+Melissa - Fresh (1992) [FLAC|Lossless|image + .cue] <Europop, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy (Is the Word) (3:36)
+02. Let's Get Pumping (3:45)
+03. My Imagination (4:34)
+04. Skin to Skin (3:49)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A076953665B4767D57EE1E563143C1E23E864BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872690   (1070801) от 24.05.2026
 
 Euphoria - Total Euphoria (1992) [FLAC|Lossless|tracks + .cue] <Euro House>
@@ -717,35 +746,6 @@ Aqua - Greatest Hits (2009) Speciel Edition [FLAC|Lossless|WEB-DL|tracks] <Euro-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3078E613C3CCF4B51C7DF22018D120FEB3C281A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471189   (1015297) от 19.05.2021
-
-Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Random Love (House Mix) 6:02
-2. Random Love (Maxi Mix) 6:31
-3. Random Love (Progressive Mix) 7:48
-4. Random Love (Radio Mix) 4:00Жанр: Euro HouseПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

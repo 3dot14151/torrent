@@ -1,3 +1,32 @@
+###  Публикация: 1308591   (553703) от 15.06.2019
+
+Fuling Cat Mark — 8 альбомов (2013-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, Shibuya-kei>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2017.08.11 スターライトワンピースター (C92)
+2017.12.29 ギブミースカートショータイム (C93)
+2019.05.05 星の砂漠のマルクパージュ (   Читать дальше...   )Тип издания: DoujinЖанр: J-Pop, Shibuya-keiФормат: Touhou VocalПродолжительность: 00:04:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337CDD71BEB5F622B1298DD8BCAA00266F84E5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308796   (553485) от 16.06.2019
 
 Anokthus — 3 альбома (2013-2017) [FLAC|Lossless|tracks] <Industrial, Techno, Hardcore, Noise, Dubstep, Drum & Bass>
@@ -616,6 +645,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368690   (527458) от 29.07.2011
+
+Takahiro Kido - Fairy Tale (2011) [MP3|320 kbps]<New Age, Modern Classical>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. All Endless Dreams
+03. 2nd Season
+04. Oranges & Lemons
+05. 3-Sized PF
+06. Rust Summer In Tokyo
+07. Let's Go Crazy
+08. Roads
+09. The Three-Day Blow
+10. Eternal Flower2011Жанр: New Age, Modern ClassicalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C3B55920E0A3981A56789FAC675A635F4FDACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368721   (527424) от 29.07.2011
+
+Ronnie Nyogetsu Seldin - Ichi On Buttsu: One Sound Enlightenment (1997) [MP3|320 kbps]<Zen, Ethnic, Shakuhachi>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_527424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ifu-Sashi
+02. Banji
+03. Omae
+04. Darami
+05. Banshiki
+06. Koku
+07. Mukaiji
+08. Kyorei1997Жанр: Zen, Ethnic, ShakuhachiПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E608A272AE04B6D9CCB6E7372A8664B866958E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266334   (526722) от 30.07.2011
+
+CLON - Discography[5 albums] (1996-2005) [FLAC|Lossless]<Korean,dance>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 세상 밖으로
+ 02. Ok! Alright! (feat. 채연)
+ 03. 우하
+ 04. Ready To Go (feat. 이지연)
+ 05. 내사랑 송이 (feat. 원우)
+ 06. Let's Go (feat. 이지영)
+ 07. 더이상 침묵할 수 없다
+ 08. 소외된 외침
+ 09. 대면... (Interlude)
+ 10. 무언의 발걸음 (feat. 이정)(   Читать дальше...   )1996-2005Жанр: Korean, danceПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559355   (524324) от 25.06.2022
 
 Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
@@ -638,122 +770,6 @@ Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03910A0C15FA09D82EF7D4A84343836BE21C57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559645   (523379) от 26.06.2022
-
-Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Instrumental)
-02. Decomposed
-03. The Incident Began
-04. Greedy for Fame(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3BE007E0BC27385403F49BB837A0926C78A445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928750   (521465) от 17.08.2015
-
-Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dream, Vaporwave>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 私を愛して Love Me (7:43)
-02. 午後11時 The 11pm (7:03)
-03. 地下自然公園 Underground Nature Park (ft. 猫 シ Corp.) (6:30)
-04. ストリップの明るいライト Bright Lights of the Strip (8:00)(   Читать дальше...   )Жанр: Ambient, Cyberpunk, Dream, VaporwaveПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3CA37B9C53F55A67A7D0C8308E37BD932AD824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382473   (514223) от 18.08.2012
-
-Huang Jiang Qin - 12 albums (2004-2009) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514223.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:46) 01. Suddenly Love
-(4:18) 02. Reading in Library at Night
-(5:34) 03. Watery Time
-(4:43) 04. Variation of Dream of Lovers(   Читать дальше...   )Жанр: Instrumental, Ethnic, New ageПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF39ED3EB6649AD19C8C20F933A6415994AD348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561801   (513620) от 06.07.2022
-
-coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Modern Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me Help You [00:03:43]
-02. CALLING [00:03:27]
-03. Cut Me [00:03:23]
-04. Before I Go [00:04:06](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Modern RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938AC1AFDBFECD4552137379D104CFC30901A4E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

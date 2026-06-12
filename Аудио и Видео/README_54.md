@@ -1,119 +1,3 @@
-###  Публикация: 1504169   (814162) от 22.10.2021
-
-VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Surfing on a Karma Wave (Original Mix) (3:41)
-02. Digby Jones - 73 Break (5:37)
-03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
-04. Marie Therese - Take This Treasure (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCBFBAF5A090F0CE3A70AEFD1522B4CEE6C6B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504126   (814161) от 22.10.2021
-
-Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes It Is (4:10)
-02. Let Me Be Your Lady Tonight (9:34)
-03. I Got Your Love (8:11)
-04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk / Soul, DiscoПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40018A3963C3EA1CD5DD0DD0282D466AD75072DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504070   (814139) от 22.10.2021
-
-VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet Dreamer, Tim Gelo - Time Together (Original Mix) (5:06)
-02. Chillson, Marc Hartman - Fantasia (Original Mix) (4:21)
-03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
-04. Lemongrass, Jane Maximova - Deep River (Mirage of Deep Remix) (8:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4107F1FD6C045FA6113624C8E83AC196FCF626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504067   (814137) от 22.10.2021
-
-Koan - Argonautica (White Orb Edition) (2021) [AAC|~345 Kbps] <Ambient, Chillout, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orpheus and Eurydice (8:44)
-02. Lost Lyre (8:06)
-03. Gella Sea (Phrixus and Helle Mix) (9:47)
-04. Daphne (Apollo Mix) (8:54)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BC5EEB2BD4ED6663BCF153E935AA5552016645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504176   (814133) от 22.10.2021
 
 Dream Theater - A View From the Top of the World (2021) [AAC|~352 Kbps] <Progressive Metal>
@@ -701,6 +585,122 @@ ZAZ - Isa (2021) [AAC|~308 Kbps] <Chanson, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174762FDD6EEBDBE219D0B5C6E0487738B374BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504466   (812366) от 23.10.2021
+
+VA - Lounge Freebeat, Vol. 5 (2020) [AAC|~283 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiozoom - Lounging Keys (4:46)
+02. Soundset City - Basic Love (Center Lounge Cut) (3:14)
+03. Jazzy System - Vertigo (3:59)
+04. CiYou - LoFi Chilly (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8E8B5F5FE39D4B525B86F59013797E3E60C3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504459   (812356) от 23.10.2021
+
+VA - Lounge Freebeat, Vol. 1 (2015) [AAC|~306 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Thinking About You (Lounge Mix) (4:51)
+02. Nightzoom - Silence (Vocal Lounge Remix) (5:04)
+03. Jenny Kiwool, Soundset City - Smooth Delight (Vocal Lounge Mix) (5:07)
+04. Johannes Huppertz - Radio Paris (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27B149BCA5BB200F6B28F9DD686433EE0636BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504544   (812222) от 23.10.2021
+
+Григорий Лепс - Подмена понятий (2021) [AAC|~335 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подмена понятий (5:27)
+02. Трибунал (3:08)
+03. Всех благ (4:45)
+04. Одежда между (3:28)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE50DBCD5C687EAA3D747D3861F3C9C41BF2954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504574   (812100) от 23.10.2021
+
+Olivia Newton-John - Physical (Deluxe Edition) (2021) [AAC|~360 Kbps] <Pop, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Landslide (Remastered 2021) (4:20)
+1.02. Stranger's Touch (Remastered 2021) (3:47)
+1.03. Make A Move On Me (Remastered 2021) (3:17)
+1.04. Falling (Remastered 2021) (3:47)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 02:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9168CA16B236BA881A33058A0EB84190A42A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

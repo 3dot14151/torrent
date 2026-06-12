@@ -1,3 +1,90 @@
+###  Публикация: 1867595   (1067259) от 26.04.2026
+
+VA - Russian Hits 2021 [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067259.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:59]. 001-Султан Лагучев - Горький вкус
+[2:58]. 002-Тото - Пой танцуй
+[2:02]. 003-Elman - Босоногая
+[3:06]. 004-Karenchik - Ты больна(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F064E7D1AE180852FC47BCC5DBF869D89807B228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867316   (1066709) от 24.04.2026
+
+Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Never Return (3:12)
+02. Move Through a Live Wire (2:37)
+03. This is My Time (2:25)
+04. Love Is Found (2:42)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0657DC2C857393DB54CAF7F291DE50AC4915B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866743   (1066437) от 22.04.2026
+
+VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlimkhanOV A. - The City Never Sleeps (Vocal Mix) (5:53)
+02. Mancol - Angel Of Love (Extended) (5:43)
+03. Marc Fruttero & Tiziana Rivale - Time On Your Mind (Modern Mix) (3:39)
+04. Magic System D.J. - Without Your Love (Also Playable Mono Remix) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9332BA83DC590B440438598F80811A1FF4791C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866231   (1065797) от 19.04.2026
 
 VA - Listen on repeat (2026) [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +745,6 @@ Rudolf Kinski Project - XIV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9266CF65C0E0AEBFDF289D1787528779F56A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863868   (1063157) от 06.04.2026
-
-VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
-02. Italove - At The Disco (Also Playable Mono Remix) (6:10)
-03. Carino Cat - Passion Of Love (Extended Version) (6:40)
-04. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:32)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 04:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D255A278075979A98CC21C1E5DB52B40629EA63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863970   (1063082) от 07.04.2026
-
-Ai - No Name Compilation Simply listen music Part 85 old songs in a new way (2026) [MP3|320 Kbps] <Cover, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Не Надо ( Сергей Кузнецов (Проект Лёха))
-02 - Осень (Маленький Принц)
-03 - Я Больше Не Прошу (Мираж)
-04 - Безумный Мир (Мираж)(   Читать дальше...   )Жанр: Cover, PopПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099F2F0DE97DFAB57F685E46E09FCCA9322163A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864009   (1063033) от 07.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современной обработке (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Вне Времени- Два кусочека колбаски [03:34]
-02.KulMuzika- Пазишен Намба Уан [07:31]
-03.Aleks-Audio- Перекрёсток (Ты ушла рано утром) [04:39]
-04.Master Factory- Девочка Сегодня в Баре [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB1AAF59B564F5DBFF5CA2576737798CDF34998
 ```
 
 https://mybot314.ru/tekegram_catalog/

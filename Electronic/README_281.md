@@ -1,3 +1,61 @@
+###  Публикация: 1050144   (540517) от 07.09.2016
+
+VA - Remix EP 01 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joachim Pastor - Joda (Worakls Remix) (05:38)
+02. N'to - Chez Nous (Joachim Pastor Remix) (06:30)
+03. Joachim Pastor - Taïga (N'to Remix) (05:52)
+04. Joachim Pastor - Oulan Bator (Oliver Koletzki Remix) (07:07)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EC64374B56E93F2A16D125924BF00132D7ABCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036383   (540345) от 04.08.2018
+
+Puremusic - Discography 11 Releases (2013-2017) Silk Sofa Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunray Kiss (05:04)
+ 02. Take A Seat And Relax (05:52)
+ 03. Ai (04:42)
+ 04. Dreams (06:18)(   Читать дальше...   )Тип издания: WEB •Жанр: Downtempo, Ambient, Chillout •Продолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D64DD877BB6CD672FCC8483D56A1E507FFD861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818720   (539797) от 04.09.2014
 
 VA - The Best 55 Chill Out (2014) [MP3|320 kbps] <Balearic, Downtempo>
@@ -681,64 +739,6 @@ Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312098   (536502) от 02.07.2019
-
-Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (08:41)
-02. Space Walk (07:03)
-03. Ramblin' Man (07:06)
-04. Return To Patagonia (08:41)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311956   (536489) от 02.07.2019
-
-VA - Dave Pears Trance Anthems 2 (2019) 3CD [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Faithless - Insomnia
-02. Ferry Corsten - Rock Your Body Rock(   Читать дальше...   )Жанр: TranceПродолжительность: 03:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD261CAB4B76144110F5866EF9D1BD27CC2DD3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

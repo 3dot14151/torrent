@@ -1,3 +1,148 @@
+###  Публикация: 1296310   (613364) от 16.04.2019
+
+Richard Marx - The Ultimate Collection (2016) Universal Music [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Here Waiting (4:26)
+ 02. Hazard (5:17)
+ 03. Should've Known Better (4:10)
+ 04. Endless Summer Nights (4:31)(   Читать дальше...   )Жанр: Pop, Pop-Rock, BalladПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76647B5E1FE3B5CEE36065C7C6CE20DA4F9AEFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296321   (613299) от 16.04.2019
+
+VA - The Hits Album - The 70s Pop Album (2019) [MP3|320 Kbps] <Pop, Disco, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613299.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Abba - Dancing Queen 3:50
+02. Baccara - Yes Sir I Can Booogie 4:34
+03. Gloria Gaynor - I Will Survive 3:13(   Читать дальше...   )Жанр: Pop, Disco, OtherПродолжительность: 04:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF2B12B52846015D173B4D26682044D663E7F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545558   (613164) от 20.04.2022
+
+Angel'o - Dream Machine (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Machine (3:23)
+02. Another Reggae In Space (3:21)
+03. Secrets Of The Night (5:05)
+04. Hibernation (4:16)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842C9990A7B8B28911F53A15A976FD634285F9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146930   (613066) от 30.06.2017
+
+KiKroKos - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская студийная диско группа 1970-х годов. Участники: Andre Allet, Michel Elmosnino, Patrick Sesti, параллельно состоящих в известной группе, то-же из Франции - Kongas.01. Jungle D.J. (13:47)
+- Jungle D.J. And Dirty Kate
+- Jungle Is Not For You
+- Jungle Dee Jay(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55C1AA6D78C6E4BAFA3B4BDC017145308A97776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545469   (613023) от 20.04.2022
+
+La Bionda - Compilations (9CD) (1987-2002) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One For You, One For Me [00:05:54]
+02. Hey Woman [00:05:07]
+03. There For Me [00:03:25]
+04. Sandstorm [00:10:15](   Читать дальше...   )Жанр: DiscoПродолжительность: 9 CD, 09:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3990B06DDD3A11227E9880117E5A86ECD8C6BBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146683   (612964) от 30.06.2017
 
 VA - La Bomba Party (2k17) (2017) [MP3|320 Kbps] <Schlager, Pop>
@@ -600,151 +745,6 @@ The African Singers - Disco Africana (2000) [FLAC|Lossless|tracks + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7343A88D16AAC54DD3CD92FF04CA8E67791345C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545813   (611229) от 21.04.2022
-
-Вячеслав Малежик - Здравствуй (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй
-2. Берег ночи
-3. Вологда
-4. Ах, какая ты, любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0034660070FCC0D80BA857F0180E59C5D7A03F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147159   (611209) от 01.07.2017
-
-VA - A Touch Of Italo Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Layla Mystic/Funkenhooker - Ibiza Needs You (Nu Disco Bitches edit mix) (03:44)
-02. Jason Rivas/Class Of '88 - E Salsa (Club edit) (03:23)
-03. Nu Disco Bitches/Jason Rivas - Song Five (vocal Club edit) (03:45)
-04. Acid Klowns From Outer Space/Jason Rivas - Golden Years (03:32)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545454   (611037) от 21.04.2022
-
-Рома Жуков - Легендарные Песни (2005) Special Edition [FLAC|Lossless|tracks + .cue] <Pop, Disco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцующий дождь
-02. Девчонки, мои девчонки
-03. Млечный путь
-04. На крыльях ночь(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BF6E217482DF979173DE77BA45B147AB36F914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147228   (610997) от 01.07.2017
-
-Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The City (3:58)
-02. Bless The Beasts And The Children (4:18)
-03. Christmas Lullaby (3:53)
-04. I Won't Say (I'm In Love) (3:18)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912690   (610762) от 26.06.2015
-
-Андрей Ковалёв - Неба синь (2005) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соль, текила и ломтик лайма
-02. Это ложь
-03. Разбитая любовь
-04. Если хочешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AB97DF418DA59448AFB3E16A7FAAD2BA40CBE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
